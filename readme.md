@@ -1,6 +1,6 @@
-# TechiDaily
+# Meme Emoji Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://meme-emoji.techidaily.com](https://meme-emoji.techidaily.com)
 
 ## Publish
 
