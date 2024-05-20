@@ -1,7 +1,7 @@
 ---
 title: New Top 10 Best Free Manga Sites to Read Online
-date: 2024-04-21T07:48:22.827Z
-updated: 2024-04-22T07:48:22.827Z
+date: 2024-05-19T02:31:18.320Z
+updated: 2024-05-20T02:31:18.320Z
 tags: 
   - ai
   - animation videos
@@ -2294,3 +2294,4 @@ Follow @Ollie Mattison
 <li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-samsung-galaxy-a05-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Samsung Galaxy A05 Phone that is Locked?</u></a></li>
 <li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-5-must-know-hacks-to-beat-deepfake-attacks-streamer-survival-guide/"><u>New 2024 Approved 5 Must-Know Hacks to Beat Deepfake Attacks Streamer Survival Guide</u></a></li>
 </ul></div>
+

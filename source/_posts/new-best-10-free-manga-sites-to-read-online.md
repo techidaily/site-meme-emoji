@@ -1,7 +1,7 @@
 ---
 title: New Best 10 Free Manga Sites to Read Online
-date: 2024-04-21T07:48:26.647Z
-updated: 2024-04-22T07:48:26.647Z
+date: 2024-05-19T02:31:18.546Z
+updated: 2024-05-20T02:31:18.546Z
 tags: 
   - ai
   - animation videos
@@ -2868,3 +2868,4 @@ Follow @Ollie Mattison
 <li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-x-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock Apple iPhone X Without Swiping Up? 6 Ways</u></a></li>
 <li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Google Pixel 8 | Dr.fone</u></a></li>
 </ul></div>
+

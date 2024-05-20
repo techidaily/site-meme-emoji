@@ -1,7 +1,7 @@
 ---
 title: New How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself for 2024
-date: 2024-04-21T07:49:20.532Z
-updated: 2024-04-22T07:49:20.532Z
+date: 2024-05-19T02:31:22.716Z
+updated: 2024-05-20T02:31:22.716Z
 tags: 
   - ai
   - animation videos
@@ -3786,3 +3786,4 @@ Follow @Liza Brown
 <li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-motorola-moto-g23-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Motorola Moto G23 | Dr.fone</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-xs-max-to-an-older-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone XS Max to an Older iOS Version? | Dr.fone</u></a></li>
 </ul></div>
+

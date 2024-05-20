@@ -1,7 +1,7 @@
 ---
 title: How to Use Emojis on Windows 10 and Windows 11?
-date: 2024-04-21T07:47:12.153Z
-updated: 2024-04-22T07:47:12.153Z
+date: 2024-05-19T02:31:13.187Z
+updated: 2024-05-20T02:31:13.187Z
 tags: 
   - ai
   - animation videos
@@ -3061,3 +3061,4 @@ Follow @Ollie Mattison
 <li><a href="https://ios-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Check Distance and Radius on Google Maps For your Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
 <li><a href="https://iphone-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-15-pro-max-drfone-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 15 Pro Max | Dr.fone</u></a></li>
 </ul></div>
+

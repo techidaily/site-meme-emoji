@@ -1,7 +1,7 @@
 ---
 title: Updated How to Edit Memoji on Android and iPhone
-date: 2024-04-21T07:47:53.995Z
-updated: 2024-04-22T07:47:53.995Z
+date: 2024-05-19T02:31:16.272Z
+updated: 2024-05-20T02:31:16.272Z
 tags: 
   - ai
   - animation videos
@@ -2931,3 +2931,4 @@ Follow @Shanoon Cox
 <li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-zte-nubia-z60-ultra-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On ZTE Nubia Z60 Ultra? Fix Now | Dr.fone</u></a></li>
 <li><a href="https://sim-unlock.techidaily.com/all-about-apple-iphone-12-pro-unlock-chip-you-need-to-know-by-drfone-ios/"><u>All About Apple iPhone 12 Pro Unlock Chip You Need to Know</u></a></li>
 </ul></div>
+

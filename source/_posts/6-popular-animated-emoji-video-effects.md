@@ -1,7 +1,7 @@
 ---
 title: 6 Popular Animated Emoji Video Effects
-date: 2024-04-21T07:47:03.309Z
-updated: 2024-04-22T07:47:03.309Z
+date: 2024-05-19T02:31:12.840Z
+updated: 2024-05-20T02:31:12.840Z
 tags: 
   - ai
   - animation videos
@@ -4197,3 +4197,4 @@ Follow @Ollie Mattison
 <li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-xiaomi-14-pro-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Xiaomi 14 Pro Phone When You Forget the Password</u></a></li>
 <li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-vivo-v27-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Vivo V27 Screen | Dr.fone</u></a></li>
 </ul></div>
+

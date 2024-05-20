@@ -1,7 +1,7 @@
 ---
 title: Updated Best 10 Free Manga Sites to Read Online for 2024
-date: 2024-04-21T07:49:48.624Z
-updated: 2024-04-22T07:49:48.624Z
+date: 2024-05-19T02:31:24.765Z
+updated: 2024-05-20T02:31:24.765Z
 tags: 
   - ai
   - animation videos
@@ -3071,3 +3071,4 @@ Follow @Shanoon Cox
 <li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-pro-max-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 Pro Max without Passcode or Face ID</u></a></li>
 <li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-realme-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Realme on Mac?</u></a></li>
 </ul></div>
+

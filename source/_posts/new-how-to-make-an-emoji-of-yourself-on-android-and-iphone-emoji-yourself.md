@@ -1,7 +1,7 @@
 ---
 title: New How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself
-date: 2024-04-21T07:48:00.768Z
-updated: 2024-04-22T07:48:00.768Z
+date: 2024-05-19T02:31:16.870Z
+updated: 2024-05-20T02:31:16.870Z
 tags: 
   - ai
   - animation videos
@@ -3334,3 +3334,4 @@ Follow @Max Wales
 <li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-f15-5g-phone-without-password-by-drfone-android/"><u>How To Unlock Samsung Galaxy F15 5G Phone Without Password?</u></a></li>
 <li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
 </ul></div>
+

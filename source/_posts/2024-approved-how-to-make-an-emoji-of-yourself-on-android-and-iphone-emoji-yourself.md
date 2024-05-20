@@ -1,7 +1,7 @@
 ---
 title: 2024 Approved How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself
-date: 2024-04-21T07:48:00.620Z
-updated: 2024-04-22T07:48:00.620Z
+date: 2024-05-19T02:31:16.865Z
+updated: 2024-05-20T02:31:16.865Z
 tags: 
   - ai
   - animation videos
@@ -4363,3 +4363,4 @@ Follow @Ollie Mattison
 <li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-13-mini-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account On iPhone 13 mini?</u></a></li>
 <li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-motorola-edge-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Motorola Edge 40 | Dr.fone</u></a></li>
 </ul></div>
+

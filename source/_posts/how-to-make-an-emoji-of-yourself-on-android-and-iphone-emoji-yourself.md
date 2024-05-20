@@ -1,7 +1,7 @@
 ---
 title: How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself
-date: 2024-04-21T07:47:10.387Z
-updated: 2024-04-22T07:47:10.387Z
+date: 2024-05-19T02:31:13.124Z
+updated: 2024-05-20T02:31:13.124Z
 tags: 
   - ai
   - animation videos
@@ -2833,3 +2833,4 @@ Follow @Shanoon Cox
 <li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-infinix-hot-40-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Infinix Hot 40 to iPhone | Dr.fone</u></a></li>
 <li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-poco-c65-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Poco C65? Try These Fixes</u></a></li>
 </ul></div>
+

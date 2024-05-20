@@ -1,7 +1,7 @@
 ---
 title: How to Edit Memoji on Android and iPhone
-date: 2024-04-21T07:47:09.068Z
-updated: 2024-04-22T07:47:09.068Z
+date: 2024-05-19T02:31:13.090Z
+updated: 2024-05-20T02:31:13.090Z
 tags: 
   - ai
   - animation videos
@@ -3308,3 +3308,4 @@ Follow @Shanoon Cox
 <li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Honor X50 GT | Dr.fone</u></a></li>
 <li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-realme-gt-5-pro-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Realme GT 5 Pro Data? | Dr.fone</u></a></li>
 </ul></div>
+

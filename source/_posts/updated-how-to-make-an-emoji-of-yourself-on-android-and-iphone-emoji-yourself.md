@@ -1,7 +1,7 @@
 ---
 title: Updated How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself
-date: 2024-04-21T07:48:00.917Z
-updated: 2024-04-22T07:48:00.917Z
+date: 2024-05-19T02:31:16.877Z
+updated: 2024-05-20T02:31:16.877Z
 tags: 
   - ai
   - animation videos
@@ -2858,3 +2858,4 @@ Follow @Shanoon Cox
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-honor-x8b-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Honor X8b To iPhone 15/14/13? | Dr.fone</u></a></li>
 <li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-vivo-y78-5g-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Vivo Y78 5G Devices | Dr.fone</u></a></li>
 </ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: In 2024, How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself
-date: 2024-04-21T07:48:00.325Z
-updated: 2024-04-22T07:48:00.325Z
+date: 2024-05-19T02:31:16.858Z
+updated: 2024-05-20T02:31:16.858Z
 tags: 
   - ai
   - animation videos
@@ -2526,3 +2526,4 @@ Follow @Liza Brown
 <li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-magic-5-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor Magic 5 to Other Android Devices? | Dr.fone</u></a></li>
 <li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone XS | Dr.fone</u></a></li>
 </ul></div>
+

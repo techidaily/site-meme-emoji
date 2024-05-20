@@ -1,7 +1,7 @@
 ---
 title: New 2024 Approved How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself
-date: 2024-04-21T07:49:20.959Z
-updated: 2024-04-22T07:49:20.959Z
+date: 2024-05-19T02:31:22.729Z
+updated: 2024-05-20T02:31:22.729Z
 tags: 
   - ai
   - animation videos
@@ -4431,3 +4431,4 @@ Follow @Shanoon Cox
 <li><a href="https://location-social.techidaily.com/how-to-change-your-apple-iphone-12-pro-max-location-on-twitter-drfone-by-drfone-virtual-ios/"><u>How to Change your Apple iPhone 12 Pro Max Location on Twitter | Dr.fone</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-oppo-a79-5g-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Oppo A79 5G Without Volume Buttons | Dr.fone</u></a></li>
 </ul></div>
+

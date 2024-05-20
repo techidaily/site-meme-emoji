@@ -1,7 +1,7 @@
 ---
 title: Updated Best 10 Free Manga Sites to Read Online
-date: 2024-04-21T07:48:26.902Z
-updated: 2024-04-22T07:48:26.902Z
+date: 2024-05-19T02:31:18.572Z
+updated: 2024-05-20T02:31:18.572Z
 tags: 
   - ai
   - animation videos
@@ -2719,3 +2719,4 @@ Follow @Liza Brown
 <li><a href="https://howto.techidaily.com/bricked-your-asus-rog-phone-7-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Asus ROG Phone 7? Heres A Full Solution | Dr.fone</u></a></li>
 <li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-oppo-find-n3-flips-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Oppo Find N3 Flips Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
 </ul></div>
+
