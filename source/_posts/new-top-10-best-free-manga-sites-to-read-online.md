@@ -1,7 +1,7 @@
 ---
 title: New Top 10 Best Free Manga Sites to Read Online
-date: 2024-05-19T02:31:18.320Z
-updated: 2024-05-20T02:31:18.320Z
+date: 2024-06-30T14:18:53.364Z
+updated: 2024-07-01T14:18:53.364Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes New Top 10 Best Free Manga Sites to Read Online
 excerpt: This Article Describes New Top 10 Best Free Manga Sites to Read Online
 keywords: top best manga sites to read online,top 12 best meme makers online for free,top 10 best free manga sites to read online,free websites to watch cartoons online,best free meme maker online,free 10 websites to watch cartoon online in hd,best websites to add emojis to photos online
-thumbnail: https://www.lifewire.com/thmb/8WNeD74C3OD4Hr-lVFvg4bLBeLA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-140173628BetsieVanDerMeer-5927117e5f9b5859509a476c.jpg
+thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a34b2694ff1529f9b0220b04e.jpg
 ---
 
 ## Top 10 Best Free Manga Sites to Read Online

@@ -1,7 +1,7 @@
 ---
 title: New In 2024, How to Burn Photos to DVD with Transitions and Music
-date: 2024-06-15T01:30:31.660Z
-updated: 2024-06-16T01:30:31.660Z
+date: 2024-06-30T14:19:04.595Z
+updated: 2024-07-01T14:19:04.595Z
 tags: 
   - ai
   - animation videos
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/e1e53d68e6a8bd97bb49ce774576b58cc661b7caf
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -113,7 +113,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -201,7 +201,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -289,7 +289,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -409,27 +409,27 @@ The section shall revolve around the top 6animated emoji video effects that are 
 
 Along with this, it is constantly growing and unique media with no fear of attribution. If this is not the ideal case scenario, then we don't know what it will be! The following set of effects are the top 6 animated emoji video effects to incorporate in your YouTube introductory videos, TikTok clips, and Instagram stories or reels.
 
-### 1. [Animated Emoji Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1. Animated Emoji Pack
 
 Animated kiss emoji, animated dancing emoji, and laughing emoji, this emoji pack has covered your basics. With 24 elements, Animated Emoji Pack provides an easy way to express yourself and say it out loud using the language of emojis.
 
-### 2. [Emoji Stickers Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 2. Emoji Stickers Pack
 
 If you are on the verge of a nervous breakdown and require a stickers pack with 32 elements that include a crying emoji, this pack has to be your answer. In addition to this, this effect is 100% compatible with Wondershare Filmora 9.6 and above.
 
-### 3. [Message Bubbles Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3. Message Bubbles Pack
 
 With message and chat bubbles that make communication a lot faster and quick, allow me to introduce you to Message Bubbles Pack. It constitutes animated cute emoji faces and texting graphics to make your social media fun and interesting.
 
-### 4. [3D Social Media Icons Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 4. 3D Social Media Icons Pack
 
 Incorporated with 12 titles, 60 elements, 4 overlays, and 6 transitions, 3D Social Media Icons Pack is sure to fill your shoes. One can have access to unlimited emoji animated in 3D animation and showcase themselves as the cool and classy one of the lot.
 
-### 5. [Cute Cartoon Emoji Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 5. Cute Cartoon Emoji Pack
 
 The Cartoon Emoji Pack is an amalgamation of a wide range of cartoon emojis to express yourself as best as you can. With the right choice of emoji, one can communicate themselves whilst using a total of 25 elements.
 
-### 6. [Reactions Stickers Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 6. Reactions Stickers Pack
 
 With a speech and thought bubble, Reaction Sticker Pack presents all sorts of reaction emojis and smileys. In addition to this, the template offers 11 titles, 4 overlays, 40 elements, and 2 transitions. Get ready to express your reactions in the funniest way.
 
@@ -541,27 +541,27 @@ The section shall revolve around the top 6animated emoji video effects that are 
 
 Along with this, it is constantly growing and unique media with no fear of attribution. If this is not the ideal case scenario, then we don't know what it will be! The following set of effects are the top 6 animated emoji video effects to incorporate in your YouTube introductory videos, TikTok clips, and Instagram stories or reels.
 
-### 1. [Animated Emoji Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1. Animated Emoji Pack
 
 Animated kiss emoji, animated dancing emoji, and laughing emoji, this emoji pack has covered your basics. With 24 elements, Animated Emoji Pack provides an easy way to express yourself and say it out loud using the language of emojis.
 
-### 2. [Emoji Stickers Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 2. Emoji Stickers Pack
 
 If you are on the verge of a nervous breakdown and require a stickers pack with 32 elements that include a crying emoji, this pack has to be your answer. In addition to this, this effect is 100% compatible with Wondershare Filmora 9.6 and above.
 
-### 3. [Message Bubbles Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3. Message Bubbles Pack
 
 With message and chat bubbles that make communication a lot faster and quick, allow me to introduce you to Message Bubbles Pack. It constitutes animated cute emoji faces and texting graphics to make your social media fun and interesting.
 
-### 4. [3D Social Media Icons Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 4. 3D Social Media Icons Pack
 
 Incorporated with 12 titles, 60 elements, 4 overlays, and 6 transitions, 3D Social Media Icons Pack is sure to fill your shoes. One can have access to unlimited emoji animated in 3D animation and showcase themselves as the cool and classy one of the lot.
 
-### 5. [Cute Cartoon Emoji Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 5. Cute Cartoon Emoji Pack
 
 The Cartoon Emoji Pack is an amalgamation of a wide range of cartoon emojis to express yourself as best as you can. With the right choice of emoji, one can communicate themselves whilst using a total of 25 elements.
 
-### 6. [Reactions Stickers Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 6. Reactions Stickers Pack
 
 With a speech and thought bubble, Reaction Sticker Pack presents all sorts of reaction emojis and smileys. In addition to this, the template offers 11 titles, 4 overlays, 40 elements, and 2 transitions. Get ready to express your reactions in the funniest way.
 
@@ -673,27 +673,27 @@ The section shall revolve around the top 6animated emoji video effects that are 
 
 Along with this, it is constantly growing and unique media with no fear of attribution. If this is not the ideal case scenario, then we don't know what it will be! The following set of effects are the top 6 animated emoji video effects to incorporate in your YouTube introductory videos, TikTok clips, and Instagram stories or reels.
 
-### 1. [Animated Emoji Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1. Animated Emoji Pack
 
 Animated kiss emoji, animated dancing emoji, and laughing emoji, this emoji pack has covered your basics. With 24 elements, Animated Emoji Pack provides an easy way to express yourself and say it out loud using the language of emojis.
 
-### 2. [Emoji Stickers Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 2. Emoji Stickers Pack
 
 If you are on the verge of a nervous breakdown and require a stickers pack with 32 elements that include a crying emoji, this pack has to be your answer. In addition to this, this effect is 100% compatible with Wondershare Filmora 9.6 and above.
 
-### 3. [Message Bubbles Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3. Message Bubbles Pack
 
 With message and chat bubbles that make communication a lot faster and quick, allow me to introduce you to Message Bubbles Pack. It constitutes animated cute emoji faces and texting graphics to make your social media fun and interesting.
 
-### 4. [3D Social Media Icons Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 4. 3D Social Media Icons Pack
 
 Incorporated with 12 titles, 60 elements, 4 overlays, and 6 transitions, 3D Social Media Icons Pack is sure to fill your shoes. One can have access to unlimited emoji animated in 3D animation and showcase themselves as the cool and classy one of the lot.
 
-### 5. [Cute Cartoon Emoji Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 5. Cute Cartoon Emoji Pack
 
 The Cartoon Emoji Pack is an amalgamation of a wide range of cartoon emojis to express yourself as best as you can. With the right choice of emoji, one can communicate themselves whilst using a total of 25 elements.
 
-### 6. [Reactions Stickers Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 6. Reactions Stickers Pack
 
 With a speech and thought bubble, Reaction Sticker Pack presents all sorts of reaction emojis and smileys. In addition to this, the template offers 11 titles, 4 overlays, 40 elements, and 2 transitions. Get ready to express your reactions in the funniest way.
 
@@ -805,27 +805,27 @@ The section shall revolve around the top 6animated emoji video effects that are 
 
 Along with this, it is constantly growing and unique media with no fear of attribution. If this is not the ideal case scenario, then we don't know what it will be! The following set of effects are the top 6 animated emoji video effects to incorporate in your YouTube introductory videos, TikTok clips, and Instagram stories or reels.
 
-### 1. [Animated Emoji Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 1. Animated Emoji Pack
 
 Animated kiss emoji, animated dancing emoji, and laughing emoji, this emoji pack has covered your basics. With 24 elements, Animated Emoji Pack provides an easy way to express yourself and say it out loud using the language of emojis.
 
-### 2. [Emoji Stickers Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 2. Emoji Stickers Pack
 
 If you are on the verge of a nervous breakdown and require a stickers pack with 32 elements that include a crying emoji, this pack has to be your answer. In addition to this, this effect is 100% compatible with Wondershare Filmora 9.6 and above.
 
-### 3. [Message Bubbles Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 3. Message Bubbles Pack
 
 With message and chat bubbles that make communication a lot faster and quick, allow me to introduce you to Message Bubbles Pack. It constitutes animated cute emoji faces and texting graphics to make your social media fun and interesting.
 
-### 4. [3D Social Media Icons Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 4. 3D Social Media Icons Pack
 
 Incorporated with 12 titles, 60 elements, 4 overlays, and 6 transitions, 3D Social Media Icons Pack is sure to fill your shoes. One can have access to unlimited emoji animated in 3D animation and showcase themselves as the cool and classy one of the lot.
 
-### 5. [Cute Cartoon Emoji Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 5. Cute Cartoon Emoji Pack
 
 The Cartoon Emoji Pack is an amalgamation of a wide range of cartoon emojis to express yourself as best as you can. With the right choice of emoji, one can communicate themselves whilst using a total of 25 elements.
 
-### 6. [Reactions Stickers Pack](https://tools.techidaily.com/wondershare/filmora/download/)
+### 6. Reactions Stickers Pack
 
 With a speech and thought bubble, Reaction Sticker Pack presents all sorts of reaction emojis and smileys. In addition to this, the template offers 11 titles, 4 overlays, 40 elements, and 2 transitions. Get ready to express your reactions in the funniest way.
 
@@ -1296,7 +1296,7 @@ Sticker Make for Whatsapp is one such app. It is free and requires no registrati
 
 ![Save Whatsapp Sticker](https://images.wondershare.com/filmora/article-images/save-whatsapp-sticker.jpg)
 
-( P.S Make sure that the stickers are precisely 512x512 pixels and no more than 100kb)
+(P.S Make sure that the stickers are precisely 512x512 pixels and no more than 100kb)
 
 ## Part 2: How to Add Stickers to WhatsApp
 
@@ -1443,7 +1443,7 @@ Sticker Make for Whatsapp is one such app. It is free and requires no registrati
 
 ![Save Whatsapp Sticker](https://images.wondershare.com/filmora/article-images/save-whatsapp-sticker.jpg)
 
-( P.S Make sure that the stickers are precisely 512x512 pixels and no more than 100kb)
+(P.S Make sure that the stickers are precisely 512x512 pixels and no more than 100kb)
 
 ## Part 2: How to Add Stickers to WhatsApp
 
@@ -1590,7 +1590,7 @@ Sticker Make for Whatsapp is one such app. It is free and requires no registrati
 
 ![Save Whatsapp Sticker](https://images.wondershare.com/filmora/article-images/save-whatsapp-sticker.jpg)
 
-( P.S Make sure that the stickers are precisely 512x512 pixels and no more than 100kb)
+(P.S Make sure that the stickers are precisely 512x512 pixels and no more than 100kb)
 
 ## Part 2: How to Add Stickers to WhatsApp
 
@@ -1737,7 +1737,7 @@ Sticker Make for Whatsapp is one such app. It is free and requires no registrati
 
 ![Save Whatsapp Sticker](https://images.wondershare.com/filmora/article-images/save-whatsapp-sticker.jpg)
 
-( P.S Make sure that the stickers are precisely 512x512 pixels and no more than 100kb)
+(P.S Make sure that the stickers are precisely 512x512 pixels and no more than 100kb)
 
 ## Part 2: How to Add Stickers to WhatsApp
 
@@ -1885,7 +1885,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -1909,12 +1909,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -1968,7 +1968,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2030,7 +2030,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2054,12 +2054,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -2113,7 +2113,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2175,7 +2175,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2199,12 +2199,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -2258,7 +2258,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2320,7 +2320,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2344,12 +2344,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -2403,7 +2403,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
