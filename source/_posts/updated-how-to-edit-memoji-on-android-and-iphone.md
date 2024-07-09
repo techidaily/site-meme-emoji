@@ -1,7 +1,7 @@
 ---
 title: Updated How to Edit Memoji on Android and iPhone
-date: 2024-06-15T01:30:01.521Z
-updated: 2024-06-16T01:30:01.521Z
+date: 2024-07-08T02:46:04.961Z
+updated: 2024-07-09T02:46:04.961Z
 tags: 
   - ai
   - animation videos
@@ -2125,7 +2125,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2149,12 +2149,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -2208,7 +2208,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2270,7 +2270,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2294,12 +2294,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -2353,7 +2353,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2415,7 +2415,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2439,12 +2439,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -2498,7 +2498,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2560,7 +2560,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2584,12 +2584,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -2643,7 +2643,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 

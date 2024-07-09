@@ -1,7 +1,7 @@
 ---
 title: 2024 Approved How to Burn Photos to DVD with Transitions and Music
-date: 2024-06-15T01:30:10.400Z
-updated: 2024-06-16T01:30:10.400Z
+date: 2024-07-08T02:46:06.946Z
+updated: 2024-07-09T02:46:06.946Z
 tags: 
   - ai
   - animation videos
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/2ca46c2a129dc1360b713c04a30f75e3e36c2cb0f
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -113,7 +113,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -201,7 +201,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -289,7 +289,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -1878,7 +1878,7 @@ When you are done with that, you have to select the filters and overlays that wi
 
 **Step 5:** Lastly, you will have to export the slideshow as you see fit, but you also have the option to share it on YouTube if you so desire.
 
-![export slideshow with travel photos ](https://images.wondershare.com/filmora/article-images/filmora-export-interface.jpg)
+![export slideshow with travel photos](https://images.wondershare.com/filmora/article-images/filmora-export-interface.jpg)
 
 **Conclusion**
 
@@ -1959,7 +1959,7 @@ When you are done with that, you have to select the filters and overlays that wi
 
 **Step 5:** Lastly, you will have to export the slideshow as you see fit, but you also have the option to share it on YouTube if you so desire.
 
-![export slideshow with travel photos ](https://images.wondershare.com/filmora/article-images/filmora-export-interface.jpg)
+![export slideshow with travel photos](https://images.wondershare.com/filmora/article-images/filmora-export-interface.jpg)
 
 **Conclusion**
 
@@ -2040,7 +2040,7 @@ When you are done with that, you have to select the filters and overlays that wi
 
 **Step 5:** Lastly, you will have to export the slideshow as you see fit, but you also have the option to share it on YouTube if you so desire.
 
-![export slideshow with travel photos ](https://images.wondershare.com/filmora/article-images/filmora-export-interface.jpg)
+![export slideshow with travel photos](https://images.wondershare.com/filmora/article-images/filmora-export-interface.jpg)
 
 **Conclusion**
 
@@ -2121,7 +2121,7 @@ When you are done with that, you have to select the filters and overlays that wi
 
 **Step 5:** Lastly, you will have to export the slideshow as you see fit, but you also have the option to share it on YouTube if you so desire.
 
-![export slideshow with travel photos ](https://images.wondershare.com/filmora/article-images/filmora-export-interface.jpg)
+![export slideshow with travel photos](https://images.wondershare.com/filmora/article-images/filmora-export-interface.jpg)
 
 **Conclusion**
 
@@ -2179,7 +2179,7 @@ Note: If you find some black bar on your photos in preview, it is recommended to
 
 #### Step 3. Add Transitions
 
-![Filmora9 slideshow transitions library ](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+![Filmora9 slideshow transitions library](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are hundreds of transitions available in Filmora which you should totally have a try. You can apply a specific transition between each selected photo, or apply random transitions to selected photos.
 
@@ -2193,7 +2193,7 @@ To make your photos slideshow looks better, it is highly recommended to apply fi
 
 You can choose background music or sound effect from the inbuilt audio library in Filmora or drag and drop the music track file from computer to the timeline directly. Filmora features the voiceover recording tool which helps you to record your own voice easily.
 
-![Create music slideshow with Filmora9 ](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
+![Create music slideshow with Filmora9](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
 
 #### Step 5. Export and Save
 
@@ -2283,7 +2283,7 @@ Note: If you find some black bar on your photos in preview, it is recommended to
 
 #### Step 3. Add Transitions
 
-![Filmora9 slideshow transitions library ](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+![Filmora9 slideshow transitions library](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are hundreds of transitions available in Filmora which you should totally have a try. You can apply a specific transition between each selected photo, or apply random transitions to selected photos.
 
@@ -2297,7 +2297,7 @@ To make your photos slideshow looks better, it is highly recommended to apply fi
 
 You can choose background music or sound effect from the inbuilt audio library in Filmora or drag and drop the music track file from computer to the timeline directly. Filmora features the voiceover recording tool which helps you to record your own voice easily.
 
-![Create music slideshow with Filmora9 ](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
+![Create music slideshow with Filmora9](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
 
 #### Step 5. Export and Save
 
@@ -2387,7 +2387,7 @@ Note: If you find some black bar on your photos in preview, it is recommended to
 
 #### Step 3. Add Transitions
 
-![Filmora9 slideshow transitions library ](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+![Filmora9 slideshow transitions library](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are hundreds of transitions available in Filmora which you should totally have a try. You can apply a specific transition between each selected photo, or apply random transitions to selected photos.
 
@@ -2401,7 +2401,7 @@ To make your photos slideshow looks better, it is highly recommended to apply fi
 
 You can choose background music or sound effect from the inbuilt audio library in Filmora or drag and drop the music track file from computer to the timeline directly. Filmora features the voiceover recording tool which helps you to record your own voice easily.
 
-![Create music slideshow with Filmora9 ](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
+![Create music slideshow with Filmora9](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
 
 #### Step 5. Export and Save
 
@@ -2491,7 +2491,7 @@ Note: If you find some black bar on your photos in preview, it is recommended to
 
 #### Step 3. Add Transitions
 
-![Filmora9 slideshow transitions library ](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+![Filmora9 slideshow transitions library](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
 
 There are hundreds of transitions available in Filmora which you should totally have a try. You can apply a specific transition between each selected photo, or apply random transitions to selected photos.
 
@@ -2505,7 +2505,7 @@ To make your photos slideshow looks better, it is highly recommended to apply fi
 
 You can choose background music or sound effect from the inbuilt audio library in Filmora or drag and drop the music track file from computer to the timeline directly. Filmora features the voiceover recording tool which helps you to record your own voice easily.
 
-![Create music slideshow with Filmora9 ](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
+![Create music slideshow with Filmora9](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
 
 #### Step 5. Export and Save
 

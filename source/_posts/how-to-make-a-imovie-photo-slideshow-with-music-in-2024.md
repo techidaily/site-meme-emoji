@@ -1,7 +1,7 @@
 ---
 title: How to Make a iMovie Photo Slideshow with Music, In 2024
-date: 2024-05-19T02:31:17.419Z
-updated: 2024-05-20T02:31:17.419Z
+date: 2024-07-08T02:46:38.641Z
+updated: 2024-07-09T02:46:38.641Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes How to Make a iMovie Photo Slideshow with Music, In 2024
 excerpt: This Article Describes How to Make a iMovie Photo Slideshow with Music, In 2024
 keywords: how to make a imovie photo slideshow with music imovie tutorial,photo slideshow maker,how to make video slideshow with your travel photos,slideshow with music,best photo slideshow maker how to make a photo slideshow,how to make a flv photo slideshow,make video slideshow with travel photos
-thumbnail: https://www.lifewire.com/thmb/OhMYY4yKeVVtP9XO0SmqFIVtLJg=/360x240/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/dualsenseedge-749ef030e3c84376926d817913be924b.jpg
+thumbnail: https://thmb.techidaily.com/2738dcb65655ca3023848f9ec7026a9cce211e70815a31f4f65d2f9ea9ded629.jpg
 ---
 
 ## How to Make a iMovie Photo Slideshow with Music?
@@ -37,13 +37,13 @@ To make a photo slideshow with music in iMovie, you can follow these steps.
 
 After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
 
 #### 2. Import Photos, Videos, and Audio Files
 
 Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
 
 #### 3. Arrange Media in Timeline and Adjust
 
@@ -53,7 +53,7 @@ Now, it’s time to place all these photos and videos in the timeline in order a
 
 Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
 
 #### 5. Add Titles and Text
 
@@ -61,11 +61,11 @@ Using some opener titles and credits at the beginning and ending part of your sl
 
 Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
 
 #### 6. Add Music to Slideshow
 
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check[how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -141,13 +141,13 @@ To make a photo slideshow with music in iMovie, you can follow these steps.
 
 After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
 
 #### 2. Import Photos, Videos, and Audio Files
 
 Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
 
 #### 3. Arrange Media in Timeline and Adjust
 
@@ -157,7 +157,7 @@ Now, it’s time to place all these photos and videos in the timeline in order a
 
 Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
 
 #### 5. Add Titles and Text
 
@@ -165,11 +165,11 @@ Using some opener titles and credits at the beginning and ending part of your sl
 
 Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
 
 #### 6. Add Music to Slideshow
 
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check[how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -245,13 +245,13 @@ To make a photo slideshow with music in iMovie, you can follow these steps.
 
 After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
 
 #### 2. Import Photos, Videos, and Audio Files
 
 Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
 
 #### 3. Arrange Media in Timeline and Adjust
 
@@ -261,7 +261,7 @@ Now, it’s time to place all these photos and videos in the timeline in order a
 
 Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
 
 #### 5. Add Titles and Text
 
@@ -269,11 +269,11 @@ Using some opener titles and credits at the beginning and ending part of your sl
 
 Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
 
 #### 6. Add Music to Slideshow
 
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check[how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -349,13 +349,13 @@ To make a photo slideshow with music in iMovie, you can follow these steps.
 
 After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
 
 #### 2. Import Photos, Videos, and Audio Files
 
 Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
 
 #### 3. Arrange Media in Timeline and Adjust
 
@@ -365,7 +365,7 @@ Now, it’s time to place all these photos and videos in the timeline in order a
 
 Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
 
 #### 5. Add Titles and Text
 
@@ -373,11 +373,11 @@ Using some opener titles and credits at the beginning and ending part of your sl
 
 Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
 
 #### 6. Add Music to Slideshow
 
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check[how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -1316,7 +1316,7 @@ Now that you have created your desired meme, save it on your Mac device. Then sh
 
 ![funny meme](https://images.wondershare.com/filmora/Mac-articles/funny-meme.jpg)
 
-## Steps of Creating Video or GIF Meme Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/)
+## Steps of Creating Video or GIF Meme Using FilmoraX
 
 You can also use a video editor to create your Video or make meme in GIF. With FilmoraX, it is easy to do so. In case you want to make meme, but are new to this process, then FilmoraX is just the perfect tool for you. With the help of this meme maker, you can easily create a video, GIF, and image memes.
 
@@ -1425,7 +1425,7 @@ Now that you have created your desired meme, save it on your Mac device. Then sh
 
 ![funny meme](https://images.wondershare.com/filmora/Mac-articles/funny-meme.jpg)
 
-## Steps of Creating Video or GIF Meme Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/)
+## Steps of Creating Video or GIF Meme Using FilmoraX
 
 You can also use a video editor to create your Video or make meme in GIF. With FilmoraX, it is easy to do so. In case you want to make meme, but are new to this process, then FilmoraX is just the perfect tool for you. With the help of this meme maker, you can easily create a video, GIF, and image memes.
 
@@ -1534,7 +1534,7 @@ Now that you have created your desired meme, save it on your Mac device. Then sh
 
 ![funny meme](https://images.wondershare.com/filmora/Mac-articles/funny-meme.jpg)
 
-## Steps of Creating Video or GIF Meme Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/)
+## Steps of Creating Video or GIF Meme Using FilmoraX
 
 You can also use a video editor to create your Video or make meme in GIF. With FilmoraX, it is easy to do so. In case you want to make meme, but are new to this process, then FilmoraX is just the perfect tool for you. With the help of this meme maker, you can easily create a video, GIF, and image memes.
 
@@ -1643,7 +1643,7 @@ Now that you have created your desired meme, save it on your Mac device. Then sh
 
 ![funny meme](https://images.wondershare.com/filmora/Mac-articles/funny-meme.jpg)
 
-## Steps of Creating Video or GIF Meme Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/)
+## Steps of Creating Video or GIF Meme Using FilmoraX
 
 You can also use a video editor to create your Video or make meme in GIF. With FilmoraX, it is easy to do so. In case you want to make meme, but are new to this process, then FilmoraX is just the perfect tool for you. With the help of this meme maker, you can easily create a video, GIF, and image memes.
 
@@ -2527,7 +2527,7 @@ Follow @Shanoon Cox
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-## Best 10 Emoji Makers to Create Your Own Emojis[PC/Online/Android/iPhone]
+## Best 10 Emoji Makers to Create Your Own Emojis [PC/Online/Android/iPhone]
 
 # Best 10 Emoji Makers to Create Your Own Emojis \[PC/Online/Android/iPhone\]
 
@@ -2757,7 +2757,7 @@ Adding emoji to videos has been a trend for some time. It is fun as well as allo
 
 3\. Tap on the Elements tab at the top and tap on the Emoji category on the side. A list of emoji elements will be displayed to you.
 
-![find free emoji ](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
+![find free emoji](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
 
 4\. Or you can go to [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) (Filmora's effects store), find the free Animated Emoji Pack and download more emojis.
 
@@ -3015,7 +3015,7 @@ Adding emoji to videos has been a trend for some time. It is fun as well as allo
 
 3\. Tap on the Elements tab at the top and tap on the Emoji category on the side. A list of emoji elements will be displayed to you.
 
-![find free emoji ](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
+![find free emoji](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
 
 4\. Or you can go to [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) (Filmora's effects store), find the free Animated Emoji Pack and download more emojis.
 
@@ -3273,7 +3273,7 @@ Adding emoji to videos has been a trend for some time. It is fun as well as allo
 
 3\. Tap on the Elements tab at the top and tap on the Emoji category on the side. A list of emoji elements will be displayed to you.
 
-![find free emoji ](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
+![find free emoji](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
 
 4\. Or you can go to [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) (Filmora's effects store), find the free Animated Emoji Pack and download more emojis.
 
@@ -3531,7 +3531,7 @@ Adding emoji to videos has been a trend for some time. It is fun as well as allo
 
 3\. Tap on the Elements tab at the top and tap on the Emoji category on the side. A list of emoji elements will be displayed to you.
 
-![find free emoji ](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
+![find free emoji](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
 
 4\. Or you can go to [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) (Filmora's effects store), find the free Animated Emoji Pack and download more emojis.
 

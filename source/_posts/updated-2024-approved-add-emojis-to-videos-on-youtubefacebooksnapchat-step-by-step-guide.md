@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide
-date: 2024-05-19T02:31:19.194Z
-updated: 2024-05-20T02:31:19.194Z
+date: 2024-07-08T02:45:55.115Z
+updated: 2024-07-09T02:45:55.115Z
 tags: 
   - ai
   - animation videos
@@ -10,7 +10,7 @@ categories:
 description: This Article Describes Updated 2024 Approved Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide
 excerpt: This Article Describes Updated 2024 Approved Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide
 keywords: best websites add emojis photos online,add emojis to videos on youtubefacebooksnapchat step by step guide,best ios and android apps you can use to create animoji and memoji videos,add emojis to videos,best websites to add emojis to photos online,how to add emojis to videos the ultimate guide,best 10 emoji makers to create your own emojis pconlineandroidiphone
-thumbnail: https://www.lifewire.com/thmb/-_m0G8vbbxxIlkvVQDjlQ1eCN-4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-541916248-593842a43df78c537be2cf44.jpg
+thumbnail: https://thmb.techidaily.com/69a1f779573ffb1d9703aa1f0c2a82407b77bc35052e19faef90f3eeabcd3dc4.jpg
 ---
 
 ## Add Emojis to Videos on YouTube/Facebook/Snapchat [Step by Step Guide]
@@ -867,13 +867,13 @@ To make a photo slideshow with music in iMovie, you can follow these steps.
 
 After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
 
 #### 2. Import Photos, Videos, and Audio Files
 
 Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
 
 #### 3. Arrange Media in Timeline and Adjust
 
@@ -883,7 +883,7 @@ Now, it’s time to place all these photos and videos in the timeline in order a
 
 Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
 
 #### 5. Add Titles and Text
 
@@ -891,11 +891,11 @@ Using some opener titles and credits at the beginning and ending part of your sl
 
 Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
 
 #### 6. Add Music to Slideshow
 
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check[how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -971,13 +971,13 @@ To make a photo slideshow with music in iMovie, you can follow these steps.
 
 After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
 
 #### 2. Import Photos, Videos, and Audio Files
 
 Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
 
 #### 3. Arrange Media in Timeline and Adjust
 
@@ -987,7 +987,7 @@ Now, it’s time to place all these photos and videos in the timeline in order a
 
 Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
 
 #### 5. Add Titles and Text
 
@@ -995,11 +995,11 @@ Using some opener titles and credits at the beginning and ending part of your sl
 
 Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
 
 #### 6. Add Music to Slideshow
 
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check[how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -1075,13 +1075,13 @@ To make a photo slideshow with music in iMovie, you can follow these steps.
 
 After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
 
 #### 2. Import Photos, Videos, and Audio Files
 
 Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
 
 #### 3. Arrange Media in Timeline and Adjust
 
@@ -1091,7 +1091,7 @@ Now, it’s time to place all these photos and videos in the timeline in order a
 
 Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
 
 #### 5. Add Titles and Text
 
@@ -1099,11 +1099,11 @@ Using some opener titles and credits at the beginning and ending part of your sl
 
 Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
 
 #### 6. Add Music to Slideshow
 
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check[how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -1179,13 +1179,13 @@ To make a photo slideshow with music in iMovie, you can follow these steps.
 
 After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
 
 #### 2. Import Photos, Videos, and Audio Files
 
 Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
 
 #### 3. Arrange Media in Timeline and Adjust
 
@@ -1195,7 +1195,7 @@ Now, it’s time to place all these photos and videos in the timeline in order a
 
 Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
 
 #### 5. Add Titles and Text
 
@@ -1203,11 +1203,11 @@ Using some opener titles and credits at the beginning and ending part of your sl
 
 Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
 
-![make slideshow in iMovie ](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
 
 #### 6. Add Music to Slideshow
 
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check[how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -1324,13 +1324,13 @@ But before you make a photo collage using iPhoto, here are some important things
 
 Since iPhoto's functions are not sufficient, we will introduce some alternative collage makers that you may be interested in.
 
-### Alternative to Make a Short Video, Slideshow, or Photo Collage: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### Alternative to Make a Short Video, Slideshow, or Photo Collage: Wondershare Filmora
 
 If there are too many photos to save or share with friends and family, you can use these images to make short videos to better collage and share. Filmora can do this for you, through which you can easily crop, add effects, split the screen, and merge photos. In order to make the "photo video" lively and exciting, you can also add music, audio, animation, title, music, etc. to it.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-### Alternative to Organize, Store, and Sort Images: [iCloud](https://www.icloud.com/)
+### Alternative to Organize, Store, and Sort Images: iCloud
 
 Migrating your photos to iCloud is a wise choice. iCloud is the best photo storage for iOS or Mac users. You don't need to download other apps or software. Just allow iCloud to back up the photo's library in the settings.
 
@@ -1393,13 +1393,13 @@ But before you make a photo collage using iPhoto, here are some important things
 
 Since iPhoto's functions are not sufficient, we will introduce some alternative collage makers that you may be interested in.
 
-### Alternative to Make a Short Video, Slideshow, or Photo Collage: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### Alternative to Make a Short Video, Slideshow, or Photo Collage: Wondershare Filmora
 
 If there are too many photos to save or share with friends and family, you can use these images to make short videos to better collage and share. Filmora can do this for you, through which you can easily crop, add effects, split the screen, and merge photos. In order to make the "photo video" lively and exciting, you can also add music, audio, animation, title, music, etc. to it.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-### Alternative to Organize, Store, and Sort Images: [iCloud](https://www.icloud.com/)
+### Alternative to Organize, Store, and Sort Images: iCloud
 
 Migrating your photos to iCloud is a wise choice. iCloud is the best photo storage for iOS or Mac users. You don't need to download other apps or software. Just allow iCloud to back up the photo's library in the settings.
 
@@ -1462,13 +1462,13 @@ But before you make a photo collage using iPhoto, here are some important things
 
 Since iPhoto's functions are not sufficient, we will introduce some alternative collage makers that you may be interested in.
 
-### Alternative to Make a Short Video, Slideshow, or Photo Collage: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### Alternative to Make a Short Video, Slideshow, or Photo Collage: Wondershare Filmora
 
 If there are too many photos to save or share with friends and family, you can use these images to make short videos to better collage and share. Filmora can do this for you, through which you can easily crop, add effects, split the screen, and merge photos. In order to make the "photo video" lively and exciting, you can also add music, audio, animation, title, music, etc. to it.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-### Alternative to Organize, Store, and Sort Images: [iCloud](https://www.icloud.com/)
+### Alternative to Organize, Store, and Sort Images: iCloud
 
 Migrating your photos to iCloud is a wise choice. iCloud is the best photo storage for iOS or Mac users. You don't need to download other apps or software. Just allow iCloud to back up the photo's library in the settings.
 
@@ -1531,13 +1531,13 @@ But before you make a photo collage using iPhoto, here are some important things
 
 Since iPhoto's functions are not sufficient, we will introduce some alternative collage makers that you may be interested in.
 
-### Alternative to Make a Short Video, Slideshow, or Photo Collage: [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+### Alternative to Make a Short Video, Slideshow, or Photo Collage: Wondershare Filmora
 
 If there are too many photos to save or share with friends and family, you can use these images to make short videos to better collage and share. Filmora can do this for you, through which you can easily crop, add effects, split the screen, and merge photos. In order to make the "photo video" lively and exciting, you can also add music, audio, animation, title, music, etc. to it.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-### Alternative to Organize, Store, and Sort Images: [iCloud](https://www.icloud.com/)
+### Alternative to Organize, Store, and Sort Images: iCloud
 
 Migrating your photos to iCloud is a wise choice. iCloud is the best photo storage for iOS or Mac users. You don't need to download other apps or software. Just allow iCloud to back up the photo's library in the settings.
 
@@ -1573,7 +1573,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -1661,7 +1661,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -1749,7 +1749,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
@@ -1837,7 +1837,7 @@ Follow @Shanoon Cox
 
  Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
 
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
 
 * [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
 * [Part 2: More Photo to DVD Tips](#part2)
