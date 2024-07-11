@@ -1,7 +1,7 @@
 ---
 title: 2024 Approved Is This a Pigeon Meme Generator
-date: 2024-06-15T01:30:28.485Z
-updated: 2024-06-16T01:30:28.485Z
+date: 2024-07-10T12:39:24.351Z
+updated: 2024-07-11T12:39:24.351Z
 tags: 
   - ai
   - animation videos
@@ -2649,7 +2649,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2673,12 +2673,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -2732,7 +2732,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2794,7 +2794,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2818,12 +2818,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -2877,7 +2877,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2939,7 +2939,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2963,12 +2963,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -3022,7 +3022,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -3084,7 +3084,7 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
 
-![edit discord channel ](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -3108,12 +3108,12 @@ Follow the steps below for either platform:
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
-![Upload emoji to Discord  ](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
-![Uploaded emoji on Discord  ](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
@@ -3167,7 +3167,7 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
-![grey emoji on discord  ](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -3519,3 +3519,37 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-best-websites-to-add-emojis-to-photos-online/"><u>2024 Approved Best Websites to Add Emojis to Photos Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-memes-on-iphone-and-android/"><u>Updated 2024 Approved How to Make Memes on iPhone and Android</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-10-funniest-subreddits-to-find-hilarious-memes-picked/"><u>New 10 Funniest Subreddits to Find Hilarious Memes (Picked)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-and-custom-slack-emoji-wondershare-filmora-for-2024/"><u>New How to Add and Custom Slack Emoji-Wondershare Filmora for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-what-is-emoji/"><u>New 2024 Approved What Is Emoji?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-triggered-meme/"><u>New In 2024, How to Make a Triggered Meme?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-stickers-to-whatsapp-the-ultimate-guide/"><u>New How to Add Stickers to WhatsApp-The Ultimate Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-generating-the-roll-safe-think-about-it-meme/"><u>Updated 2024 Approved Generating the Roll Safe-Think About It Meme</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-what-is-emoji/"><u>In 2024, What Is Emoji?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-best-solarmovie-alternatives-watch-movies-online/"><u>2024 Approved Best SolarMovie Alternatives-Watch Movies Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-websites-to-add-emojis-to-photos-online/"><u>Updated Best Websites to Add Emojis to Photos Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-funny-meme-on-macbook/"><u>New How to Make a Funny Meme on MacBook</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-10-most-popular-minion-memes-that-moms-are-crazy-about/"><u>In 2024, 10 Most Popular Minion Memes that Moms Are Crazy About</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-the-essential-guide-to-emoji-memoji-animoji-and-bitmoji/"><u>2024 Approved The Essential Guide to Emoji, Memoji, Animoji, and Bitmoji</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-edit-memoji-on-android-and-iphone/"><u>In 2024, How to Edit Memoji on Android and iPhone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-video-meme-with-4-best-meme-video-makers/"><u>New How to Make a Video Meme with 4 Best Meme Video Makers</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-add-emojisstickers-to-videos-on-pcmacmobileonline/"><u>How Add Emojis/Stickers to Videos on PC/Mac/Mobile/Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-top-10-best-free-manga-sites-to-read-online/"><u>Updated Top 10 Best Free Manga Sites to Read Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-add-emojis-to-videos-on-youtubefacebooksnapchat-2023-guide-for-2024/"><u>Updated Add Emojis to Videos on YouTube/Facebook/Snapchat 2023 Guide for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/8-best-meme-maker-app-to-create-memes-with-your-own-picture-for-2024/"><u>8 Best Meme Maker App to Create Memes with Your Own Picture for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-tech-vanguard-apoyser-vs-other-top-screen-capture-tools/"><u>[New] 2024 Approved  Tech Vanguard  Apoyser vs Other Top Screen Capture Tools</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-how-to-create-after-effects-gifs-for-2024/"><u>Updated How to Create After Effects Gifs for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-simplycapture-windows-screens-in-minutes/"><u>[Updated] In 2024, SimplyCapture - Windows Screens in Minutes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-honor-magic-5-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Honor Magic 5 Phones? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unlock-your-tech-potential-mastering-macs-screen-capturing-with-just-shortcuts-for-2024/"><u>[Updated] Unlock Your Tech Potential  Mastering Mac's Screen Capturing with Just Shortcuts for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-cutting-edge-top-8-free-online-video-tools-for-2024/"><u>[New] Cutting Edge  Top 8 Free Online Video Tools for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/in-2024-android-movie-making-101-selecting-the-perfect-app/"><u>In 2024, Android Movie Making 101 Selecting the Perfect App</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-poco-x5-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Poco X5 Device</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-a-complete-media-experience-mixing-music-and-video-in-premiere-pro/"><u>Crafting a Complete Media Experience  Mixing Music and Video in Premiere Pro</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Realme C55 | Dr.fone</u></a></li>
+</ul></div>
