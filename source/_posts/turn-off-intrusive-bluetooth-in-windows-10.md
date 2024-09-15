@@ -1,7 +1,7 @@
 ---
 title: Turn Off Intrusive Bluetooth in Windows 10
-date: 2024-09-09T00:10:42.847Z
-updated: 2024-09-10T00:10:42.847Z
+date: 2024-09-12T01:57:26.614Z
+updated: 2024-09-14T21:33:19.415Z
 tags:
   - win11
   - win10
@@ -13,24 +13,12 @@ excerpt: This Article Describes Turn Off Intrusive Bluetooth in Windows 10
 thumbnail: https://thmb.techidaily.com/75acee6ab640019b74d394195d334c99ef1bc00597a90331917637ac51654852.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Turn Off Intrusive Bluetooth in Windows 10
 
 Windows 10 users have been complaining that they are**unable to turn off**the Bluetooth connection even when they don’t want to use their Bluetooth devices, for instance, when they are in a neighborhood where there are so many Bluetooth devices detected. They cannot see the toggle switch (circled out in the screenshot) in Bluetooth device setting.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2016/11/manage-bluetooth-devices.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The reason why this is happening is that Microsoft seems to have an odd logic. It will recognize laptops with battery on is the mobile devices, thus with the Bluetooth device toggle available and easy to access. But if you are with a desktop, or sometimes, an all-in-one, chances are Windows 10 will not see your computer as a mobile device, thus it will not let you have access to the Bluetooth devices management panel. Luckily, this is not a difficult question to solve, not at all. Follow the options below to fix your problem fast and easily ![**Option 1: Disable Bluetooth device driver**](https://boody-eco-wear.pxf.io/qyo4oo) [**Option 2: Update Bluetooth device driver**](https://propmoneyinc.pxf.io/q4jzdy) [**Option 3: Modify Registry settings**](https://united.elfm.net/zqobdx)   **Option 1: Disable Bluetooth device driver** 1) Open**Device Manager** by pressing**Windows key**and**R**at the same time. Then type in**devmgmt.msc** and hit**Enter**.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2016/11/devmgmt-msc.png)
@@ -43,36 +31,12 @@ The reason why this is happening is that Microsoft seems to have an odd logic. I
 
 ![](https://images.drivereasy.com/wp-content/uploads/2016/11/show-hidden-devices.png)
 
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Please note that the name of your Bluetooth device could be different from mine, which is very natural and normal. If you have multiple Bluetooth devices, you might see other options here. The procedure is the same, just right click them and**Disable** them.   **Option 2: Update Bluetooth device driver** If the steps above don’t resolve your Bluetooth problem in Windows 10, it may be caused by a device driver.  You can automatically update all your device drivers to the latest correct version with **[Driver Easy](https://tools.techidaily.com/drivereasy/download/)**  .  Driver Easy will automatically recognize your system and find the correct drivers for it. You don’t need to know exactly what system your computer is running, you don’t need to risk downloading and installing the wrong driver, and you don’t need to worry about making a mistake when installing. You can update your drivers automatically with either the FREE or the Pro version of Driver Easy. But with the Pro version it takes just 2 clicks (and you get full support and a 30-day money back guarantee): 1) **[Download](https://tools.techidaily.com/drivereasy/download/)**  and install Driver Easy. 2) Run Driver Easy and click the **Scan Now**  button. Driver Easy will then scan your computer and detect any problem drivers.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2017/06/img_594b60655cf90.png)
 
 3) Click the **Update** button next to the flagged Bluetooth device to automatically download and install the correct version of that driver (you can do this with the FREE version). Or click **Update All** to automatically download and install the correct version of **_all_**  the drivers that are missing or out of date on your system (this requires the [**Pro version**](https://tools.techidaily.com/drivereasy/download/)  – you’ll be prompted to upgrade when you click Update All). ![](https://images.drivereasy.com/wp-content/uploads/2017/04/img_58e613efeb2c3.jpg)   **Option 3: Modify Registry settings** **Note**: In this option, we will be making some changes to the Registry. Before doing that, it is very important for you to [**backup**](https://tools.techidaily.com/drivereasy/download/) the registry first, just in case any unwanted error happens. 1) Type**regedit**in the search box and then choose**regedit Run command** from the list of choice.
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2016/11/regedit-run-command.png)
 
 When prompted for administrator permission, just click**Yes**to continue.
@@ -83,20 +47,8 @@ When prompted for administrator permission, just click**Yes**to continue.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2016/11/hkey_local_machinesoftwaremicrosoftwindowscurrentversionactioncenterquick-actionsallsystemsettings_device_bluetoothquickaction.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 3) On the right pane, locate and right click the file with the name **Type**and choose**Modify**. ![](https://images.drivereasy.com/wp-content/uploads/2016/11/modify-value.png) 4) Then change the**Value data**from 0 to**1**. Then hit**OK**to save and exit.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2016/11/value-data.png)
 
 5) Restart your computer after the change.
@@ -107,8 +59,6 @@ When prompted for administrator permission, just click**Yes**to continue.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -118,47 +68,23 @@ When prompted for administrator permission, just click**Yes**to continue.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-elevate-instagram-presence-with-professional-video-editing-skills/"><u>[New] 2024 Approved  Elevate Instagram Presence with Professional Video Editing Skills</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-streamlining-meetings-with-snap-camera-on-teams/"><u>[New] 2024 Approved  Streamlining Meetings with Snap Camera on Teams</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unlocking-the-secrets-of-instagrams-trending-reels/"><u>[New] 2024 Approved  Unlocking the Secrets of Instagram's Trending Reels</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-elevate-video-consumption-constructing-an-ideal-watch-later-list-on-youtube/"><u>[New] Elevate Video Consumption  Constructing an Ideal 'Watch Later' List on YouTube</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-exclusive-guide-to-instagrams-hidden-functionality-for-2024/"><u>[New] Exclusive Guide to Instagram's Hidden Functionality for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-best-choice-avi-player-with-multiplatform-support-for-2024/"><u>[Updated] Best Choice Avi Player with Multiplatform Support for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-navigating-frames-per-second-in-video-recording-the-3060-dilemma/"><u>[Updated] In 2024, Navigating Frames Per Second in Video Recording - The 30/60 Dilemma</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-visualcapture-pro-x-windows-enthusiasts-for-2024/"><u>[Updated] VisualCapture Pro X - Windows Enthusiasts for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-complete-walkthrough-powerdirector-24-edition/"><u>2024 Approved  Complete Walkthrough  PowerDirector '24 Edition</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-master-facebook-seo-essential-techniques-to-skyrocket-engagement/"><u>2024 Approved  Master Facebook SEO  Essential Techniques to Skyrocket Engagement</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-add-emojis-to-videos-on-youtubefacebooksnapchat-2023-guide/"><u>2024 Approved Add Emojis to Videos on YouTube/Facebook/Snapchat 2023 Guide</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-generating-the-roll-safe-think-about-it-meme/"><u>2024 Approved Generating the Roll Safe-Think About It Meme</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-comparative-look-at-samsung-photo-tools-for-2024/"><u>A Comparative Look at Samsung Photo Tools for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/advance-repair-for-bad-and-corrupt-video-files-of-honor-100-pro-by-stellar-video-repair-mobile-video-repair/"><u>Advance Repair for Bad and Corrupt Video Files of Honor 100 Pro</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/best-10-emoji-apps-to-emoji-yourself-make-an-emoji-of-yourself/"><u>Best 10 Emoji Apps to Emoji Yourself-Make an Emoji of Yourself</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/best-photo-slideshow-maker-how-to-make-a-photo-slideshow/"><u>Best Photo Slideshow Maker How to Make a Photo Slideshow</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-add-emojis-to-discord-for-2024/"><u>How to Add Emojis To Discord for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-record-your-memorable-honeymoon-video/"><u>How to Record Your Memorable Honeymoon Video</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-add-bitmoji-to-keyboard-complete-guide/"><u>In 2024, How to Add Bitmoji to Keyboard? Complete Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-nokia-g22-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Nokia G22 | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-securing-memories-a-comprehensive-guide-for-scanning-and-storing-vintage-photos/"><u>In 2024, Securing Memories  A Comprehensive Guide for Scanning and Storing Vintage Photos</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/jujutsu-kaisen-in-action-making-memorable-tiktok-videos-for-2024/"><u>Jujutsu Kaisen in Action  Making Memorable TikTok Videos for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>New 2024 Approved How to Burn Photos to DVD with Transitions and Music</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-top-10-best-free-manga-sites-to-read-online/"><u>New 2024 Approved Top 10 Best Free Manga Sites to Read Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-best-10-emoji-apps-to-emoji-yourself-make-an-emoji-of-yourself-for-2024/"><u>New Best 10 Emoji Apps to Emoji Yourself-Make an Emoji of Yourself for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-add-emojisstickers-to-videos-on-pcmacmobileonline/"><u>New How Add Emojis/Stickers to Videos on PC/Mac/Mobile/Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself-for-2024/"><u>New How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-funny-meme-on-macbook/"><u>New In 2024, How to Make a Funny Meme on MacBook</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-imovie-photo-slideshow-with-music-imovie-tutorial/"><u>New In 2024, How to Make a iMovie Photo Slideshow with Music? IMovie Tutorial</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-record-and-edit-an-animoji-or-memoji-karaoke-music-video-for-2024/"><u>New Record and Edit an Animoji or Memoji Karaoke Music Video for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ling-the-top-six-where-to-grab-your-snack-videos-for-2024/"><u>Revealing the Top Six  Where to Grab Your Snack Videos for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/secrets-of-selecting-the-best-nba-live-feed/"><u>Secrets of Selecting the Best NBA Live Feed</u></a></li>
-<li><a href="https://some-skills.techidaily.com/summers-best-10-nostalgic-films-for-the-whole-family-for-2024/"><u>Summer's Best 10 Nostalgic Films for the Whole Family for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/the-essential-guide-to-emoji-memoji-animoji-and-bitmoji-for-2024/"><u>The Essential Guide to Emoji, Memoji, Animoji, and Bitmoji for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-emoji-removers-to-remove-emojis-from-pictures-onlinepcmobile/"><u>Updated 2024 Approved Best Emoji Removers to Remove Emojis From Pictures Online/PC/Mobile</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-use-emojis-on-windows/"><u>Updated 2024 Approved How to Use Emojis on Windows</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-best-10-emoji-apps-to-emoji-yourself-make-an-emoji-of-yourself/"><u>Updated Best 10 Emoji Apps to Emoji Yourself-Make an Emoji of Yourself</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-flv-photo-slideshow-for-2024/"><u>Updated How to Make a FLV Photo Slideshow for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-imovie-photo-slideshow-with-music-in-2024/"><u>Updated How to Make a iMovie Photo Slideshow with Music, In 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-memes-with-white-background-step-by-step/"><u>Updated How to Make Memes with White Background Step by Step</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-video-slideshow-with-your-travel-photos-for-2024/"><u>Updated How to Make Video Slideshow with Your Travel Photos for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-making-triggered-memes-with-filmora-video-editor-for-2024/"><u>Updated Making Triggered Memes with Filmora Video Editor for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-top-12-best-meme-makers-online-for-free-for-2024/"><u>Updated Top 12 Best Meme Makers Online for FREE for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-artistic-journey-animating-scenes-with-windows-movie-maker-for-2024/"><u>[New] The Artistic Journey Animating Scenes with Windows Movie Maker for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-toonhub-pro-analysis-2024-report/"><u>[New] ToonHub Pro Analysis 2024 Report</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-savvy-sponsorship-strategies-for-small-scale-sites/"><u>2024 Approved Savvy Sponsorship Strategies for Small-Scale Sites</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-triple-points-tracker-the-effective-pathway-to-analyzing-youtube-profitability/"><u>2024 Approved Triple Points Tracker The Effective Pathway to Analyzing YouTube Profitability</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/essential-downloads-curated-list-of-the-finest-8-apps-on-google-play-pass/"><u>Essential Downloads: Curated List of the Finest 8 Apps on Google Play Pass</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-oppo-reno-8t-5g-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Oppo Reno 8T 5G FRP Locks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-live-stream-to-facebook-from-dji-drone-for-2024/"><u>How to Live Stream to Facebook From DJI Drone for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-itel-p40plus-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Itel P40+ FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-depth-analysis-of-chargetechs-powerful-27000mah-portable-battery-pack/"><u>In-Depth Analysis of ChargeTech's Powerful 27000mAh Portable Battery Pack</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/remote-control-adventure-reviewing-the-powerhouse-that-is-the-ford-galaxy-f-15truck/"><u>Remote Control Adventure: Reviewing the Powerhouse That Is the Ford Galaxy F-15ˈtruck</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/the-best-bang-for-your-buck-exploring-performance-and-value-in-the-tp-archiever-a6-ac1200-router/"><u>The Best Bang for Your Buck: Exploring Performance and Value in the TP-Archiever A6 AC1200 Router</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
