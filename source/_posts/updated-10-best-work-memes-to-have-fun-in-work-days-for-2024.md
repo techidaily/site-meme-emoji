@@ -1,7 +1,7 @@
 ---
 title: Updated 10 Best Work Memes to Have Fun in Work Days for 2024
-date: 2024-09-07T19:38:57.921Z
-updated: 2024-09-14T19:53:43.602Z
+date: 2024-09-12T17:25:52.971Z
+updated: 2024-09-20T04:33:54.927Z
 tags: 
   - ai
   - animation videos
@@ -43,12 +43,89 @@ thumbnail: https://thmb.techidaily.com/51dee520b6548ad713de001f9d872ff359ce7157f
 
 ![Me five minutes after getting to work](https://images.wondershare.com/filmora/article-images/five-minutes-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+### 3\. When you are about to leave work
+
+ Work memes like this are so relatable. All day the boss didn’t realize something important and the moment you are about to step out, he stops you and probably assigns a work that will take ages to complete.
+
+![When you are about to leave work](https://images.wondershare.com/filmora/article-images/leave-work-meme.JPG)
+
+### 4\. When you have been telling management
+
+ This meme describes, you giving a damn to whatever problem is happening at work. Because even after repeated reminders to fix the issue, nobody paid attention. So, now is your turn to just chillax!
+
+![When you have been telling management](https://images.wondershare.com/filmora/article-images/telling-management-meme.JPG)
+
+### 5\. It’s Wednesday
+
+ Work memes like this are sarcastic. When your boss asks that you are late for work third time in the week. Your obvious response is mentally replying is it Wednesday?
+
+![It’s Wednesday](https://images.wondershare.com/filmora/article-images/wednesday-meme.jpg)
+
+### 6\. Dress for the job you want
+
+ When you don’t get enough sleep, you just crave to crash on your bed. So this funny meme depicts, to get your dream job wear a dress with fixed pillows and quilt and get ready to start working, err! Sleeping.
+
+![Dress for the job you want](https://images.wondershare.com/filmora/article-images/dress-for-the-job-you-want-meme.JPG)
+
+### 7\. When you just got paid
+
+ Pay day is happiness and shock! After getting your salary has been credited text, next you receive the upcoming bills, rents etc. so, it’s not you who actually got paid, but your bills!
+
+![When you just got paid](https://images.wondershare.com/filmora/article-images/got-paid-meme.JPG)
+
+### 8\. I don’t always tolerate stupid people
+
+ This work meme is epic. People usually get annoyed by people and revolt, but at the work place they need to tolerate the undesired behavior and bossy-ness.
+
+![I don’t always tolerate stupid people](https://images.wondershare.com/filmora/article-images/stupid-people-meme.JPG)
+
+### 9\. But you have to stop yourself
+
+ There are moments at work, you are really tempted to blurt out something, but you keep quiet, to avoid the repercussions. The dog’s expression in the picture is worth a laugh.
+
+![But you have to stop yourself](https://images.wondershare.com/filmora/article-images/stop-yourself-meme.JPG)
+
+### 10\. I am sending a follow up email
+
+ When you keep on reminding people to acknowledge your work email, but they don’t. You send follow up email to tell them, that your job is done.
+
+![I am sending a follow up email](https://images.wondershare.com/filmora/article-images/send-email-meme.JPG)
+
+## Conclusion
+
+ If you want to make hilarious work memes, then don’t hesitate to adopt [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/). It is totally free without any watermark on the meme. You can create image, GIF and video meme using this program. Moreover, you can include videos in your meme using this work meme maker. You have the customized output format feature that allows you to get a video turned into GIF. You can add text, change fonts and move the text anywhere around the meme.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Sometimes on working days, you feel drained out of ideas, or stressed to have a new idea altogether. Maybe you feel so tired to work on something, because work is not always interesting. When the monotony of the day gets into you, why not explore some work memes and refresh the mood? If you are wondering where to get such awesome, mood elevating work memes we have got you covered.
+
+ In this article, we have compiled a list of 10 [work memes](https://www.someecards.com/memes/work/) that will set your work mode on.
+
+## 10 best work memes
+
+ Here are the 10 best work memes to help you get through the working week and cheer you up to get going.
+
+### 1\. When you think you been working for 4 hours
+
+ The look of surprise on the boy’s face. Lol! That is exactly how people feel, when they are stressed at work and think it’s been forever they are at work, but actually it’s only a couple of minutes.
+
+![When you think you been working for 4 hours](https://images.wondershare.com/filmora/article-images/working-4-hours-meme.JPG)
+
+### 2\. Me five minutes after getting to work
+
+ This work meme literally made us laugh. Every minute seems longer at work and it’s funny that the meme says a cupcake is badly needed to lift the work mood.
+
+![Me five minutes after getting to work](https://images.wondershare.com/filmora/article-images/five-minutes-meme.JPG)
 
 ### 3\. When you are about to leave work
 
@@ -164,13 +241,6 @@ Follow @Ollie Mattison
 
 ![When you just got paid](https://images.wondershare.com/filmora/article-images/got-paid-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. I don’t always tolerate stupid people
 
  This work meme is epic. People usually get annoyed by people and revolt, but at the work place they need to tolerate the undesired behavior and bossy-ness.
@@ -225,96 +295,12 @@ Follow @Ollie Mattison
 
 ![Me five minutes after getting to work](https://images.wondershare.com/filmora/article-images/five-minutes-meme.JPG)
 
-### 3\. When you are about to leave work
-
- Work memes like this are so relatable. All day the boss didn’t realize something important and the moment you are about to step out, he stops you and probably assigns a work that will take ages to complete.
-
-![When you are about to leave work](https://images.wondershare.com/filmora/article-images/leave-work-meme.JPG)
-
-### 4\. When you have been telling management
-
- This meme describes, you giving a damn to whatever problem is happening at work. Because even after repeated reminders to fix the issue, nobody paid attention. So, now is your turn to just chillax!
-
-![When you have been telling management](https://images.wondershare.com/filmora/article-images/telling-management-meme.JPG)
-
-### 5\. It’s Wednesday
-
- Work memes like this are sarcastic. When your boss asks that you are late for work third time in the week. Your obvious response is mentally replying is it Wednesday?
-
-![It’s Wednesday](https://images.wondershare.com/filmora/article-images/wednesday-meme.jpg)
-
-### 6\. Dress for the job you want
-
- When you don’t get enough sleep, you just crave to crash on your bed. So this funny meme depicts, to get your dream job wear a dress with fixed pillows and quilt and get ready to start working, err! Sleeping.
-
-![Dress for the job you want](https://images.wondershare.com/filmora/article-images/dress-for-the-job-you-want-meme.JPG)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-### 7\. When you just got paid
-
- Pay day is happiness and shock! After getting your salary has been credited text, next you receive the upcoming bills, rents etc. so, it’s not you who actually got paid, but your bills!
-
-![When you just got paid](https://images.wondershare.com/filmora/article-images/got-paid-meme.JPG)
-
-### 8\. I don’t always tolerate stupid people
-
- This work meme is epic. People usually get annoyed by people and revolt, but at the work place they need to tolerate the undesired behavior and bossy-ness.
-
-![I don’t always tolerate stupid people](https://images.wondershare.com/filmora/article-images/stupid-people-meme.JPG)
-
-### 9\. But you have to stop yourself
-
- There are moments at work, you are really tempted to blurt out something, but you keep quiet, to avoid the repercussions. The dog’s expression in the picture is worth a laugh.
-
-![But you have to stop yourself](https://images.wondershare.com/filmora/article-images/stop-yourself-meme.JPG)
-
-### 10\. I am sending a follow up email
-
- When you keep on reminding people to acknowledge your work email, but they don’t. You send follow up email to tell them, that your job is done.
-
-![I am sending a follow up email](https://images.wondershare.com/filmora/article-images/send-email-meme.JPG)
-
-## Conclusion
-
- If you want to make hilarious work memes, then don’t hesitate to adopt [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/). It is totally free without any watermark on the meme. You can create image, GIF and video meme using this program. Moreover, you can include videos in your meme using this work meme maker. You have the customized output format feature that allows you to get a video turned into GIF. You can add text, change fonts and move the text anywhere around the meme.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Sometimes on working days, you feel drained out of ideas, or stressed to have a new idea altogether. Maybe you feel so tired to work on something, because work is not always interesting. When the monotony of the day gets into you, why not explore some work memes and refresh the mood? If you are wondering where to get such awesome, mood elevating work memes we have got you covered.
-
- In this article, we have compiled a list of 10 [work memes](https://www.someecards.com/memes/work/) that will set your work mode on.
-
-## 10 best work memes
-
- Here are the 10 best work memes to help you get through the working week and cheer you up to get going.
-
-### 1\. When you think you been working for 4 hours
-
- The look of surprise on the boy’s face. Lol! That is exactly how people feel, when they are stressed at work and think it’s been forever they are at work, but actually it’s only a couple of minutes.
-
-![When you think you been working for 4 hours](https://images.wondershare.com/filmora/article-images/working-4-hours-meme.JPG)
-
-### 2\. Me five minutes after getting to work
-
- This work meme literally made us laugh. Every minute seems longer at work and it’s funny that the meme says a cupcake is badly needed to lift the work mood.
-
-![Me five minutes after getting to work](https://images.wondershare.com/filmora/article-images/five-minutes-meme.JPG)
 
 ### 3\. When you are about to leave work
 
@@ -333,13 +319,6 @@ Follow @Ollie Mattison
  Work memes like this are sarcastic. When your boss asks that you are late for work third time in the week. Your obvious response is mentally replying is it Wednesday?
 
 ![It’s Wednesday](https://images.wondershare.com/filmora/article-images/wednesday-meme.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Dress for the job you want
 
@@ -442,13 +421,6 @@ Price: $60/mo or $999 one-time fee
 Platforms: Mac, Windows
 
 ![toon-boom-storyboard-pro-poster](https://images.wondershare.com/filmora/article-images/toon-boom-storyboard-pro-poster.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Toon Boom Storyboard Pro is the complete opposite of free. A standout among storyboarding programs, it's also one of the most expensive. However, in most studios, boarding and animating is done using Toon Boom, so you may want to learn about this if you'd like to break into the industry. As a result, the monthly fee is a lot lower than the initial cost, allowing most people to take advantage of the service.
 
@@ -555,6 +527,13 @@ Price: $9.99/mo
 Platforms: Mac and Windows.
 
 ![adobe-photoshop-poster](https://images.wondershare.com/filmora/article-images/adobe-photoshop-poster.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 I think it will stay around for a long time. It's been around for 20+ years. Yet, doesn't it seem funny how Photoshop can be used for so much more than photo editing? In addition to storyboarding, we see it used for digital painting, pixel art, etc. The digital drawing capability of PS is the same as that of other programs. There are now more brushes available for the PS environment, so there's even more support.
 
@@ -1849,6 +1828,13 @@ Follow the steps below for either platform:
 
 Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
 
 How cool is it that you can add custom emoji to your smartphone as well? Whether you have an iPhone or an Android, you can use the same menu as Windows and Mac to upload emoji.
@@ -2127,6 +2113,13 @@ Follow the steps below for either platform:
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
 ![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
@@ -2481,6 +2474,13 @@ Follow @Ollie Mattison
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ---
 
 ## The Things You Need to Make a Triggered Meme
@@ -2565,17 +2565,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-total-mobility-assessment-2023/"><u>2024 Approved Total Mobility Assessment 2023</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-infinix-zero-5g-2023-turbo-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Infinix Zero 5G 2023 Turbo? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/essential-downloads-curated-list-of-the-finest-8-apps-on-google-play-pass/"><u>Essential Downloads: Curated List of the Finest 8 Apps on Google Play Pass</u></a></li>
-<li><a href="https://common-error.techidaily.com/handled-problem-unsuccessful-writing-attempt-at-0xpointed-out-memory-spot/"><u>Handled Problem: Unsuccessful Writing Attempt at 0XPointed-Out Memory Spot</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-docx-files-free-by-ldigisigner-sign-a-word-sign-a-word/"><u>How do i sign a .docx files free</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Samsung Galaxy A05s? | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-an-introduction-to-effective-image-previews/"><u>In 2024, An Introduction to Effective Image Previews</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-depth-analysis-of-chargetechs-powerful-27000mah-portable-battery-pack/"><u>In-Depth Analysis of ChargeTech's Powerful 27000mAh Portable Battery Pack</u></a></li>
-<li><a href="https://win11.techidaily.com/launching-quake-mode-using-windows-terminal/"><u>Launching Quake Mode: Using Windows Terminal</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-windows-8-moviemaker-step-by-step-guide/"><u>Mastering Windows 8 Moviemaker Step-by-Step Guide</u></a></li>
-<li><a href="https://windows11.techidaily.com/redoing-power-schemes-with-lost-settings-win-11/"><u>Redoing Power Schemes with Lost Settings (Win 11)</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/remote-control-adventure-reviewing-the-powerhouse-that-is-the-ford-galaxy-f-15truck/"><u>Remote Control Adventure: Reviewing the Powerhouse That Is the Ford Galaxy F-15ˈtruck</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-youtube-marketing-key-methods-for-attracting-viewers/"><u>[New] In 2024, YouTube Marketing Key Methods for Attracting Viewers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-sponsoring-made-simple-boosting-your-channel-budget-efficiently/"><u>[Updated] Sponsoring Made Simple Boosting Your Channel Budget Efficiently</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-fives-finest-tools-for-rapid-video-frame-capturing/"><u>2024 Approved Five's Finest Tools for Rapid Video Frame Capturing</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-crafting-youtube-content-in-sony-vegas/"><u>2024 Approved Step-by-Step Crafting YouTube Content in Sony Vegas</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/debunking-the-myth-how-google-chrome-preserves-your-browser-cookies/"><u>Debunking the Myth: How Google Chrome Preserves Your Browser Cookies</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/explore-the-most-economical-video-conference-software-best-10-recommendations-for-business-and-education-for-2024/"><u>Explore the Most Economical Video Conference Software Best 10 Recommendations for Business & Education for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/fixing-non-working-burned-discs-expert-tips-and-troubleshooting-steps/"><u>Fixing Non-Working Burned Discs: Expert Tips and Troubleshooting Steps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-novice-to-pro-how-to-optimize-your-onestream-livestream/"><u>In 2024, From Novice to Pro How to Optimize Your OneStream Livestream</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-top-12-best-meme-makers-online-for-free/"><u>In 2024, Top 12 Best Meme Makers Online for FREE</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-flv-photo-slideshow/"><u>New How to Make a FLV Photo Slideshow</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-use-emojis-on-windows-10-and-windows-11/"><u>Updated 2024 Approved How to Use Emojis on Windows 10 and Windows 11?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-8-best-meme-maker-app-to-create-memes-with-your-own-picture-for-2024/"><u>Updated 8 Best Meme Maker App to Create Memes with Your Own Picture for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-emoji-removers-to-remove-emojis-from-pictures/"><u>Updated In 2024, Best Emoji Removers to Remove Emojis From Pictures</u></a></li>
 </ul></div>
 

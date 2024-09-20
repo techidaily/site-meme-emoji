@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved How to Make Your Own Emoji in 2 Ways Step-By Step Guide
-date: 2024-09-08T23:43:16.720Z
-updated: 2024-09-15T01:49:08.786Z
+date: 2024-09-18T19:00:02.222Z
+updated: 2024-09-19T17:46:38.700Z
 tags: 
   - ai
   - animation videos
@@ -297,19 +297,6 @@ Now, as promised, I will show you exactly how it's done.
 
 ![create emoji text](https://images.wondershare.com/filmora/article-images/4-create-emoji-text.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 7\. After customization, press Save in the top right corner. You can either directly save the emoji to your pc or crop to size and then save.
 
 ![save emoji](https://images.wondershare.com/filmora/article-images/5-set-emoji-text.jpg)
@@ -507,6 +494,14 @@ Follow @Shanoon Cox
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10 Popular Cartoon Characters That Should Top Your List
 
@@ -1124,13 +1119,6 @@ Follow @Ollie Mattison
 
 ![I am otterly in love with you](https://images.wondershare.com/filmora/article-images/otterly-love-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 21\. I request your assistance
 
  This cute meme shows a cat wearing a hanger around its neck and asking for assistance from humans.
@@ -1186,6 +1174,13 @@ Follow @Ollie Mattison
  When you are angry with your friend and receive a message with this cute black and white fur dog saying Good Morning with big eyes, it can melt your heart instantly. Try sending it to someone; it can surely bring a smile to your loved one’s faces.
 
 ![I said good morning](https://images.wondershare.com/filmora/article-images/said-good-morning-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Cheer-Up
 
@@ -1282,13 +1277,6 @@ Follow @Ollie Mattison
  Here you can see a rat looking at you with a sad face and praying Cheesus. Seems it is truly cheesy and delicious to follow.
 
 ![I Pray to Cheesus](https://images.wondershare.com/filmora/article-images/pray-to-cheesus.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 18\. I have no idea
 
@@ -1388,6 +1376,13 @@ Follow @Ollie Mattison
 
 ![I Just Want You](https://images.wondershare.com/filmora/article-images/just-want-you-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. You Can’t See Me
 
  This is another cute meme that shows a standing dog amidst thousands and thousands of purple flowers. The caption says, “you cannot see me. I’m a flower” as the dog is lost amongst so many flowers and seems to look one of them.
@@ -1441,6 +1436,13 @@ Follow @Ollie Mattison
  This cute meme shows a dog sitting beside the swimming pool and turning back to say Happy Friday.
 
 ![Happy Friday](https://images.wondershare.com/filmora/article-images/happy-friday-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 15\. Ready for Winter
 
@@ -2095,19 +2097,6 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 
 ![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
 
 ![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
@@ -2383,13 +2372,6 @@ Follow @Shanoon Cox
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 1 Import Photos & Video and Music for FLV Slideshow
 
  Install and launch the slideshow maker, go to **Organize** tab and import your photos, videos and music files. Transitions between adjacent slides will be used. But you can change them by following step 2.
@@ -2399,6 +2381,13 @@ Follow @Shanoon Cox
  This [slideshow maker](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) includes more than 100 transition effects for slides switch. Before applying, double-click transition thumbnail to preview in player on the right. You could also randomize transitions or apply one transition to all slides in FLV slideshow.
 
 ![transition effects](https://images.wondershare.com/topic/photo-editing/transition-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3 Save Photo Slideshow to FLV Video
 
@@ -2848,20 +2837,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-professional-video-editing-does-m1-macbook-air-hold-up-for-2024/"><u>[New] Professional Video Editing Does M1 MacBook Air Hold Up for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-top-picks-for-efficient-youtube-video-url-condensers/"><u>[Updated] In 2024, Top Picks for Efficient YouTube Video URL Condensers</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-optimal-techniques-for-recording-your-youtube-events-for-2024/"><u>[Updated] Optimal Techniques for Recording Your YouTube Events for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-transformative-srt-to-txt-guide-for-time-saving/"><u>[Updated] Transformative SRT to TXT Guide for Time-Saving</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-add-emojis-to-discord/"><u>2024 Approved How to Add Emojis To Discord</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/1720670531729-best-ways-to-fix-all-video-streaming-issues/"><u>Best Ways to Fix All Video Streaming Issues</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/generating-the-nut-button-meme-for-2024/"><u>Generating the Nut Button Meme for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-nokia-c12-plus-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Nokia C12 Plus FRP In 3 Different Ways</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-fix-the-black-screen-problem-in-hitman-3-on-your-computer/"><u>How to Fix the Black Screen Problem in Hitman 3 on Your Computer</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-flv-photo-slideshow-with-music/"><u>In 2024, How to Make a FLV Photo Slideshow with Music</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-wonderful-video-slideshow-with-your-travel-photos/"><u>New In 2024, How to Make a Wonderful Video Slideshow with Your Travel Photos</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-the-essential-guide-to-emoji-memoji-animoji-and-bitmoji/"><u>New The Essential Guide to Emoji, Memoji, Animoji, and Bitmoji</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/superior-real-time-media-streamers/"><u>Superior Real-Time Media Streamers</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-evolution-of-nlp-comparing-googles-bert-to-microsofts-gpt-models/"><u>The Evolution of NLP: Comparing Google's BERT to Microsoft's GPT Models</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-slideshow-with-music/"><u>Updated How to Make a Slideshow with Music</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-tales-for-youtube-triumph-top-3-strategies/"><u>[New] 2024 Approved Best Tales for YouTube Triumph Top 3 Strategies</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-brisk-technique-converting-photos-to-high-impact-youtube-desktop-thumbnails/"><u>[Updated] In 2024, Brisk Technique Converting Photos to High-Impact YouTube Desktop Thumbnails</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unveiling-the-top-10-historic-content-creators-on-youtube-for-2024/"><u>[Updated] Unveiling the Top 10 Historic Content Creators on YouTube for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/free-10-websites-to-watch-cartoon-online-in-hd-for-2024/"><u>FREE 10 Websites to Watch Cartoon Online in HD for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/free-online-converter-turn-wmv-files-into-3gp-format-using-easystep/"><u>Free Online Converter: Turn WMV Files Into 3GP Format Using EasyStep</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-best-emoji-removers-to-remove-emojis-from-pictures-onlinepcmobile-for-2024/"><u>New Best Emoji Removers to Remove Emojis From Pictures Online/PC/Mobile for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723007839860-resident-evil-village-mastering-steady-gameplay-on-your-gaming-pc-fps-stabilized/"><u>Resident Evil Village - Mastering Steady Gameplay on Your Gaming PC, FPS Stabilized</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/transform-your-video-chats-using-zooms-filters-for-2024/"><u>Transform Your Video Chats Using Zoom's Filters for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-edit-memoji-on-android-and-iphone-for-2024/"><u>Updated How to Edit Memoji on Android and iPhone for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-add-and-custom-slack-emoji-wondershare-filmora/"><u>Updated In 2024, How to Add and Custom Slack Emoji-Wondershare Filmora</u></a></li>
 </ul></div>
 

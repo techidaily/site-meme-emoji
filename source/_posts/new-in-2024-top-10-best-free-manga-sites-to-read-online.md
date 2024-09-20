@@ -1,7 +1,7 @@
 ---
 title: New In 2024, Top 10 Best Free Manga Sites to Read Online
-date: 2024-09-12T02:00:04.443Z
-updated: 2024-09-14T19:45:29.174Z
+date: 2024-09-14T02:34:46.427Z
+updated: 2024-09-20T06:41:55.657Z
 tags: 
   - ai
   - animation videos
@@ -909,6 +909,13 @@ The media files you import into your projects in Filmora are located in the soft
 
 ![Add Emoji to Video in Filmora9](https://images.wondershare.com/filmora/article-images/elements-emoji.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Elements Tab contains different categories such as **Shapes, Badges or Pets.** Click on the **Emoji category** to start browsing through Filmora’s collection of emojis and simply drag and drop the emoji you like above the video clip to which you’d like to add it. You can then adjust its duration, position on the screen or size. Optionally, you can double-click on the emoji to access the Motion tab that enables you to choose between different motion effects.
 
 ![Add Emoji to Video in Filmora9](https://images.wondershare.com/filmora/article-images/emoji-animated-effects.jpg)
@@ -1138,102 +1145,12 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 
 ![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
 
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: What’s New in Emojis in Windows 11
 
@@ -1260,161 +1177,258 @@ If the built-in emoji library doesn’t contain your favorite expressions, you c
 * Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
 
 ![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
 
 ## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
 
@@ -1606,19 +1620,6 @@ Follow @Shanoon Cox
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 1 Import Photos & Video and Music for FLV Slideshow
 
  Install and launch the slideshow maker, go to **Organize** tab and import your photos, videos and music files. Transitions between adjacent slides will be used. But you can change them by following step 2.
@@ -1690,6 +1691,13 @@ Follow @Shanoon Cox
  Select Flash Video format as the output and make advanced settings by clicking Settings button. Finally, click Burn and wail a while, you get your FLV video to sharing on YouTube, Facebook, MySpace, Mobile Phone. Alternatively, play FLV video on computer via stand-alone FLV player.
 
 ![create flv slideshow](https://images.wondershare.com/topic/photo-editing/create-flv-slideshow.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### FLV Slideshow Tips
 
@@ -2284,13 +2292,6 @@ The next good online tool that you can try is Image Online.Co. It's a pretty bas
 
 ![canva online add emoji to photo](https://images.wondershare.com/filmora/article-images/canva-online-add-emoji-to-photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Canva is arguably one of the best ways to make your photos look better. This tool has tons of features, and the best part is that you can customize a picture with an emoji using one of their templates. It has 250+ emojis and lets you add your customized emoji. And to start using Canva, you will have to sign up.
 
 **Key Features**
@@ -2334,19 +2335,6 @@ PiZap is a photo editing tool that lets you add emojis too. To start using, you 
 **Step 3:** From the left-side toolbar, click on the Graphics option. Scroll a bit, and you will see the emoji section.
 
 **Step 4:** Click on any of the emojis you like to add to the photo. You can adjust the emojis as you want.
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### #5: Pixelied
 
@@ -2829,398 +2817,398 @@ In this Apple-exclusive editor, the steps are pretty straightforward. But to hel
 
 ![Choose Memoji Hairstyle](https://images.wondershare.com/filmora/article-images/choose-memoji-hairstyle.jpg)
 
+* In the Browstab, select your brow style. Go through all the tabs to choose the perfect headwear, glasses, or even AirPods to create the perfect custom memoji
+
+![Select Memoji Brow Style](https://images.wondershare.com/filmora/article-images/select-memoji-brow-style.jpg)
+
+#### Method 2: Edit Memoji Using the Avatoon App
+
+Avatoon is a great memoji maker app that lets you edit memoji from scratch and has an extensive collection of features you can choose from to make the cartoon look exactly like you. You can even auto-create a memoji by taking a selfie, and Avatoon will do the rest. In manual creation, you can select every detail from eyelashes, tattoos, headwear, and even jewelry.
+
+Let me show the easy ways how to edit memoji using Avatoons powerful tools
+
+* Firstly, download launch Avatoon.
+
+![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
+
+* Choose Manual Creationto create a personalized custom emoji
+
+![Create Custom Emoji](https://images.wondershare.com/filmora/article-images/create-custom-emoji.jpg)
+
+* Now you can choose your face shape, hairstyle, eyes, brows, etc. Add headwear or glasses that depict your style
+
+![Choose Hairstyle And Brows](https://images.wondershare.com/filmora/article-images/choose-hairstyle-and-brows.jpg)
+
+* Now that you have created a basic cartoon self, you can add much finer details by using coins.
+
+![Add Memoji Details](https://images.wondershare.com/filmora/article-images/add-memoji-details.jpg)
+
+* Click on the Photobooth at the bottom to choose a cool background for your memoji.
+
+![Find Photo Booth](https://images.wondershare.com/filmora/article-images/find-photo-booth.jpg)
+
+* Once you have decorated the memoji, tap on Poses, choose the mood you like and instantly share via different sharing platforms
+
+![Decorate Memoji](https://images.wondershare.com/filmora/article-images/decorate-memoji.jpg)
+
+## Part 2: How to Edit Memoji on Android
+
+MojiPop is an amazing free app to make a custom emoji. It is packed with stickers and animated caricatures for every mood or emotion. Just take a selfie and start communicating using your cartoon face. You can even edit your memojis to suit your style. Then send the memoji to your friends to surprise them with a hilarious custom memoji
+
+If you're wondering how to edit memoji, here's a short guide for you:
+
+* Launch MojiPop and click on Create Avatar. Either take a selfie or choose an existing image from your gallery. Specify the age group.
+
+![Click Create Avatar](https://images.wondershare.com/filmora/article-images/click-create-avatar.jpg)
+
+* MojiPop instantly displays avatar styles, choose one that best fits you and click Next
+
+![Display Avatar Style](https://images.wondershare.com/filmora/article-images/display-avatar-style.jpg)
+
+* Select different features in tabs for hair, eyes, headwear to make the custom memoji look just like you. Click Confirmto save it.
+
+![Make Custom Memoji](https://images.wondershare.com/filmora/article-images/make-custom-memoji.jpg)
+
+* In the Discovertab, choose a gif template to wish someone or express your feelings.
+
+![Choose Gif Template](https://images.wondershare.com/filmora/article-images/choose-gif-template.jpg)
+
+* Click on the Share icon and choose the platform for instant sharing
+
+![Share Memoji](https://images.wondershare.com/filmora/article-images/share-memoji.jpg)
+
+### Ready to Edit Memoji by Yourself?
+
+Are you ready to make your conversations more interesting and engaging using custom memojis? Because who doesn't love a mini version of themselves displaying how happy or angry they feel? What better to communicate without saying a word?
+
+And we hope that our short tutorial on how to edit memoji helps you create different versions of yourself to express yourself better.
+
+Now that you know how to edit memoji to your liking, what are you waiting for? Go on to edit and create a hilarious avatar of yourself and enjoy texting
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+A memoji is simply the cartoon avatar of you. You can easily learn how to edit memoji and make a custom memoji that is the exact mirror image of you. From eye color to freckles, you can add every feature that makes the memoji look like a mini cartoon version of you
+
+Since a custom memoji is a more personalized way to express our emotions, it can be the perfect way to add a hint of humor to conversations. Everyone loves a unique sticker, especially if it looks like them. So, you can take help from our guide on how to change memoji and take your texting experience to the next level.
+
+* [Bonus Tip-Memoji VS Emoji](#part1)
+* [Part 1: How to Edit Memoji on iPhone](#part2)
+* [Part 2: How to Edit Memoji on Android](#part3)
+
+## Bonus Tip—Memoji VS Emoji
+
+Now you must be wondering what the difference between a memoji and emoji is. Well, there is the first major difference, which is that a memoji is the cartoon avatar of you, whereas an emoji is just around yellow-faced cartoon with various expressions
+
+1.The memoji is solely based on a human face, but an emoji can be any object, place, or even a symbol. While you can mostly craft a custom emoji personalized to your style and likings, emojis are limited. Custom memoji can also be dressed and decorated to serve as the perfect mini-version of you, complete from earrings to freckles.
+
+2.Moreover, almost everyone has the same set of emojis. But since memojis are created to look like a person, everyone has a very unique pack of memojis looking like the cartoon version of them.
+
+Despite the differences, both memojis and emojis carry equal significance and can spice up your texting experience in hilarious ways.
+
+## Part 1: How to Edit Memoji on iPhone
+
+Majority of you might be iPhone users and so it's only fair to show you some easy ways on how to edit memoji on your iPhone. There are two ways to create a custom memoji and then edit it. Lets dive in!
+
+#### Method 1: Edit Memoji in the Built-in Editor
+
+The introduction of iOS13 has made it possible for the majority of iPhone users to create or edit their memojis as they like. But in order to use this built-in editor to create a custom memoji, make sure that your device is updated to iOS13.
+
+In this Apple-exclusive editor, the steps are pretty straightforward. But to help you further, I will walk you along with the steps in detail
+
+* Go to the iMessages and open a new message tab or a previous conversation and tap the Appstoreicon to reveal the app bar. Hit the Animoji icon represented by the three heads
+
+![Hit Memoji Icon](https://images.wondershare.com/filmora/article-images/hit-memoji-icon.jpg)
+
+* Choose the memoji you wish to edit and click the three dots in the bottom left corner. Click Editon the pop-up dialogue box. You can also tap on Duplicate to copy the same memoji.
+
+![Copy Same Memoji](https://images.wondershare.com/filmora/article-images/copy-same-memoji.jpg)
+
+* Now you will be given various options to craft a custom memoji that looks exactly like you, right down to every detail. Click on the Skintab to change the skin color, add freckles or a beauty spot
+
+![Edit Memoji](https://images.wondershare.com/filmora/article-images/edit-memoji.jpg)
+
+* Choose the hairstyleand hair color that suits you the best
+
+![Choose Memoji Hairstyle](https://images.wondershare.com/filmora/article-images/choose-memoji-hairstyle.jpg)
+
+* In the Browstab, select your brow style. Go through all the tabs to choose the perfect headwear, glasses, or even AirPods to create the perfect custom memoji
+
+![Select Memoji Brow Style](https://images.wondershare.com/filmora/article-images/select-memoji-brow-style.jpg)
+
+#### Method 2: Edit Memoji Using the Avatoon App
+
+Avatoon is a great memoji maker app that lets you edit memoji from scratch and has an extensive collection of features you can choose from to make the cartoon look exactly like you. You can even auto-create a memoji by taking a selfie, and Avatoon will do the rest. In manual creation, you can select every detail from eyelashes, tattoos, headwear, and even jewelry.
+
+Let me show the easy ways how to edit memoji using Avatoons powerful tools
+
+* Firstly, download launch Avatoon.
+
+![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
+
+* Choose Manual Creationto create a personalized custom emoji
+
+![Create Custom Emoji](https://images.wondershare.com/filmora/article-images/create-custom-emoji.jpg)
+
+* Now you can choose your face shape, hairstyle, eyes, brows, etc. Add headwear or glasses that depict your style
+
+![Choose Hairstyle And Brows](https://images.wondershare.com/filmora/article-images/choose-hairstyle-and-brows.jpg)
+
+* Now that you have created a basic cartoon self, you can add much finer details by using coins.
+
+![Add Memoji Details](https://images.wondershare.com/filmora/article-images/add-memoji-details.jpg)
+
+* Click on the Photobooth at the bottom to choose a cool background for your memoji.
+
+![Find Photo Booth](https://images.wondershare.com/filmora/article-images/find-photo-booth.jpg)
+
+* Once you have decorated the memoji, tap on Poses, choose the mood you like and instantly share via different sharing platforms
+
+![Decorate Memoji](https://images.wondershare.com/filmora/article-images/decorate-memoji.jpg)
+
+## Part 2: How to Edit Memoji on Android
+
+MojiPop is an amazing free app to make a custom emoji. It is packed with stickers and animated caricatures for every mood or emotion. Just take a selfie and start communicating using your cartoon face. You can even edit your memojis to suit your style. Then send the memoji to your friends to surprise them with a hilarious custom memoji
+
+If you're wondering how to edit memoji, here's a short guide for you:
+
+* Launch MojiPop and click on Create Avatar. Either take a selfie or choose an existing image from your gallery. Specify the age group.
+
+![Click Create Avatar](https://images.wondershare.com/filmora/article-images/click-create-avatar.jpg)
+
+* MojiPop instantly displays avatar styles, choose one that best fits you and click Next
+
+![Display Avatar Style](https://images.wondershare.com/filmora/article-images/display-avatar-style.jpg)
+
+* Select different features in tabs for hair, eyes, headwear to make the custom memoji look just like you. Click Confirmto save it.
+
+![Make Custom Memoji](https://images.wondershare.com/filmora/article-images/make-custom-memoji.jpg)
+
+* In the Discovertab, choose a gif template to wish someone or express your feelings.
+
+![Choose Gif Template](https://images.wondershare.com/filmora/article-images/choose-gif-template.jpg)
+
+* Click on the Share icon and choose the platform for instant sharing
+
+![Share Memoji](https://images.wondershare.com/filmora/article-images/share-memoji.jpg)
+
+### Ready to Edit Memoji by Yourself?
+
+Are you ready to make your conversations more interesting and engaging using custom memojis? Because who doesn't love a mini version of themselves displaying how happy or angry they feel? What better to communicate without saying a word?
+
+And we hope that our short tutorial on how to edit memoji helps you create different versions of yourself to express yourself better.
+
+Now that you know how to edit memoji to your liking, what are you waiting for? Go on to edit and create a hilarious avatar of yourself and enjoy texting
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+A memoji is simply the cartoon avatar of you. You can easily learn how to edit memoji and make a custom memoji that is the exact mirror image of you. From eye color to freckles, you can add every feature that makes the memoji look like a mini cartoon version of you
+
+Since a custom memoji is a more personalized way to express our emotions, it can be the perfect way to add a hint of humor to conversations. Everyone loves a unique sticker, especially if it looks like them. So, you can take help from our guide on how to change memoji and take your texting experience to the next level.
+
+* [Bonus Tip-Memoji VS Emoji](#part1)
+* [Part 1: How to Edit Memoji on iPhone](#part2)
+* [Part 2: How to Edit Memoji on Android](#part3)
+
+## Bonus Tip—Memoji VS Emoji
+
+Now you must be wondering what the difference between a memoji and emoji is. Well, there is the first major difference, which is that a memoji is the cartoon avatar of you, whereas an emoji is just around yellow-faced cartoon with various expressions
+
+1.The memoji is solely based on a human face, but an emoji can be any object, place, or even a symbol. While you can mostly craft a custom emoji personalized to your style and likings, emojis are limited. Custom memoji can also be dressed and decorated to serve as the perfect mini-version of you, complete from earrings to freckles.
+
+2.Moreover, almost everyone has the same set of emojis. But since memojis are created to look like a person, everyone has a very unique pack of memojis looking like the cartoon version of them.
+
+Despite the differences, both memojis and emojis carry equal significance and can spice up your texting experience in hilarious ways.
+
+## Part 1: How to Edit Memoji on iPhone
+
+Majority of you might be iPhone users and so it's only fair to show you some easy ways on how to edit memoji on your iPhone. There are two ways to create a custom memoji and then edit it. Lets dive in!
+
+#### Method 1: Edit Memoji in the Built-in Editor
+
+The introduction of iOS13 has made it possible for the majority of iPhone users to create or edit their memojis as they like. But in order to use this built-in editor to create a custom memoji, make sure that your device is updated to iOS13.
+
+In this Apple-exclusive editor, the steps are pretty straightforward. But to help you further, I will walk you along with the steps in detail
+
+* Go to the iMessages and open a new message tab or a previous conversation and tap the Appstoreicon to reveal the app bar. Hit the Animoji icon represented by the three heads
+
+![Hit Memoji Icon](https://images.wondershare.com/filmora/article-images/hit-memoji-icon.jpg)
+
+* Choose the memoji you wish to edit and click the three dots in the bottom left corner. Click Editon the pop-up dialogue box. You can also tap on Duplicate to copy the same memoji.
+
+![Copy Same Memoji](https://images.wondershare.com/filmora/article-images/copy-same-memoji.jpg)
+
+* Now you will be given various options to craft a custom memoji that looks exactly like you, right down to every detail. Click on the Skintab to change the skin color, add freckles or a beauty spot
+
+![Edit Memoji](https://images.wondershare.com/filmora/article-images/edit-memoji.jpg)
+
+* Choose the hairstyleand hair color that suits you the best
+
+![Choose Memoji Hairstyle](https://images.wondershare.com/filmora/article-images/choose-memoji-hairstyle.jpg)
+
+* In the Browstab, select your brow style. Go through all the tabs to choose the perfect headwear, glasses, or even AirPods to create the perfect custom memoji
+
+![Select Memoji Brow Style](https://images.wondershare.com/filmora/article-images/select-memoji-brow-style.jpg)
+
+#### Method 2: Edit Memoji Using the Avatoon App
+
+Avatoon is a great memoji maker app that lets you edit memoji from scratch and has an extensive collection of features you can choose from to make the cartoon look exactly like you. You can even auto-create a memoji by taking a selfie, and Avatoon will do the rest. In manual creation, you can select every detail from eyelashes, tattoos, headwear, and even jewelry.
+
+Let me show the easy ways how to edit memoji using Avatoons powerful tools
+
+* Firstly, download launch Avatoon.
+
+![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
+
+* Choose Manual Creationto create a personalized custom emoji
+
+![Create Custom Emoji](https://images.wondershare.com/filmora/article-images/create-custom-emoji.jpg)
+
+* Now you can choose your face shape, hairstyle, eyes, brows, etc. Add headwear or glasses that depict your style
+
+![Choose Hairstyle And Brows](https://images.wondershare.com/filmora/article-images/choose-hairstyle-and-brows.jpg)
+
+* Now that you have created a basic cartoon self, you can add much finer details by using coins.
+
+![Add Memoji Details](https://images.wondershare.com/filmora/article-images/add-memoji-details.jpg)
+
+* Click on the Photobooth at the bottom to choose a cool background for your memoji.
+
+![Find Photo Booth](https://images.wondershare.com/filmora/article-images/find-photo-booth.jpg)
+
+* Once you have decorated the memoji, tap on Poses, choose the mood you like and instantly share via different sharing platforms
+
+![Decorate Memoji](https://images.wondershare.com/filmora/article-images/decorate-memoji.jpg)
+
+## Part 2: How to Edit Memoji on Android
+
+MojiPop is an amazing free app to make a custom emoji. It is packed with stickers and animated caricatures for every mood or emotion. Just take a selfie and start communicating using your cartoon face. You can even edit your memojis to suit your style. Then send the memoji to your friends to surprise them with a hilarious custom memoji
+
+If you're wondering how to edit memoji, here's a short guide for you:
+
+* Launch MojiPop and click on Create Avatar. Either take a selfie or choose an existing image from your gallery. Specify the age group.
+
+![Click Create Avatar](https://images.wondershare.com/filmora/article-images/click-create-avatar.jpg)
+
+* MojiPop instantly displays avatar styles, choose one that best fits you and click Next
+
+![Display Avatar Style](https://images.wondershare.com/filmora/article-images/display-avatar-style.jpg)
+
+* Select different features in tabs for hair, eyes, headwear to make the custom memoji look just like you. Click Confirmto save it.
+
+![Make Custom Memoji](https://images.wondershare.com/filmora/article-images/make-custom-memoji.jpg)
+
+* In the Discovertab, choose a gif template to wish someone or express your feelings.
+
+![Choose Gif Template](https://images.wondershare.com/filmora/article-images/choose-gif-template.jpg)
+
+* Click on the Share icon and choose the platform for instant sharing
+
+![Share Memoji](https://images.wondershare.com/filmora/article-images/share-memoji.jpg)
+
+### Ready to Edit Memoji by Yourself?
+
+Are you ready to make your conversations more interesting and engaging using custom memojis? Because who doesn't love a mini version of themselves displaying how happy or angry they feel? What better to communicate without saying a word?
+
+And we hope that our short tutorial on how to edit memoji helps you create different versions of yourself to express yourself better.
+
+Now that you know how to edit memoji to your liking, what are you waiting for? Go on to edit and create a hilarious avatar of yourself and enjoy texting
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+A memoji is simply the cartoon avatar of you. You can easily learn how to edit memoji and make a custom memoji that is the exact mirror image of you. From eye color to freckles, you can add every feature that makes the memoji look like a mini cartoon version of you
+
+Since a custom memoji is a more personalized way to express our emotions, it can be the perfect way to add a hint of humor to conversations. Everyone loves a unique sticker, especially if it looks like them. So, you can take help from our guide on how to change memoji and take your texting experience to the next level.
+
+* [Bonus Tip-Memoji VS Emoji](#part1)
+* [Part 1: How to Edit Memoji on iPhone](#part2)
+* [Part 2: How to Edit Memoji on Android](#part3)
+
+## Bonus Tip—Memoji VS Emoji
+
+Now you must be wondering what the difference between a memoji and emoji is. Well, there is the first major difference, which is that a memoji is the cartoon avatar of you, whereas an emoji is just around yellow-faced cartoon with various expressions
+
+1.The memoji is solely based on a human face, but an emoji can be any object, place, or even a symbol. While you can mostly craft a custom emoji personalized to your style and likings, emojis are limited. Custom memoji can also be dressed and decorated to serve as the perfect mini-version of you, complete from earrings to freckles.
+
+2.Moreover, almost everyone has the same set of emojis. But since memojis are created to look like a person, everyone has a very unique pack of memojis looking like the cartoon version of them.
+
+Despite the differences, both memojis and emojis carry equal significance and can spice up your texting experience in hilarious ways.
+
+## Part 1: How to Edit Memoji on iPhone
+
+Majority of you might be iPhone users and so it's only fair to show you some easy ways on how to edit memoji on your iPhone. There are two ways to create a custom memoji and then edit it. Lets dive in!
+
+#### Method 1: Edit Memoji in the Built-in Editor
+
+The introduction of iOS13 has made it possible for the majority of iPhone users to create or edit their memojis as they like. But in order to use this built-in editor to create a custom memoji, make sure that your device is updated to iOS13.
+
+In this Apple-exclusive editor, the steps are pretty straightforward. But to help you further, I will walk you along with the steps in detail
+
+* Go to the iMessages and open a new message tab or a previous conversation and tap the Appstoreicon to reveal the app bar. Hit the Animoji icon represented by the three heads
+
+![Hit Memoji Icon](https://images.wondershare.com/filmora/article-images/hit-memoji-icon.jpg)
+
+* Choose the memoji you wish to edit and click the three dots in the bottom left corner. Click Editon the pop-up dialogue box. You can also tap on Duplicate to copy the same memoji.
+
+![Copy Same Memoji](https://images.wondershare.com/filmora/article-images/copy-same-memoji.jpg)
+
+* Now you will be given various options to craft a custom memoji that looks exactly like you, right down to every detail. Click on the Skintab to change the skin color, add freckles or a beauty spot
+
+![Edit Memoji](https://images.wondershare.com/filmora/article-images/edit-memoji.jpg)
+
+* Choose the hairstyleand hair color that suits you the best
+
+![Choose Memoji Hairstyle](https://images.wondershare.com/filmora/article-images/choose-memoji-hairstyle.jpg)
+
+* In the Browstab, select your brow style. Go through all the tabs to choose the perfect headwear, glasses, or even AirPods to create the perfect custom memoji
+
+![Select Memoji Brow Style](https://images.wondershare.com/filmora/article-images/select-memoji-brow-style.jpg)
+
+#### Method 2: Edit Memoji Using the Avatoon App
+
+Avatoon is a great memoji maker app that lets you edit memoji from scratch and has an extensive collection of features you can choose from to make the cartoon look exactly like you. You can even auto-create a memoji by taking a selfie, and Avatoon will do the rest. In manual creation, you can select every detail from eyelashes, tattoos, headwear, and even jewelry.
+
+Let me show the easy ways how to edit memoji using Avatoons powerful tools
+
+* Firstly, download launch Avatoon.
+
+![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-* In the Browstab, select your brow style. Go through all the tabs to choose the perfect headwear, glasses, or even AirPods to create the perfect custom memoji
-
-![Select Memoji Brow Style](https://images.wondershare.com/filmora/article-images/select-memoji-brow-style.jpg)
-
-#### Method 2: Edit Memoji Using the Avatoon App
-
-Avatoon is a great memoji maker app that lets you edit memoji from scratch and has an extensive collection of features you can choose from to make the cartoon look exactly like you. You can even auto-create a memoji by taking a selfie, and Avatoon will do the rest. In manual creation, you can select every detail from eyelashes, tattoos, headwear, and even jewelry.
-
-Let me show the easy ways how to edit memoji using Avatoons powerful tools
-
-* Firstly, download launch Avatoon.
-
-![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
-
-* Choose Manual Creationto create a personalized custom emoji
-
-![Create Custom Emoji](https://images.wondershare.com/filmora/article-images/create-custom-emoji.jpg)
-
-* Now you can choose your face shape, hairstyle, eyes, brows, etc. Add headwear or glasses that depict your style
-
-![Choose Hairstyle And Brows](https://images.wondershare.com/filmora/article-images/choose-hairstyle-and-brows.jpg)
-
-* Now that you have created a basic cartoon self, you can add much finer details by using coins.
-
-![Add Memoji Details](https://images.wondershare.com/filmora/article-images/add-memoji-details.jpg)
-
-* Click on the Photobooth at the bottom to choose a cool background for your memoji.
-
-![Find Photo Booth](https://images.wondershare.com/filmora/article-images/find-photo-booth.jpg)
-
-* Once you have decorated the memoji, tap on Poses, choose the mood you like and instantly share via different sharing platforms
-
-![Decorate Memoji](https://images.wondershare.com/filmora/article-images/decorate-memoji.jpg)
-
-## Part 2: How to Edit Memoji on Android
-
-MojiPop is an amazing free app to make a custom emoji. It is packed with stickers and animated caricatures for every mood or emotion. Just take a selfie and start communicating using your cartoon face. You can even edit your memojis to suit your style. Then send the memoji to your friends to surprise them with a hilarious custom memoji
-
-If you're wondering how to edit memoji, here's a short guide for you:
-
-* Launch MojiPop and click on Create Avatar. Either take a selfie or choose an existing image from your gallery. Specify the age group.
-
-![Click Create Avatar](https://images.wondershare.com/filmora/article-images/click-create-avatar.jpg)
-
-* MojiPop instantly displays avatar styles, choose one that best fits you and click Next
-
-![Display Avatar Style](https://images.wondershare.com/filmora/article-images/display-avatar-style.jpg)
-
-* Select different features in tabs for hair, eyes, headwear to make the custom memoji look just like you. Click Confirmto save it.
-
-![Make Custom Memoji](https://images.wondershare.com/filmora/article-images/make-custom-memoji.jpg)
-
-* In the Discovertab, choose a gif template to wish someone or express your feelings.
-
-![Choose Gif Template](https://images.wondershare.com/filmora/article-images/choose-gif-template.jpg)
-
-* Click on the Share icon and choose the platform for instant sharing
-
-![Share Memoji](https://images.wondershare.com/filmora/article-images/share-memoji.jpg)
-
-### Ready to Edit Memoji by Yourself?
-
-Are you ready to make your conversations more interesting and engaging using custom memojis? Because who doesn't love a mini version of themselves displaying how happy or angry they feel? What better to communicate without saying a word?
-
-And we hope that our short tutorial on how to edit memoji helps you create different versions of yourself to express yourself better.
-
-Now that you know how to edit memoji to your liking, what are you waiting for? Go on to edit and create a hilarious avatar of yourself and enjoy texting
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-A memoji is simply the cartoon avatar of you. You can easily learn how to edit memoji and make a custom memoji that is the exact mirror image of you. From eye color to freckles, you can add every feature that makes the memoji look like a mini cartoon version of you
-
-Since a custom memoji is a more personalized way to express our emotions, it can be the perfect way to add a hint of humor to conversations. Everyone loves a unique sticker, especially if it looks like them. So, you can take help from our guide on how to change memoji and take your texting experience to the next level.
-
-* [Bonus Tip-Memoji VS Emoji](#part1)
-* [Part 1: How to Edit Memoji on iPhone](#part2)
-* [Part 2: How to Edit Memoji on Android](#part3)
-
-## Bonus Tip—Memoji VS Emoji
-
-Now you must be wondering what the difference between a memoji and emoji is. Well, there is the first major difference, which is that a memoji is the cartoon avatar of you, whereas an emoji is just around yellow-faced cartoon with various expressions
-
-1.The memoji is solely based on a human face, but an emoji can be any object, place, or even a symbol. While you can mostly craft a custom emoji personalized to your style and likings, emojis are limited. Custom memoji can also be dressed and decorated to serve as the perfect mini-version of you, complete from earrings to freckles.
-
-2.Moreover, almost everyone has the same set of emojis. But since memojis are created to look like a person, everyone has a very unique pack of memojis looking like the cartoon version of them.
-
-Despite the differences, both memojis and emojis carry equal significance and can spice up your texting experience in hilarious ways.
-
-## Part 1: How to Edit Memoji on iPhone
-
-Majority of you might be iPhone users and so it's only fair to show you some easy ways on how to edit memoji on your iPhone. There are two ways to create a custom memoji and then edit it. Lets dive in!
-
-#### Method 1: Edit Memoji in the Built-in Editor
-
-The introduction of iOS13 has made it possible for the majority of iPhone users to create or edit their memojis as they like. But in order to use this built-in editor to create a custom memoji, make sure that your device is updated to iOS13.
-
-In this Apple-exclusive editor, the steps are pretty straightforward. But to help you further, I will walk you along with the steps in detail
-
-* Go to the iMessages and open a new message tab or a previous conversation and tap the Appstoreicon to reveal the app bar. Hit the Animoji icon represented by the three heads
-
-![Hit Memoji Icon](https://images.wondershare.com/filmora/article-images/hit-memoji-icon.jpg)
-
-* Choose the memoji you wish to edit and click the three dots in the bottom left corner. Click Editon the pop-up dialogue box. You can also tap on Duplicate to copy the same memoji.
-
-![Copy Same Memoji](https://images.wondershare.com/filmora/article-images/copy-same-memoji.jpg)
-
-* Now you will be given various options to craft a custom memoji that looks exactly like you, right down to every detail. Click on the Skintab to change the skin color, add freckles or a beauty spot
-
-![Edit Memoji](https://images.wondershare.com/filmora/article-images/edit-memoji.jpg)
-
-* Choose the hairstyleand hair color that suits you the best
-
-![Choose Memoji Hairstyle](https://images.wondershare.com/filmora/article-images/choose-memoji-hairstyle.jpg)
-
-* In the Browstab, select your brow style. Go through all the tabs to choose the perfect headwear, glasses, or even AirPods to create the perfect custom memoji
-
-![Select Memoji Brow Style](https://images.wondershare.com/filmora/article-images/select-memoji-brow-style.jpg)
-
-#### Method 2: Edit Memoji Using the Avatoon App
-
-Avatoon is a great memoji maker app that lets you edit memoji from scratch and has an extensive collection of features you can choose from to make the cartoon look exactly like you. You can even auto-create a memoji by taking a selfie, and Avatoon will do the rest. In manual creation, you can select every detail from eyelashes, tattoos, headwear, and even jewelry.
-
-Let me show the easy ways how to edit memoji using Avatoons powerful tools
-
-* Firstly, download launch Avatoon.
-
-![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
-
-* Choose Manual Creationto create a personalized custom emoji
-
-![Create Custom Emoji](https://images.wondershare.com/filmora/article-images/create-custom-emoji.jpg)
-
-* Now you can choose your face shape, hairstyle, eyes, brows, etc. Add headwear or glasses that depict your style
-
-![Choose Hairstyle And Brows](https://images.wondershare.com/filmora/article-images/choose-hairstyle-and-brows.jpg)
-
-* Now that you have created a basic cartoon self, you can add much finer details by using coins.
-
-![Add Memoji Details](https://images.wondershare.com/filmora/article-images/add-memoji-details.jpg)
-
-* Click on the Photobooth at the bottom to choose a cool background for your memoji.
-
-![Find Photo Booth](https://images.wondershare.com/filmora/article-images/find-photo-booth.jpg)
-
-* Once you have decorated the memoji, tap on Poses, choose the mood you like and instantly share via different sharing platforms
-
-![Decorate Memoji](https://images.wondershare.com/filmora/article-images/decorate-memoji.jpg)
-
-## Part 2: How to Edit Memoji on Android
-
-MojiPop is an amazing free app to make a custom emoji. It is packed with stickers and animated caricatures for every mood or emotion. Just take a selfie and start communicating using your cartoon face. You can even edit your memojis to suit your style. Then send the memoji to your friends to surprise them with a hilarious custom memoji
-
-If you're wondering how to edit memoji, here's a short guide for you:
-
-* Launch MojiPop and click on Create Avatar. Either take a selfie or choose an existing image from your gallery. Specify the age group.
-
-![Click Create Avatar](https://images.wondershare.com/filmora/article-images/click-create-avatar.jpg)
-
-* MojiPop instantly displays avatar styles, choose one that best fits you and click Next
-
-![Display Avatar Style](https://images.wondershare.com/filmora/article-images/display-avatar-style.jpg)
-
-* Select different features in tabs for hair, eyes, headwear to make the custom memoji look just like you. Click Confirmto save it.
-
-![Make Custom Memoji](https://images.wondershare.com/filmora/article-images/make-custom-memoji.jpg)
-
-* In the Discovertab, choose a gif template to wish someone or express your feelings.
-
-![Choose Gif Template](https://images.wondershare.com/filmora/article-images/choose-gif-template.jpg)
-
-* Click on the Share icon and choose the platform for instant sharing
-
-![Share Memoji](https://images.wondershare.com/filmora/article-images/share-memoji.jpg)
-
-### Ready to Edit Memoji by Yourself?
-
-Are you ready to make your conversations more interesting and engaging using custom memojis? Because who doesn't love a mini version of themselves displaying how happy or angry they feel? What better to communicate without saying a word?
-
-And we hope that our short tutorial on how to edit memoji helps you create different versions of yourself to express yourself better.
-
-Now that you know how to edit memoji to your liking, what are you waiting for? Go on to edit and create a hilarious avatar of yourself and enjoy texting
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-A memoji is simply the cartoon avatar of you. You can easily learn how to edit memoji and make a custom memoji that is the exact mirror image of you. From eye color to freckles, you can add every feature that makes the memoji look like a mini cartoon version of you
-
-Since a custom memoji is a more personalized way to express our emotions, it can be the perfect way to add a hint of humor to conversations. Everyone loves a unique sticker, especially if it looks like them. So, you can take help from our guide on how to change memoji and take your texting experience to the next level.
-
-* [Bonus Tip-Memoji VS Emoji](#part1)
-* [Part 1: How to Edit Memoji on iPhone](#part2)
-* [Part 2: How to Edit Memoji on Android](#part3)
-
-## Bonus Tip—Memoji VS Emoji
-
-Now you must be wondering what the difference between a memoji and emoji is. Well, there is the first major difference, which is that a memoji is the cartoon avatar of you, whereas an emoji is just around yellow-faced cartoon with various expressions
-
-1.The memoji is solely based on a human face, but an emoji can be any object, place, or even a symbol. While you can mostly craft a custom emoji personalized to your style and likings, emojis are limited. Custom memoji can also be dressed and decorated to serve as the perfect mini-version of you, complete from earrings to freckles.
-
-2.Moreover, almost everyone has the same set of emojis. But since memojis are created to look like a person, everyone has a very unique pack of memojis looking like the cartoon version of them.
-
-Despite the differences, both memojis and emojis carry equal significance and can spice up your texting experience in hilarious ways.
-
-## Part 1: How to Edit Memoji on iPhone
-
-Majority of you might be iPhone users and so it's only fair to show you some easy ways on how to edit memoji on your iPhone. There are two ways to create a custom memoji and then edit it. Lets dive in!
-
-#### Method 1: Edit Memoji in the Built-in Editor
-
-The introduction of iOS13 has made it possible for the majority of iPhone users to create or edit their memojis as they like. But in order to use this built-in editor to create a custom memoji, make sure that your device is updated to iOS13.
-
-In this Apple-exclusive editor, the steps are pretty straightforward. But to help you further, I will walk you along with the steps in detail
-
-* Go to the iMessages and open a new message tab or a previous conversation and tap the Appstoreicon to reveal the app bar. Hit the Animoji icon represented by the three heads
-
-![Hit Memoji Icon](https://images.wondershare.com/filmora/article-images/hit-memoji-icon.jpg)
-
-* Choose the memoji you wish to edit and click the three dots in the bottom left corner. Click Editon the pop-up dialogue box. You can also tap on Duplicate to copy the same memoji.
-
-![Copy Same Memoji](https://images.wondershare.com/filmora/article-images/copy-same-memoji.jpg)
-
-* Now you will be given various options to craft a custom memoji that looks exactly like you, right down to every detail. Click on the Skintab to change the skin color, add freckles or a beauty spot
-
-![Edit Memoji](https://images.wondershare.com/filmora/article-images/edit-memoji.jpg)
-
-* Choose the hairstyleand hair color that suits you the best
-
-![Choose Memoji Hairstyle](https://images.wondershare.com/filmora/article-images/choose-memoji-hairstyle.jpg)
-
-* In the Browstab, select your brow style. Go through all the tabs to choose the perfect headwear, glasses, or even AirPods to create the perfect custom memoji
-
-![Select Memoji Brow Style](https://images.wondershare.com/filmora/article-images/select-memoji-brow-style.jpg)
-
-#### Method 2: Edit Memoji Using the Avatoon App
-
-Avatoon is a great memoji maker app that lets you edit memoji from scratch and has an extensive collection of features you can choose from to make the cartoon look exactly like you. You can even auto-create a memoji by taking a selfie, and Avatoon will do the rest. In manual creation, you can select every detail from eyelashes, tattoos, headwear, and even jewelry.
-
-Let me show the easy ways how to edit memoji using Avatoons powerful tools
-
-* Firstly, download launch Avatoon.
-
-![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
-
-* Choose Manual Creationto create a personalized custom emoji
-
-![Create Custom Emoji](https://images.wondershare.com/filmora/article-images/create-custom-emoji.jpg)
-
-* Now you can choose your face shape, hairstyle, eyes, brows, etc. Add headwear or glasses that depict your style
-
-![Choose Hairstyle And Brows](https://images.wondershare.com/filmora/article-images/choose-hairstyle-and-brows.jpg)
-
-* Now that you have created a basic cartoon self, you can add much finer details by using coins.
-
-![Add Memoji Details](https://images.wondershare.com/filmora/article-images/add-memoji-details.jpg)
-
-* Click on the Photobooth at the bottom to choose a cool background for your memoji.
-
-![Find Photo Booth](https://images.wondershare.com/filmora/article-images/find-photo-booth.jpg)
-
-* Once you have decorated the memoji, tap on Poses, choose the mood you like and instantly share via different sharing platforms
-
-![Decorate Memoji](https://images.wondershare.com/filmora/article-images/decorate-memoji.jpg)
-
-## Part 2: How to Edit Memoji on Android
-
-MojiPop is an amazing free app to make a custom emoji. It is packed with stickers and animated caricatures for every mood or emotion. Just take a selfie and start communicating using your cartoon face. You can even edit your memojis to suit your style. Then send the memoji to your friends to surprise them with a hilarious custom memoji
-
-If you're wondering how to edit memoji, here's a short guide for you:
-
-* Launch MojiPop and click on Create Avatar. Either take a selfie or choose an existing image from your gallery. Specify the age group.
-
-![Click Create Avatar](https://images.wondershare.com/filmora/article-images/click-create-avatar.jpg)
-
-* MojiPop instantly displays avatar styles, choose one that best fits you and click Next
-
-![Display Avatar Style](https://images.wondershare.com/filmora/article-images/display-avatar-style.jpg)
-
-* Select different features in tabs for hair, eyes, headwear to make the custom memoji look just like you. Click Confirmto save it.
-
-![Make Custom Memoji](https://images.wondershare.com/filmora/article-images/make-custom-memoji.jpg)
-
-* In the Discovertab, choose a gif template to wish someone or express your feelings.
-
-![Choose Gif Template](https://images.wondershare.com/filmora/article-images/choose-gif-template.jpg)
-
-* Click on the Share icon and choose the platform for instant sharing
-
-![Share Memoji](https://images.wondershare.com/filmora/article-images/share-memoji.jpg)
-
-### Ready to Edit Memoji by Yourself?
-
-Are you ready to make your conversations more interesting and engaging using custom memojis? Because who doesn't love a mini version of themselves displaying how happy or angry they feel? What better to communicate without saying a word?
-
-And we hope that our short tutorial on how to edit memoji helps you create different versions of yourself to express yourself better.
-
-Now that you know how to edit memoji to your liking, what are you waiting for? Go on to edit and create a hilarious avatar of yourself and enjoy texting
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-A memoji is simply the cartoon avatar of you. You can easily learn how to edit memoji and make a custom memoji that is the exact mirror image of you. From eye color to freckles, you can add every feature that makes the memoji look like a mini cartoon version of you
-
-Since a custom memoji is a more personalized way to express our emotions, it can be the perfect way to add a hint of humor to conversations. Everyone loves a unique sticker, especially if it looks like them. So, you can take help from our guide on how to change memoji and take your texting experience to the next level.
-
-* [Bonus Tip-Memoji VS Emoji](#part1)
-* [Part 1: How to Edit Memoji on iPhone](#part2)
-* [Part 2: How to Edit Memoji on Android](#part3)
-
-## Bonus Tip—Memoji VS Emoji
-
-Now you must be wondering what the difference between a memoji and emoji is. Well, there is the first major difference, which is that a memoji is the cartoon avatar of you, whereas an emoji is just around yellow-faced cartoon with various expressions
-
-1.The memoji is solely based on a human face, but an emoji can be any object, place, or even a symbol. While you can mostly craft a custom emoji personalized to your style and likings, emojis are limited. Custom memoji can also be dressed and decorated to serve as the perfect mini-version of you, complete from earrings to freckles.
-
-2.Moreover, almost everyone has the same set of emojis. But since memojis are created to look like a person, everyone has a very unique pack of memojis looking like the cartoon version of them.
-
-Despite the differences, both memojis and emojis carry equal significance and can spice up your texting experience in hilarious ways.
-
-## Part 1: How to Edit Memoji on iPhone
-
-Majority of you might be iPhone users and so it's only fair to show you some easy ways on how to edit memoji on your iPhone. There are two ways to create a custom memoji and then edit it. Lets dive in!
-
-#### Method 1: Edit Memoji in the Built-in Editor
-
-The introduction of iOS13 has made it possible for the majority of iPhone users to create or edit their memojis as they like. But in order to use this built-in editor to create a custom memoji, make sure that your device is updated to iOS13.
-
-In this Apple-exclusive editor, the steps are pretty straightforward. But to help you further, I will walk you along with the steps in detail
-
-* Go to the iMessages and open a new message tab or a previous conversation and tap the Appstoreicon to reveal the app bar. Hit the Animoji icon represented by the three heads
-
-![Hit Memoji Icon](https://images.wondershare.com/filmora/article-images/hit-memoji-icon.jpg)
-
-* Choose the memoji you wish to edit and click the three dots in the bottom left corner. Click Editon the pop-up dialogue box. You can also tap on Duplicate to copy the same memoji.
-
-![Copy Same Memoji](https://images.wondershare.com/filmora/article-images/copy-same-memoji.jpg)
-
-* Now you will be given various options to craft a custom memoji that looks exactly like you, right down to every detail. Click on the Skintab to change the skin color, add freckles or a beauty spot
-
-![Edit Memoji](https://images.wondershare.com/filmora/article-images/edit-memoji.jpg)
-
-* Choose the hairstyleand hair color that suits you the best
-
-![Choose Memoji Hairstyle](https://images.wondershare.com/filmora/article-images/choose-memoji-hairstyle.jpg)
-
-* In the Browstab, select your brow style. Go through all the tabs to choose the perfect headwear, glasses, or even AirPods to create the perfect custom memoji
-
-![Select Memoji Brow Style](https://images.wondershare.com/filmora/article-images/select-memoji-brow-style.jpg)
-
-#### Method 2: Edit Memoji Using the Avatoon App
-
-Avatoon is a great memoji maker app that lets you edit memoji from scratch and has an extensive collection of features you can choose from to make the cartoon look exactly like you. You can even auto-create a memoji by taking a selfie, and Avatoon will do the rest. In manual creation, you can select every detail from eyelashes, tattoos, headwear, and even jewelry.
-
-Let me show the easy ways how to edit memoji using Avatoons powerful tools
-
-* Firstly, download launch Avatoon.
-
-![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
 
 * Choose Manual Creationto create a personalized custom emoji
 
@@ -3300,18 +3288,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-how-to-convert-vimeo-footage-into-audio/"><u>[New] 2024 Approved How to Convert Vimeo Footage Into Audio</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-premium-components-for-next-gen-streaming/"><u>[New] Premium Components for Next-Gen Streaming</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-proven-techniques-for-swiftly-locating-your-desired-discord-server-for-2024/"><u>[Updated] Proven Techniques for Swiftly Locating Your Desired Discord Server for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-gmail-password-on-nubia-red-magic-9-pro-devices-by-drfone-android/"><u>How to Reset Gmail Password on Nubia Red Magic 9 Pro Devices</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-turn-off-the-screen-lock-on-my-infinix-smart-7-hd-by-drfone-android-unlock-android-unlock/"><u>How to turn off the screen lock on my Infinix Smart 7 HD</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-lightroom-workflow-creating-and-merging-professional-hdr-images/"><u>In 2024, Lightroom Workflow Creating & Merging Professional HDR Images</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Infinix Smart 7 | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-making-triggered-memes-with-filmora-video-editor/"><u>New 2024 Approved Making Triggered Memes with Filmora Video Editor</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-7-free-apps-to-get-emojis-on-android-and-iphone-for-2024/"><u>New 7 Free Apps to Get Emojis on Android and iPhone for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-top-12-best-meme-makers-online-for-free-for-2024/"><u>New Top 12 Best Meme Makers Online for FREE for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-price-point-in-online-advertising/"><u>The Price Point in Online Advertising</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself-for-2024/"><u>Updated How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-giving-life-a-curtain-call-blackout-in-pro/"><u>[Updated] Giving Life a Curtain Call Blackout in Pro</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-speedy-drawing-in-photos-a-win10-guide-to-efficient-edits-for-2024/"><u>[Updated] Speedy Drawing in Photos A Win10 Guide to Efficient Edits for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-ez-grabber-user-manual-in-a-nutshell-for-2024/"><u>[Updated] The EZ Grabber User Manual in a Nutshell for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-13-pro-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 13 Pro Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-the-command-interface-directly-from-your-desktops-folders/"><u>Navigating the Command Interface Directly From Your Desktop's Folders</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/navigating-through-complete-circles-on-screen/"><u>Navigating Through Complete Circles on Screen</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-record-your-memorable-honeymoon-video/"><u>New How to Record Your Memorable Honeymoon Video</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/speed-capture-faceoff-gopro-hero-4-challenges-ghost-s-for-2024/"><u>Speed Capture Faceoff GoPro Hero 4 Challenges Ghost-S for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/troubleshoot-your-youtube-video-problems-with-quick-fixes-for-fullscreen-glitches-and-dark-background-issues/"><u>Troubleshoot Your YouTube Video Problems with Quick Fixes for Fullscreen Glitches and Dark Background Issues</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-10-best-meme-makers-online-free-to-use/"><u>Updated 2024 Approved 10 Best Meme Makers Online (Free to Use)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-7-free-apps-to-get-emojis-on-android-and-iphone-for-2024/"><u>Updated 7 Free Apps to Get Emojis on Android and iPhone for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-emojis-to-videos-the-ultimate-guide/"><u>Updated How to Add Emojis to Videos The Ultimate Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-websites-to-add-emojis-to-photos-online/"><u>Updated In 2024, Best Websites to Add Emojis to Photos Online</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/video-mastery-step-by-step-guide-to-cropping-and-exporting-for-insta/"><u>Video Mastery Step by Step Guide to Cropping and Exporting for Insta</u></a></li>
 </ul></div>
 

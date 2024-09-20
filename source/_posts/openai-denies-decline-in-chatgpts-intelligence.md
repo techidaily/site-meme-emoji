@@ -1,7 +1,7 @@
 ---
 title: OpenAI Denies Decline in ChatGPT's Intelligence
-date: 2024-09-10T17:28:23.928Z
-updated: 2024-09-14T23:35:11.235Z
+date: 2024-09-16T04:02:19.420Z
+updated: 2024-09-20T05:36:28.112Z
 tags:
   - chatgpt
   - open-ai
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
  Google says that Gemini Ultra will roll out in January 2024, so we've had to settle for testing Gemini Pro against ChatGPT for now.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Gemini Compares to GPT-3.5 and GPT-4
 
  When any new AI model is launched, it is tested against OpenAI's GPT AI models, which are generally accepted as the state-of-the-art model other models should be held up against. So, using Bard and ChatGPT, we tested Gemini's ability in math, creative writing, code generation, and accurately processing image inputs.
@@ -67,13 +74,6 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
  Bard went first. We repeated the question twice, all coming back with wrong answers. We did get the answer on the third attempt, but that doesn't count.
 
 ![Bard answers Math question](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/bard-answers-math-question.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 We tried ChatGPT running on GPT-3.5\. The first trial got it right.
 
@@ -87,6 +87,13 @@ Here's the source screenshot.
 
 ![screenshot of Chatbase chatbot creator](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/screenshot-to-replicate.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Below is Gemini Pro's attempt to interpret and replicate the screenshot using HTML and CSS.
 
 ![results of screenshot replication by Bard](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/results-of-screenshot-replication-by-bard.jpg)
@@ -96,22 +103,15 @@ Here's the source screenshot.
 ![results of screenshot replication by ChatGPT](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/results-of-screenshot-replication-by-chatgpt.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  We asked Gemini Pro to create a poem about Tesla (the electric vehicle car brand). It showed marginal improvements from previous tests we've done in the past. Here's the result:
 
 ![Bard running Gemini Pro writes a poem](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/bard-writes-peom.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  At this point, we thought comparing the results against GPT-3.5 rather than the supercharged GPT-4 would be more appropriate. So, we asked ChatGPT running GPT-3.5 to create a similar poem.
 
@@ -120,16 +120,10 @@ Here's the source screenshot.
  It may be a personal choice, but Gemini Pro's take on this seems better. But we'll let you be the judge.
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Gemini Better than ChatGPT?
@@ -153,18 +147,20 @@ Here's the source screenshot.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-simplified-guide-to-advanced-xbox-video-recording-methods/"><u>[New] 2024 Approved Simplified Guide to Advanced Xbox Video Recording Methods</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-guard-your-camera-top-10-shields-reviewed/"><u>2024 Approved Guard Your Camera - Top 10 Shields Reviewed</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016992869-audio-not-working-on-pc-heres-how-you-can-fix-it/"><u>Audio Not Working on PC? Here's How You Can Fix It!</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/choosing-between-a-kindle-and-fire-tablet-key-differences-explored/"><u>Choosing Between a Kindle and Fire Tablet: Key Differences Explored</u></a></li>
-<li><a href="https://common-error.techidaily.com/common-issues-and-resolutions-for-the-failed-windows-11-update-version-1607/"><u>Common Issues & Resolutions for the Failed Windows 11 Update (Version 1607)</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/enhance-your-online-presence-with-manycam-premier-video-conferencing-and-livestream-tool/"><u>Enhance Your Online Presence with ManyCam: Premier Video Conferencing and Livestream Tool</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/essential-downloads-curated-list-of-the-finest-8-apps-on-google-play-pass/"><u>Essential Downloads: Curated List of the Finest 8 Apps on Google Play Pass</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/evaluating-the-razer-blade-pro-17-a-game-changer-in-portable-computing/"><u>Evaluating the Razer Blade Pro 17: A Game Changer in Portable Computing</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-infinix-note-30i-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Infinix Note 30i Phone? Unlock It Now</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-depth-analysis-of-chargetechs-powerful-27000mah-portable-battery-pack/"><u>In-Depth Analysis of ChargeTech's Powerful 27000mAh Portable Battery Pack</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/insightful-review-on-extollos-lansocket-1500-ultra-fast-connectivity-minimal-latency-issues-and-advanced-power-handling-features/"><u>Insightful Review on Extollo's LANSocket 1_500 – Ultra-Fast Connectivity, Minimal Latency Issues, and Advanced Power Handling Features</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-beam-local-content-to-chromecast-easy-setup-for-windows-mac-android-and-ios-users/"><u>New In 2024, Beam Local Content to Chromecast Easy Setup for Windows, Mac, Android, and iOS Users</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/remote-control-adventure-reviewing-the-powerhouse-that-is-the-ford-galaxy-f-15truck/"><u>Remote Control Adventure: Reviewing the Powerhouse That Is the Ford Galaxy F-15ˈtruck</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-unhindered-vision-capture-tool/"><u>[Updated] In 2024, Unhindered Vision Capture Tool</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-integrating-zoom-with-your-android-gadget/"><u>[Updated] Integrating Zoom with Your Android Gadget</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-lenovo-thinkphone-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Lenovo ThinkPhone Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-review-cumuluspros-top-tier-standing-desk-pad-a-foundation-for-better-posture/"><u>Expert Review: CumulusPRO's Top-Tier Standing Desk Pad - A Foundation for Better Posture</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-apple-iphone-13-pro-max-device-from-icloud-by-drfone-ios/"><u>How to Remove Apple iPhone 13 Pro Max Device from iCloud</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-add-emojis-to-discord-on-desktop-computer-and-mobile/"><u>In 2024, How to Add Emojis To Discord on Desktop Computer and Mobile</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-y200e-5g-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo Y200e 5G to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-what-is-emoji-and-what-does-it-mean/"><u>In 2024, What Is Emoji and What Does It Mean?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/integrate-advanced-note-organization-on-mematic/"><u>Integrate Advanced Note Organization on Mematic</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-spark-go-2023frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Spark Go (2023)FRP Lock</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-generating-the-roll-safe-think-about-it-meme/"><u>New Generating the Roll Safe-Think About It Meme</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-what-is-emoji-and-what-does-it-mean/"><u>New In 2024, What Is Emoji and What Does It Mean?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nail-mastery-for-youtube-channel-graphics/"><u>Thumbnail Mastery for YouTube Channel Graphics</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-a-slideshow-with-music/"><u>Updated In 2024, How to Make a Slideshow with Music</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-the-essential-guide-to-emoji-memoji-animoji-and-bitmoji/"><u>Updated In 2024, The Essential Guide to Emoji, Memoji, Animoji, and Bitmoji</u></a></li>
 </ul></div>
 
