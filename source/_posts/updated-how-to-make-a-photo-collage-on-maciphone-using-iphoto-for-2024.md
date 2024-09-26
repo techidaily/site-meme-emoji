@@ -1,7 +1,7 @@
 ---
 title: Updated How to Make a Photo Collage on Mac/iPhone Using iPhoto for 2024
-date: 2024-09-18T02:53:59.828Z
-updated: 2024-09-20T06:36:29.714Z
+date: 2024-09-23T16:54:35.529Z
+updated: 2024-09-26T06:00:28.555Z
 tags: 
   - ai
   - animation videos
@@ -181,13 +181,6 @@ Here are the quick steps to create a photo collage with iPhoto.
 **Step 3:** Click the “+” button in the lower-left corner and select **Card** in the pop-up window.
 
 ![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-add-image.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** Choose “Picture Collage”, which should be under the **Any Occasion** section if you are using the iPhoto 11.
 
@@ -840,6 +833,13 @@ By using an online meme maker, you have the ability to create your own memes whe
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -904,6 +904,13 @@ Features:
 * Send and share memes through the site.
 
 ![MemeGenerator](https://images.wondershare.com/filmora/article-images/MemeGenerator.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6. Imgur
 
@@ -1098,13 +1105,6 @@ Follow @Shanoon Cox
  Tip: To have a large viewe of all the files, click the “Expand” button on top right corner of storyboard.
 
 ![best slideshow software, photo slideshow creator](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 2\. Customize the slideshow like background music and transitions
 
@@ -1437,13 +1437,6 @@ Copy the image
 #### 3\. Downloading Memes
 
 ![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
 
@@ -2032,6 +2025,13 @@ The last website that we have is Pixelied. The free tool will let you edit your 
 
 [Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) provides tons of emojis that you can add for free, so you can add them to photos directly. What’s more, you can also upload your own emoji and use it in Filmora. All you need to do is download the tool on your Windows or Mac computer and start using it to add an emoji. There are two ways to go about it:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Use Emojis from Elements**
 
 ![add emoji to photo filmora](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-filmora.jpg)
@@ -2531,6 +2531,19 @@ PiZap is a photo editing tool that lets you add emojis too. To start using, you 
 **Step 3:** From the left-side toolbar, click on the Graphics option. Scroll a bit, and you will see the emoji section.
 
 **Step 4:** Click on any of the emojis you like to add to the photo. You can adjust the emojis as you want.
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### #5: Pixelied
 
@@ -3044,13 +3057,6 @@ Discord has thousands of custom emojis that you can easily add to your server th
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -3197,10 +3203,10 @@ Discord has thousands of custom emojis that you can easily add to your server th
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -3517,6 +3523,13 @@ In this Apple-exclusive editor, the steps are pretty straightforward. But to hel
 
 ![Choose Memoji Hairstyle](https://images.wondershare.com/filmora/article-images/choose-memoji-hairstyle.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * In the Browstab, select your brow style. Go through all the tabs to choose the perfect headwear, glasses, or even AirPods to create the perfect custom memoji
 
 ![Select Memoji Brow Style](https://images.wondershare.com/filmora/article-images/select-memoji-brow-style.jpg)
@@ -3688,6 +3701,13 @@ If you're wondering how to edit memoji, here's a short guide for you:
 * MojiPop instantly displays avatar styles, choose one that best fits you and click Next
 
 ![Display Avatar Style](https://images.wondershare.com/filmora/article-images/display-avatar-style.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select different features in tabs for hair, eyes, headwear to make the custom memoji look just like you. Click Confirmto save it.
 
@@ -4133,6 +4153,13 @@ Let's see how to make memoji talk on Android phones-
 
 ![Save Talking Memoji Video](https://images.wondershare.com/filmora/article-images/save-talking-memoji-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus tip-Add Memoji to Your Video with Wondershare Filmora
 
 Wanna add emoji to your video? Now here is a bonus tip for you!
@@ -4515,5 +4542,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-a-step-by-step-approach-to-youtube-gold-music-reaction-magic/"><u>[New] 2024 Approved A Step-by-Step Approach to YouTube Gold Music Reaction Magic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-streams-switching-to-av1-in-youtubes-settings/"><u>[New] 2024 Approved Boosting Streams Switching to AV1 in YouTube's Settings</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-exploring-iphoneutility-mirror-photo-mastery-tips/"><u>[New] Exploring iPhone'utility Mirror Photo Mastery Tips</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-get-ready-to-save-space-with-these-38-exceptional-android-compressor-apps/"><u>[New] Get Ready to Save Space with These 38 Exceptional Android Compressor Apps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-exceptional-power-for-gopro-hero5-official-sources-and-alternatives/"><u>2024 Approved Exceptional Power for GoPro Hero5 Official Sources & Alternatives</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-top-10-storyboarding-software/"><u>2024 Approved Top 10 Storyboarding Software</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-meme-step-by-step/"><u>How to Make a Meme (Step by Step)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-video-meme-with-4-best-meme-video-makers/"><u>How to Make a Video Meme with 4 Best Meme Video Makers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-from-iphone-11-pro-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account From iPhone 11 Pro?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Infinix Note 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/is-it-feasible-to-operate-multiple-channels-on-youtube-at-once/"><u>Is It Feasible to Operate Multiple Channels on YouTube at Once?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-burn-photos-to-dvd-how-to-burn-photos-to-dvd-with-transitions-and-music-for-2024/"><u>New Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-the-essential-guide-to-emoji-memoji-animoji-and-bitmoji-for-2024/"><u>New The Essential Guide to Emoji, Memoji, Animoji, and Bitmoji for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nsider-guide-to-regular-broadcast-etiquette/"><u>The Insider Guide to Regular Broadcast Etiquette</u></a></li>
+</ul></div>
 
