@@ -1,7 +1,7 @@
 ---
 title: New In 2024, Mocking Sponge Bob Meme Generator
-date: 2024-09-23T04:26:07.826Z
-updated: 2024-09-25T21:04:02.210Z
+date: 2024-09-29T20:28:00.888Z
+updated: 2024-09-30T20:37:21.111Z
 tags: 
   - ai
   - animation videos
@@ -337,6 +337,82 @@ Above are the steps to make a photo collage using iPhoto on Mac/iPhone. We also 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+iPhoto is a photo library familiar to iOS users. It can help you easily organize, store and sort images, and even make a slide show to help you enjoy photos. This is why, even though Apple no longer develops iPhoto, some people use it.
+
+**Update:** On April 8, 2015, Apple has launched a new Photos app on OS X Yosemite, which means Apple has stopped developing iPhoto. However, if you like iPhoto, you can still use it.
+
+The following will introduce how to use the iPhoto collage maker on Mac or iPhone. At the end of this article, iPhoto alternative software will serve as your reference.
+
+* **[Part 1: How to Make a Photo Collage in iPhoto?](#part1)**
+* **[Part 2: What Replaces iPhoto on Mac/iPhone?](#part2)**
+
+## Part 1: How to Make a Photo Collage in iPhoto?
+
+Here are the quick steps to create a photo collage with iPhoto.
+
+**Step 1:** Launch iPhoto and click “Events” in the side menu.
+
+**Step 2:** Hold “Shift” and click each photo you want to include in your photo collage.
+
+**Step 3:** Click the “+” button in the lower-left corner and select **Card** in the pop-up window.
+
+![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-add-image.JPG)
+
+**Step 4:** Choose “Picture Collage”, which should be under the **Any Occasion** section if you are using the iPhoto 11.
+
+**Step 5:** You’ll notice that all the templates are sorted based on the occasion.
+
+**Step 6:** Drag photos to the template and pick a background, orientation and design.
+
+![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-drag-photo.JPG)
+
+**Step 7:** Click the **Buy** button on the lower right-hand corner of the collage editor, or go to the **Share** menu and email it to yourself or family members.
+
+But before you make a photo collage using iPhoto, here are some important things for you to know:
+
+1. Technically, iPhoto can’t make fancy photo collages like other Photo collages makers on Mac. So don’t expect too much of it. iPhoto only creates greeting cards with a simple collage layout.
+2. The templates iPhoto offers are quite limited and ordinary that you might feel a little disappointed.
+3. iPhoto offers no share options to save photo collages to desktop or to post on Facebook, which is a basic feature of picture collage editor.
+
+## Part 2: What Replaces iPhoto on Mac/iPhone?
+
+Since iPhoto's functions are not sufficient, we will introduce some alternative collage makers that you may be interested in.
+
+### Alternative to Make a Short Video, Slideshow, or Photo Collage: Wondershare Filmora
+
+If there are too many photos to save or share with friends and family, you can use these images to make short videos to better collage and share. Filmora can do this for you, through which you can easily crop, add effects, split the screen, and merge photos. In order to make the "photo video" lively and exciting, you can also add music, audio, animation, title, music, etc. to it.
+
+[![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Alternative to Organize, Store, and Sort Images: iCloud
+
+Migrating your photos to iCloud is a wise choice. iCloud is the best photo storage for iOS or Mac users. You don't need to download other apps or software. Just allow iCloud to back up the photo's library in the settings.
+
+The best thing is that you can view iCloud photos anytime and anywhere after logging in to your iCloud account. You can also automatically share photos with others by opening "Shared Album". However, if there are too many photos, a paid subscription may be required to upgrade the storage space.
+
+### Conclusion
+
+Above are the steps to make a photo collage using iPhoto on Mac/iPhone. We also list alternative methods to meet the different needs of the Photo library. So, if this isn’t quite what you’re looking for, you can also use some [online photo collage service](https://tools.techidaily.com/wondershare/fotophire/download/) instead. If you want to have more fun editing photo stories, welcome to download Filmora and make more memorable and interesting videos.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -357,10 +433,10 @@ The following will introduce how to use the iPhoto collage maker on Mac or iPhon
 * **[Part 2: What Replaces iPhoto on Mac/iPhone?](#part2)**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: How to Make a Photo Collage in iPhoto?
@@ -470,74 +546,12 @@ If there are too many photos to save or share with friends and family, you can u
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-### Alternative to Organize, Store, and Sort Images: iCloud
-
-Migrating your photos to iCloud is a wise choice. iCloud is the best photo storage for iOS or Mac users. You don't need to download other apps or software. Just allow iCloud to back up the photo's library in the settings.
-
-The best thing is that you can view iCloud photos anytime and anywhere after logging in to your iCloud account. You can also automatically share photos with others by opening "Shared Album". However, if there are too many photos, a paid subscription may be required to upgrade the storage space.
-
-### Conclusion
-
-Above are the steps to make a photo collage using iPhoto on Mac/iPhone. We also list alternative methods to meet the different needs of the Photo library. So, if this isn’t quite what you’re looking for, you can also use some [online photo collage service](https://tools.techidaily.com/wondershare/fotophire/download/) instead. If you want to have more fun editing photo stories, welcome to download Filmora and make more memorable and interesting videos.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-iPhoto is a photo library familiar to iOS users. It can help you easily organize, store and sort images, and even make a slide show to help you enjoy photos. This is why, even though Apple no longer develops iPhoto, some people use it.
-
-**Update:** On April 8, 2015, Apple has launched a new Photos app on OS X Yosemite, which means Apple has stopped developing iPhoto. However, if you like iPhoto, you can still use it.
-
-The following will introduce how to use the iPhoto collage maker on Mac or iPhone. At the end of this article, iPhoto alternative software will serve as your reference.
-
-* **[Part 1: How to Make a Photo Collage in iPhoto?](#part1)**
-* **[Part 2: What Replaces iPhoto on Mac/iPhone?](#part2)**
-
-## Part 1: How to Make a Photo Collage in iPhoto?
-
-Here are the quick steps to create a photo collage with iPhoto.
-
-**Step 1:** Launch iPhoto and click “Events” in the side menu.
-
-**Step 2:** Hold “Shift” and click each photo you want to include in your photo collage.
-
-**Step 3:** Click the “+” button in the lower-left corner and select **Card** in the pop-up window.
-
-![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-add-image.JPG)
-
-**Step 4:** Choose “Picture Collage”, which should be under the **Any Occasion** section if you are using the iPhoto 11.
-
-**Step 5:** You’ll notice that all the templates are sorted based on the occasion.
-
-**Step 6:** Drag photos to the template and pick a background, orientation and design.
-
-![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-drag-photo.JPG)
-
-**Step 7:** Click the **Buy** button on the lower right-hand corner of the collage editor, or go to the **Share** menu and email it to yourself or family members.
-
-But before you make a photo collage using iPhoto, here are some important things for you to know:
-
-1. Technically, iPhoto can’t make fancy photo collages like other Photo collages makers on Mac. So don’t expect too much of it. iPhoto only creates greeting cards with a simple collage layout.
-2. The templates iPhoto offers are quite limited and ordinary that you might feel a little disappointed.
-3. iPhoto offers no share options to save photo collages to desktop or to post on Facebook, which is a basic feature of picture collage editor.
-
-## Part 2: What Replaces iPhoto on Mac/iPhone?
-
-Since iPhoto's functions are not sufficient, we will introduce some alternative collage makers that you may be interested in.
-
-### Alternative to Make a Short Video, Slideshow, or Photo Collage: Wondershare Filmora
-
-If there are too many photos to save or share with friends and family, you can use these images to make short videos to better collage and share. Filmora can do this for you, through which you can easily crop, add effects, split the screen, and merge photos. In order to make the "photo video" lively and exciting, you can also add music, audio, animation, title, music, etc. to it.
-
-[![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Alternative to Organize, Store, and Sort Images: iCloud
 
@@ -865,6 +879,13 @@ For instance, the frustration of a father is making him invest. The memes show a
 
 ![memeeconomy](https://images.wondershare.com/filmora/article-images/MemeEconomy.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. /r/ComedyCemetery
 
 /r/ComedyCemetery is one of the funniest subreddit where the memes are shared by people and mocked them to try out their humor. To start with, users usually share internet culture pieces.
@@ -906,13 +927,6 @@ For instance, when the star war movie is about to start at 7.45 and at 7.40 you 
 For instance, a long-haired dead man was found standing behind a man working on the computer and his camera captured the image. It is thought to be a cursed image and if not liked and shared, it can bring ill-fate to you, or the dead person will be in your room at night.
 
 ![pewdiepiesubmissions](https://images.wondershare.com/filmora/article-images/PewdiepieSubmissions.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9. /r/funny
 
@@ -1002,19 +1016,6 @@ Here's how to create an awesome custom Slack emoji-
 
 ![Add Custom Slack Emoji](https://images.wondershare.com/filmora/article-images/add-custom-slack-emoji.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3.Here you can upload any image to make your custom Slack emoji. Click on **Upload** **Image** to select a file.
 
 ![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
@@ -1107,34 +1108,34 @@ Here's how to create an awesome custom Slack emoji-
 
 ![Add Custom Slack Emoji](https://images.wondershare.com/filmora/article-images/add-custom-slack-emoji.jpg)
 
-3.Here you can upload any image to make your custom Slack emoji. Click on **Upload** **Image** to select a file.
-
-![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
-
-4.Then, give your emoji a name so you can easily find the custom Slack emoji while chatting. Click **Save** to finish.
-
-![Name Slack Emoji](https://images.wondershare.com/filmora/article-images/name-slack-emoji.jpg)
-
-5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
-
-![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
-
-## Bonus Tip-Edit Emoji and Add Emoji to Your Video
-
-Now, let me present a top-notch video editor to help you add Slack emoji to your video without needing any editing experience.
-
-Wondershare Filmora is a powerful video editor with a highly intuitive interface. It is loaded with high-end editing tools that are incredibly easy to use. You can add keyframe animations to make your videos more dynamic with a single click. Motion tracking allows you to track the specified object's movements throughout the video, even allowing you to blur certain parts of the video. From the Effects tab, you can add cinematic effects to your videos, or you can easily color match all your scenes with one tap or apply noise reduction.
-
-If you wish to edit or add custom Slack emoji to your video, you can import the image to Filmora and then drag it to the track above the video in the timeline. You can then add animations or motion tracking to adjust the custom Slack emoji. Cool transitions and color adjustments can also be made to make the video more appealing and unique. Special effects or catchy captions are just a tap away to help you create stunning videos
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+3.Here you can upload any image to make your custom Slack emoji. Click on **Upload** **Image** to select a file.
+
+![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
+
+4.Then, give your emoji a name so you can easily find the custom Slack emoji while chatting. Click **Save** to finish.
+
+![Name Slack Emoji](https://images.wondershare.com/filmora/article-images/name-slack-emoji.jpg)
+
+5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
+
+![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
+
+## Bonus Tip-Edit Emoji and Add Emoji to Your Video
+
+Now, let me present a top-notch video editor to help you add Slack emoji to your video without needing any editing experience.
+
+Wondershare Filmora is a powerful video editor with a highly intuitive interface. It is loaded with high-end editing tools that are incredibly easy to use. You can add keyframe animations to make your videos more dynamic with a single click. Motion tracking allows you to track the specified object's movements throughout the video, even allowing you to blur certain parts of the video. From the Effects tab, you can add cinematic effects to your videos, or you can easily color match all your scenes with one tap or apply noise reduction.
+
+If you wish to edit or add custom Slack emoji to your video, you can import the image to Filmora and then drag it to the track above the video in the timeline. You can then add animations or motion tracking to adjust the custom Slack emoji. Cool transitions and color adjustments can also be made to make the video more appealing and unique. Special effects or catchy captions are just a tap away to help you create stunning videos
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ### Conclusion
 
@@ -1309,13 +1310,6 @@ Here's how to create an awesome custom Slack emoji-
 5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
 
 ![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus Tip-Edit Emoji and Add Emoji to Your Video
 
@@ -1607,13 +1601,6 @@ If you want to use Bitmoji on Windows and Mac, you will have to use the Google C
 
 After you are done following the three easy steps, you will see Bitmoji is installed. To start using it, move the cursor to the upper corner of the browser and click on the Bitmoji icon. Next, you will see the Bitmojis. Choose any Bitmoji, copy it, and paste it on Gmail or instant messaging applications.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: Where can You Use Bitmoji?
 
 Bitmojis can be used on different platforms. All you need to do is enable Bitmoji keyboard on your iPhone or Android phone or Windows and Mac computers and use it on various social media platforms. For example, use Snapchat to send Bitmojis for different types of occasions.
@@ -1688,13 +1675,6 @@ Bitmoji is available for Android users as well. Before you begin to use it, go t
 
 You are all done. Now, use the Bitmoji keyboard to chat with your family members and friends and make everything fun and exciting.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: How to Install and Use Bitmoji on Windows and Mac?
 
 If you want to use Bitmoji on Windows and Mac, you will have to use the Google Chrome browser. If you already have the Google Chrome browser, carry on with the steps explained below; otherwise, get the browser before starting.
@@ -1753,110 +1733,13 @@ Although emojis are present in some form or the other since the mid-‘90s, they
 
 With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
 
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
 ## Part 2: How to Use Emojis with Keyboard Shortcuts
 
 A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
@@ -2013,6 +1896,110 @@ In Windows 11, although you can launch the emojis keyboard using the same shortc
 * **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
 
 In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Get More Emojis in Windows 11
 
@@ -2195,6 +2182,13 @@ As an owner of a Discord channel, it is easy for you to add emoji to Discord. Fo
 * Select "Save Changes" to save the name with the emoji.
 
 ![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
 
@@ -2742,17 +2736,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-add-a-professional-touch-youtube-video-image-crafting/"><u>[New] Add a Professional Touch YouTube Video Image Crafting</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-open-air-fb-audio-downloads/"><u>[Updated] Open Air FB Audio Downloads</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/10-trending-memes-right-now-include-image-gifvideo-for-2024/"><u>10 Trending Memes Right Now (Include Image/ GIF/Video) for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-best-photo-slideshow-maker-how-to-make-a-photo-slideshow/"><u>2024 Approved Best Photo Slideshow Maker How to Make a Photo Slideshow</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/digital-scrutiny-vll-app-evaluation/"><u>Digital Scrutiny VLL App Evaluation</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-photo-collage-on-maciphone-using-iphoto/"><u>In 2024, How to Make a Photo Collage on Mac/iPhone Using iPhoto?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-oppo-a1-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Oppo A1 5G to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/pay-attention-focus-fully-on-the-speaker-avoid-distractions-and-show-interest-in-what-theyre-saying-for-2024/"><u>Pay Attention Focus Fully on the Speaker, Avoid Distractions, and Show Interest in What They're Saying for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/types-of-drones-explore-different-types-of-drones/"><u>Types of Drones Explore Different Types of Drones</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-best-10-emoji-makers-to-create-your-own-emojis-pconlineandroidiphone-for-2024/"><u>Updated Best 10 Emoji Makers to Create Your Own Emojis PC/Online/Android/iPhone for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-top-5-best-websites-to-add-emojis-to-photo-online-for-2024/"><u>Updated Top 5 Best Websites to Add Emojis to Photo Online for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ailor-made-melodies-assembling-your-own-youtube-playlist/"><u>[New] Tailor-Made Melodies Assembling Your Own YouTube Playlist</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-top-pick-for-new-dronists-a-deep-look-at-syma-x5c/"><u>[New] The Top Pick for New Dronists – A Deep Look at Syma X5C</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-pulse-finder-your-free-online-music-buddy/"><u>[Updated] The Pulse Finder – Your Free, Online Music Buddy</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-use-emojis-on-windows-10-and-windows-11/"><u>2024 Approved How to Use Emojis on Windows 10 and Windows 11?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/best-emoji-removers-to-remove-emojis-from-pictures-onlinepcmobile-for-2024/"><u>Best Emoji Removers to Remove Emojis From Pictures Online/PC/Mobile for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/best-websites-to-add-emojis-to-photos-online-for-2024/"><u>Best Websites to Add Emojis to Photos Online for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-8-best-meme-maker-app-to-create-memes-with-your-own-picture/"><u>In 2024, 8 Best Meme Maker App to Create Memes with Your Own Picture</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-motorola-razr-40-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Motorola Razr 40 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-8-best-meme-maker-app-to-create-memes-with-your-own-picture-for-2024/"><u>New 8 Best Meme Maker App to Create Memes with Your Own Picture for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-best-emoji-removers-to-remove-emojis-from-pictures-onlinepcmobile/"><u>New In 2024, Best Emoji Removers to Remove Emojis From Pictures Online/PC/Mobile</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-high-dpi-screen-challenges-on-windows/"><u>Overcoming High DPI Screen Challenges on Windows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-blueprint-to-elevate-your-flight-with-fpv-drone-blades/"><u>The Ultimate Blueprint to Elevate Your Flight with FPV Drone Blades</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-solved-establishing-a-stable-connection-with-steam-servers/"><u>Troubleshooting Solved: Establishing a Stable Connection with Steam Servers</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-toms-gadget-reviews-the-ultimate-guide-to-hardware-innovations/"><u>Unveiling Tom's Gadget Reviews: The Ultimate Guide to Hardware Innovations</u></a></li>
 </ul></div>
 

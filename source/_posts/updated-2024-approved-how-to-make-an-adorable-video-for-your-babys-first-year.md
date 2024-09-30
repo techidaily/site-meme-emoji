@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved How to Make an Adorable Video for Your Babys First Year
-date: 2024-09-21T00:55:19.661Z
-updated: 2024-09-25T20:49:25.005Z
+date: 2024-09-29T18:57:31.160Z
+updated: 2024-09-30T17:32:23.708Z
 tags: 
   - ai
   - animation videos
@@ -577,13 +577,6 @@ Cereal Killer is one of the most hilarious and well-thought-out **Minion memes**
 
 Source: sidomexentertainment.com
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.Fall in Love
 
 You will fall in love with this funny Facebook Minion meme. It begins slow; you can't tell where it is heading to but grow; you are on the rolling floor.
@@ -629,140 +622,6 @@ Nothing like a finger-licking dish for a healthy "roasted dinner."
 So what’s the fastest way to get down the children? Well, that can be the mobile hotspot. Turn that beautiful technology on and look for the children to rush you for the password… True?
 
 ![mum hack minion meme](https://images.wondershare.com/filmora/article-images/2021/mum-hack-minion-meme.jpg)
-
-## Part 3: Create Memes with a Free Minion Meme Generator
-
-With memes taking over entirely famous culture, you may be looking for a minion meme generator for yourself. By considering the use o meme maker, you can do just that ![**Filmora meme maker**](https://tools.techidaily.com/wondershare/filmora/download/) is a free minion meme generator without a watermark.
-
-Also, there's no need to log in or sign up first to use it. It supports importing an image, video, and GIF in one place. Just drag them to import, so simple to use. Essentially, if you want to choose a black or white background to input a caption, the Filmora minion meme generator can help you quickly.
-
-You can change the text color, size, and position of your meme.
-
-After editing is over, it allows you to export your work within a few seconds. In addition, you can also freely upload to some social media platforms, like IG, FB, and others.
-
-* Enter text anywhere (inside and outside of image)
-* Support exporting to popular video and photo formats, such as jpg, png, gif, mp4
-* It is entirely free to use, without any subscription cost.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-### Conclusion
-
-Finally, we all agree that Minions, undoubtedly, are adorable short-sized, yellow, and clumsy but cute creatures, which, if used properly for minion memes, can motivate, cheer and improve a person's mood. They always try to shove in distinct words that generally make it a blow-off. And that can be awkward and odd as well.
-
-However, as a bonus tip, we've mentioned all kinds of minion memes, including a free minion meme generator. So, try out these special memes through meme generators and let us know if you find our content helpful and valuable.
-
-![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-Liza Brown
-
-Liza Brown is a writer and a lover of all things video.
-
-Follow @Liza Brown
-
-##### Liza Brown
-
- Mar 27, 2024• Proven solutions
-
-Minions have successfully occupied global pop culture. In 2015, Universal Pictures made a record by spending $600 million on Minions marketing, partnering with Tic Tac, Converse, Amazon, and McDonald's. In addition, minions were an inspiration for numerous products, creating a kind of signifier for their film and signifying a sense that they were “freaking everywhere.”
-
-They've also infiltrated the Internet. The Minions' abstractness let them known as ripe for meme-ing, which you can combine with any joke, idiom, or feeling.
-
-A **Minion meme** is rarely crude, and generally, they are helpful for self-deprecating jabs or fart-jokes at one's cooking.
-
-Leading with the fact, we'll discuss all the minion memes, how to make them, and their different types.
-
-* [Part 1: Who Invented Minion Memes?](#part1)
-* [Part 2: Top 10 Minion Memes of 2021](#part2)
-* [Part 3: Create Memes with a Free Minion Meme Generator](#part3)
-
-## Part 1: Who Invented Minion Memes?
-
-Who is to blame for pushing things down my throat day after day? It would be simple enough to blame Obama, Universal Studios, or even the guy who invented Minions, **Pierre Coffin**. But none of them is actually at fault. They were only providing humankind with the weapon, and humanity chose to use that evil weapon.
-
-There have been loads of discussions about how Minions have dishonored the excellent name of the meme, rendering humor and creativity obsolete. But we are still entirely astonished as to why Minions shine from the big screen and leaked all over smartphones.
-
-## Part 2: Top 10 Minion Memes of 2021
-
-The delayed-release **"Minions: The Rise of Gru"** is no laughing concern, but there'll be miles into smiles with or top collection of minion memes that include all **funny minion memes**, **Facebook minion memes**, and more.
-
-So, let’s dive into them without further ado!
-
-### 1.Magnetos
-
-We are all familiar with the “X-Men” installations/movies and the sometimes the supervillain and evil-doer Magneto, who is smart enough to control iron?
-
-![magneto minion meme](https://images.wondershare.com/filmora/article-images/2021/magnetos-minion-meme.jpg)
-
-Source: sidomexentertainment.com
-
-### 2.Cereal Killer
-
-Cereal Killer is one of the most hilarious and well-thought-out **Minion memes** on the list.
-
-![cereal killer minion meme](https://images.wondershare.com/filmora/article-images/2021/cereal-killer-minion-meme.jpg)
-
-Source: sidomexentertainment.com
-
-### 3.Fall in Love
-
-You will fall in love with this funny Facebook Minion meme. It begins slow; you can't tell where it is heading to but grow; you are on the rolling floor.
-
-![love minion meme](https://images.wondershare.com/filmora/article-images/2021/love-minion-meme.jpg)
-
-### 4.A Minion poem
-
-What’s the best way to include this cute, crazy evil minion poem? Enjoy!
-
-![minion poem](https://images.wondershare.com/filmora/article-images/2021/minion-poem.jpg)
-
-### 5.Your Minions Would Like to Say Happy Birthday!!! - Happy Birthday Minion Meme
-
-![birthday minion meme](https://images.wondershare.com/filmora/article-images/2021/birthday-minion-meme.jpg)
-
-Source: 2happybirthday.com
-
-### 6.Happy Birthday!! You are on in a Minion - Happy Birthday Minion Meme
-
-![happy birthday minion meme](https://images.wondershare.com/filmora/article-images/2021/happy-birthday-minion-meme.jpg)
-
-### 7.Chasing my dream
-
-You know, when people act some fantastic stuff but mean something else, like when they say "would die" if they don't eat that Chicken kebab! Even though it uses the literal word, it does not mean they die over a chicken wing piece; they exaggerate.
-
-![chasing dream minion meme](https://images.wondershare.com/filmora/article-images/2021/chasing-dream-minion-meme.jpg)
-
-### 8.A Vegan Zombie
-
-Ever met a zombie that hates meat? The one who likes to eat earthworms, grass, and grubs? Have you encountered a zombie? Well, we haven’t.
-
-![vegan zombie](https://images.wondershare.com/filmora/article-images/2021/vegan-zombie.jpg)
-
-### 9.Best Cook
-
-Nothing like a finger-licking dish for a healthy "roasted dinner."
-
-![best cook minion meme](https://images.wondershare.com/filmora/article-images/2021/best-cook-minion-meme.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-### 10.Mum Hack
-
-So what’s the fastest way to get down the children? Well, that can be the mobile hotspot. Turn that beautiful technology on and look for the children to rush you for the password… True?
-
-![mum hack minion meme](https://images.wondershare.com/filmora/article-images/2021/mum-hack-minion-meme.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Create Memes with a Free Minion Meme Generator
 
@@ -973,6 +832,133 @@ What’s the best way to include this cute, crazy evil minion poem? Enjoy!
 ### 5.Your Minions Would Like to Say Happy Birthday!!! - Happy Birthday Minion Meme
 
 ![birthday minion meme](https://images.wondershare.com/filmora/article-images/2021/birthday-minion-meme.jpg)
+
+Source: 2happybirthday.com
+
+### 6.Happy Birthday!! You are on in a Minion - Happy Birthday Minion Meme
+
+![happy birthday minion meme](https://images.wondershare.com/filmora/article-images/2021/happy-birthday-minion-meme.jpg)
+
+### 7.Chasing my dream
+
+You know, when people act some fantastic stuff but mean something else, like when they say "would die" if they don't eat that Chicken kebab! Even though it uses the literal word, it does not mean they die over a chicken wing piece; they exaggerate.
+
+![chasing dream minion meme](https://images.wondershare.com/filmora/article-images/2021/chasing-dream-minion-meme.jpg)
+
+### 8.A Vegan Zombie
+
+Ever met a zombie that hates meat? The one who likes to eat earthworms, grass, and grubs? Have you encountered a zombie? Well, we haven’t.
+
+![vegan zombie](https://images.wondershare.com/filmora/article-images/2021/vegan-zombie.jpg)
+
+### 9.Best Cook
+
+Nothing like a finger-licking dish for a healthy "roasted dinner."
+
+![best cook minion meme](https://images.wondershare.com/filmora/article-images/2021/best-cook-minion-meme.jpg)
+
+### 10.Mum Hack
+
+So what’s the fastest way to get down the children? Well, that can be the mobile hotspot. Turn that beautiful technology on and look for the children to rush you for the password… True?
+
+![mum hack minion meme](https://images.wondershare.com/filmora/article-images/2021/mum-hack-minion-meme.jpg)
+
+## Part 3: Create Memes with a Free Minion Meme Generator
+
+With memes taking over entirely famous culture, you may be looking for a minion meme generator for yourself. By considering the use o meme maker, you can do just that ![**Filmora meme maker**](https://tools.techidaily.com/wondershare/filmora/download/) is a free minion meme generator without a watermark.
+
+Also, there's no need to log in or sign up first to use it. It supports importing an image, video, and GIF in one place. Just drag them to import, so simple to use. Essentially, if you want to choose a black or white background to input a caption, the Filmora minion meme generator can help you quickly.
+
+You can change the text color, size, and position of your meme.
+
+After editing is over, it allows you to export your work within a few seconds. In addition, you can also freely upload to some social media platforms, like IG, FB, and others.
+
+* Enter text anywhere (inside and outside of image)
+* Support exporting to popular video and photo formats, such as jpg, png, gif, mp4
+* It is entirely free to use, without any subscription cost.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Conclusion
+
+Finally, we all agree that Minions, undoubtedly, are adorable short-sized, yellow, and clumsy but cute creatures, which, if used properly for minion memes, can motivate, cheer and improve a person's mood. They always try to shove in distinct words that generally make it a blow-off. And that can be awkward and odd as well.
+
+However, as a bonus tip, we've mentioned all kinds of minion memes, including a free minion meme generator. So, try out these special memes through meme generators and let us know if you find our content helpful and valuable.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+Minions have successfully occupied global pop culture. In 2015, Universal Pictures made a record by spending $600 million on Minions marketing, partnering with Tic Tac, Converse, Amazon, and McDonald's. In addition, minions were an inspiration for numerous products, creating a kind of signifier for their film and signifying a sense that they were “freaking everywhere.”
+
+They've also infiltrated the Internet. The Minions' abstractness let them known as ripe for meme-ing, which you can combine with any joke, idiom, or feeling.
+
+A **Minion meme** is rarely crude, and generally, they are helpful for self-deprecating jabs or fart-jokes at one's cooking.
+
+Leading with the fact, we'll discuss all the minion memes, how to make them, and their different types.
+
+* [Part 1: Who Invented Minion Memes?](#part1)
+* [Part 2: Top 10 Minion Memes of 2021](#part2)
+* [Part 3: Create Memes with a Free Minion Meme Generator](#part3)
+
+## Part 1: Who Invented Minion Memes?
+
+Who is to blame for pushing things down my throat day after day? It would be simple enough to blame Obama, Universal Studios, or even the guy who invented Minions, **Pierre Coffin**. But none of them is actually at fault. They were only providing humankind with the weapon, and humanity chose to use that evil weapon.
+
+There have been loads of discussions about how Minions have dishonored the excellent name of the meme, rendering humor and creativity obsolete. But we are still entirely astonished as to why Minions shine from the big screen and leaked all over smartphones.
+
+## Part 2: Top 10 Minion Memes of 2021
+
+The delayed-release **"Minions: The Rise of Gru"** is no laughing concern, but there'll be miles into smiles with or top collection of minion memes that include all **funny minion memes**, **Facebook minion memes**, and more.
+
+So, let’s dive into them without further ado!
+
+### 1.Magnetos
+
+We are all familiar with the “X-Men” installations/movies and the sometimes the supervillain and evil-doer Magneto, who is smart enough to control iron?
+
+![magneto minion meme](https://images.wondershare.com/filmora/article-images/2021/magnetos-minion-meme.jpg)
+
+Source: sidomexentertainment.com
+
+### 2.Cereal Killer
+
+Cereal Killer is one of the most hilarious and well-thought-out **Minion memes** on the list.
+
+![cereal killer minion meme](https://images.wondershare.com/filmora/article-images/2021/cereal-killer-minion-meme.jpg)
+
+Source: sidomexentertainment.com
+
+### 3.Fall in Love
+
+You will fall in love with this funny Facebook Minion meme. It begins slow; you can't tell where it is heading to but grow; you are on the rolling floor.
+
+![love minion meme](https://images.wondershare.com/filmora/article-images/2021/love-minion-meme.jpg)
+
+### 4.A Minion poem
+
+What’s the best way to include this cute, crazy evil minion poem? Enjoy!
+
+![minion poem](https://images.wondershare.com/filmora/article-images/2021/minion-poem.jpg)
+
+### 5.Your Minions Would Like to Say Happy Birthday!!! - Happy Birthday Minion Meme
+
+![birthday minion meme](https://images.wondershare.com/filmora/article-images/2021/birthday-minion-meme.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Source: 2happybirthday.com
 
@@ -1112,6 +1098,13 @@ Follow @Shanoon Cox
 
 ![best slideshow software, photo slideshow creator](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2\. Customize the slideshow like background music and transitions
 
  When importing your files, more than 100 transition effects will be randomly and automatically applied between every two photo or video. However, you can change them anytime in the "Personalize" tab. Just drag and drop a transition from the list to the thumbnail between two slides. You can also add effects, motion or intro/credit as you like.
@@ -1127,6 +1120,13 @@ Follow @Shanoon Cox
  Go to the "Create" tab and click the "Preview" button to make sure the photo slideshow is good enough. Go back to Personalize tab to change if necessary. When you are happy with the result, choose the options on the left to export photo slideshow to DVD, PC, portable devices, etc. You can also directly upload slideshow to Youtube and send message to Facebook and Twitter friends.
 
 ![photo slideshow making software](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Now sit back and relax, it'll only take a while to get your photo slideshow for sharing anywhere.
 
@@ -1472,6 +1472,13 @@ Adding emoji to videos has been a trend for some time. It is fun as well as allo
 
 ![download animated emoji](https://images.wondershare.com/filmora/article-images/download-animated-emoji-pack2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Select the emoji you like and drag and drop it just above the video on your timeline.
 
 ![add emoji to timeline](https://images.wondershare.com/filmora/article-images/add-emoji-to-videos.jpg)
@@ -1985,10 +1992,10 @@ Adding emoji to videos has been a trend for some time. It is fun as well as allo
 ![find free emoji](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4\. Or you can go to [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) (Filmora's effects store), find the free Animated Emoji Pack and download more emojis.
@@ -2006,13 +2013,6 @@ Adding emoji to videos has been a trend for some time. It is fun as well as allo
 7\. After that, tap on the Export tab and save the video to any location of your choice.
 
 ![export animated emoji video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -2083,6 +2083,13 @@ This is where the emoji makers come in. Here we will discuss the top 10 emoji ma
 [piZap Emoji Maker](https://www.pizap.com/emoji%5Fmaker) is an online editor that has extensive emoji features that can help you to create awesome emojis. However, before you can do something, a mandatory signing in is required by this editor.
 
 ![pizap emoji maker](https://images.wondershare.com/filmora/article-images/2-pizap-emoji-maker.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Price:**
 
@@ -2357,102 +2364,12 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 
 ![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
 
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
 
@@ -2461,136 +2378,233 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 * Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
 
 ![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
 
 * Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
 
@@ -2876,13 +2890,6 @@ For macOS 10.12 or later
 
 ![add your own emoji to photo](https://images.wondershare.com/filmora/article-images/add-your-own-emoji-to-photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For Win 7 or later (64-bit)
@@ -3067,13 +3074,6 @@ For Win 7 or later (64-bit)
 For macOS 10.12 or later
 
 Besides adding emojis to photos or videos, you can also [add stickers to videos](https://tools.techidaily.com/wondershare/filmora/download/) in Filmora to have fun.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -3445,20 +3445,22 @@ And that's how you can **add** an **emoji to** a **photo online** easily. You ca
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-emulate-elegance-the-premier-selection-of-ps1-emulators-for-pc-for-2024/"><u>[New] Emulate Elegance The Premier Selection of PS1 Emulators for PC for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-essential-techniques-for-tiktok-response-vids-for-2024/"><u>[New] Essential Techniques for TikTok Response Vids for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-a-step-by-step-guide-to-leveraging-the-whiteboard-feature-in-remote-tech-sessions/"><u>[New] In 2024, A Step-by-Step Guide to Leveraging the Whiteboard Feature in Remote Tech Sessions</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-a-critical-review-of-top-no-cost-video-communication-apps-iosandroid/"><u>[Updated] 2024 Approved A Critical Review of Top No-Cost Video Communication Apps (iOS/Android)</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-how-to-preserve-your-roblox-experience-with-flawless-recording-mac/"><u>[Updated] How to Preserve Your Roblox Experience with Flawless Recording (Mac)</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-finding-equilibrium-between-professional-life-and-youtubing/"><u>2024 Approved Finding Equilibrium Between Professional Life and YouTubing</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-add-emojis-to-discord-on-desktop-computer-and-mobile/"><u>2024 Approved How to Add Emojis To Discord on Desktop Computer and Mobile</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-xiaomi-redmi-13c-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Xiaomi Redmi 13C 5G Safely | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-record-your-memorable-honeymoon-video-for-2024/"><u>How to Record Your Memorable Honeymoon Video for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>In 2024, 10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-what-is-emoji-and-what-does-it-mean/"><u>New 2024 Approved What Is Emoji and What Does It Mean?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-use-emojis-on-windows/"><u>New How to Use Emojis on Windows</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>Updated In 2024, 10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-free-10-websites-to-watch-cartoon-online-in-hd/"><u>Updated In 2024, FREE 10 Websites to Watch Cartoon Online in HD</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-dazzle-and-stand-out-50-free-youtube-branding-pieces/"><u>[New] 2024 Approved Dazzle and Stand Out 50 FREE YouTube Branding Pieces</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-elevate-your-photos-free-online-and-app/"><u>[New] Elevate Your Photos - FREE Online and App</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-ideal-low-impact-recording-devices-for-eco-conscious-filmmakers/"><u>[Updated] In 2024, Ideal Low-Impact Recording Devices for Eco-Conscious Filmmakers</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>2024 Approved How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/s-all-subtitles-top-10-free-tools-for-youtube-videos-for-2024/"><u>Access All Subtitles Top 10 Free Tools for YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/curated-list-14-captivating-text-animation-showcases-for-2024/"><u>Curated List 14 Captivating Text Animation Showcases for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-flv-photo-slideshow/"><u>How to Make a FLV Photo Slideshow</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-video-slideshow-with-your-travel-photos/"><u>In 2024, How to Make Video Slideshow with Your Travel Photos</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-synthesizing-success-the-power-of-magix-samplitude/"><u>In 2024, Synthesizing Success The Power of Magix Samplitude</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-windows-movie-maker-for-animated-clips/"><u>Mastering Windows Movie Maker for Animated Clips</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-memoji-talk-make-memoji-video-on-your-own-for-2024/"><u>New How to Make Memoji Talk-Make Memoji Video On Your Own for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/revolutionize-your-designs-top-er-reviewed-by-experts-in-their-fields/"><u>Revolutionize Your Designs: Top Er Reviewed by Experts in Their Fields.</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/speedy-scripts-top-1-written-game-experiences-on-devices/"><u>Speedy Scripts Top 1 Written Game Experiences on Devices</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/top-10-free-emoji-websites-to-download-emojis-online-for-2024/"><u>Top 10 Free Emoji Websites to Download Emojis Online for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/top-6-animated-emoji-video-effects/"><u>Top 6 Animated Emoji Video Effects</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-10-emoji-makers-to-create-your-own-emojispconlineandroidiphone/"><u>Updated In 2024, Best 10 Emoji Makers to Create Your Own EmojisPC/Online/Android/iPhone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself/"><u>Updated In 2024, How to Make an Emoji of Yourself on Mobile ? Emoji Yourself</u></a></li>
 </ul></div>
 
