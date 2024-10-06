@@ -1,7 +1,7 @@
 ---
 title: Updated How to Use Emojis on Windows 10 and Windows 11 for 2024
-date: 2024-09-28T21:32:34.452Z
-updated: 2024-09-30T16:27:10.204Z
+date: 2024-10-04T20:10:56.978Z
+updated: 2024-10-06T05:27:46.724Z
 tags: 
   - ai
   - animation videos
@@ -110,6 +110,117 @@ If the built-in emoji library doesn’t contain your favorite expressions, you c
 
 ![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
 * Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
 
 ![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
@@ -162,10 +273,10 @@ As for the shortcuts, depending on the type of expression you want to convey, th
 **Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
@@ -285,13 +396,6 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 
 ![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: What’s New in Emojis in Windows 11
 
 In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
@@ -317,110 +421,6 @@ If the built-in emoji library doesn’t contain your favorite expressions, you c
 * Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
 
 ![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
 
@@ -508,69 +508,12 @@ Copy the image
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- The Distracted Boyfriend meme is the embodiment of the awkward situation we find ourselves in when we want something other than what we already have. The original image was taken by Antonio Guillem and posted on iStock with a caption "Disloyal man with his girlfriend looking at another girl". By early 2017, a few years after it was posted on iStock, the picture surfaced on social media, and it became a viral meme in a few short months. One of the first Distracted Boyfriend memes that featured a joke about staring at the sun during a solar eclipse was posted on Reddit and within 24 hours it gained 31.200 points.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-1.jpg)
-
- The meme has since become synonymous with being unfaithful to girlfriends, ideologies, scientific evidence, photo cameras or virtually anything else. Despite its popularity, it is still difficult to make a good Distracted Boyfriend meme, so let's have a look at some of the best versions of the meme that emerged on social networks.
-
- The Distracted Girlfriend meme became popular soon after the Distracted Boyfriend meme went viral. The photo belongs to the same series of images posted to iStock by Antonio Guillem.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-2.png)
-
-Copy the image
-
- The facial expression of the girl in the photo makes it perfect meme material because she looks as if she’s just about to risk it all and do what she wants. Both Boyfriend and Girlfriend versions of this meme contain text over each of the characters in the picture. If you have a similar dilemma you can make your own version effortlessly. Here’s how.
-
-## How to Make a Distracted Boyfriend Meme?
-
- Online meme generators often watermark the content you create or require you to sign in before you can make a meme, which is why we recommend using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/). The platform lets you generate memes for free, and it offers all the tools you’ll need to quickly make a watermark-free Distracted Boyfriend meme.
-
-#### 1\. Uploading the Image
-
- You can click the “Copy the image” link below and the image link will be copied automatically.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-meme.png)
-
-Copy the image
-
- Enter the URL into the box. Click on the Upload button and wait for the new page to load, so you can start making adjustments to the picture.
-
- If you saved the photo to your computer, you can click on the +icon once you arrive at the meme maker’s homepage and navigate to its destination on your hard drive.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-3.jpg)
-
-#### 2\. Adding Text to Memes
-
- The textual part of the Distracted Boyfriend meme is always incorporated into the photo, so make sure that the Text Inside option is selected and proceed to insert the text into the text boxes. Click on the Add Text Box button to add a third text box to the meme, and drag the text boxes displayed on the screen to their best positions.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-4.JPG)
-
- The Text Options menu lets you pick a font or change the color and the size of the text. It also offers the standard text alignment features, so you can easily rearrange the text.
-
-#### 3\. Downloading the Meme
-
- Click on the Create button once you finish customizing the text and wait for the new page to load.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-5.jpg)
-
-#### Conclusion
-
- Click on the download button to save the meme you created or use some of the file sharing options to post the meme on social media platforms if you are accessing the Online Meme Maker from a mobile device.
-
- The Distracted Boyfriend is one of the most popular memes in the last couple of years that has made us all laugh because we all understand how it feels to be tempted by the things we don’t have. Do you like generating the Distracted Boyfriend or Distracted Girlfriend memes? Leave a comment below and share your experiences with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -691,6 +634,77 @@ Copy the image
  Click on the Create button once you finish customizing the text and wait for the new page to load.
 
 ![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-5.jpg)
+
+#### Conclusion
+
+ Click on the download button to save the meme you created or use some of the file sharing options to post the meme on social media platforms if you are accessing the Online Meme Maker from a mobile device.
+
+ The Distracted Boyfriend is one of the most popular memes in the last couple of years that has made us all laugh because we all understand how it feels to be tempted by the things we don’t have. Do you like generating the Distracted Boyfriend or Distracted Girlfriend memes? Leave a comment below and share your experiences with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ The Distracted Boyfriend meme is the embodiment of the awkward situation we find ourselves in when we want something other than what we already have. The original image was taken by Antonio Guillem and posted on iStock with a caption "Disloyal man with his girlfriend looking at another girl". By early 2017, a few years after it was posted on iStock, the picture surfaced on social media, and it became a viral meme in a few short months. One of the first Distracted Boyfriend memes that featured a joke about staring at the sun during a solar eclipse was posted on Reddit and within 24 hours it gained 31.200 points.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-1.jpg)
+
+ The meme has since become synonymous with being unfaithful to girlfriends, ideologies, scientific evidence, photo cameras or virtually anything else. Despite its popularity, it is still difficult to make a good Distracted Boyfriend meme, so let's have a look at some of the best versions of the meme that emerged on social networks.
+
+ The Distracted Girlfriend meme became popular soon after the Distracted Boyfriend meme went viral. The photo belongs to the same series of images posted to iStock by Antonio Guillem.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-2.png)
+
+Copy the image
+
+ The facial expression of the girl in the photo makes it perfect meme material because she looks as if she’s just about to risk it all and do what she wants. Both Boyfriend and Girlfriend versions of this meme contain text over each of the characters in the picture. If you have a similar dilemma you can make your own version effortlessly. Here’s how.
+
+## How to Make a Distracted Boyfriend Meme?
+
+ Online meme generators often watermark the content you create or require you to sign in before you can make a meme, which is why we recommend using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/). The platform lets you generate memes for free, and it offers all the tools you’ll need to quickly make a watermark-free Distracted Boyfriend meme.
+
+#### 1\. Uploading the Image
+
+ You can click the “Copy the image” link below and the image link will be copied automatically.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-meme.png)
+
+Copy the image
+
+ Enter the URL into the box. Click on the Upload button and wait for the new page to load, so you can start making adjustments to the picture.
+
+ If you saved the photo to your computer, you can click on the +icon once you arrive at the meme maker’s homepage and navigate to its destination on your hard drive.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-3.jpg)
+
+#### 2\. Adding Text to Memes
+
+ The textual part of the Distracted Boyfriend meme is always incorporated into the photo, so make sure that the Text Inside option is selected and proceed to insert the text into the text boxes. Click on the Add Text Box button to add a third text box to the meme, and drag the text boxes displayed on the screen to their best positions.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-4.JPG)
+
+ The Text Options menu lets you pick a font or change the color and the size of the text. It also offers the standard text alignment features, so you can easily rearrange the text.
+
+#### 3\. Downloading the Meme
+
+ Click on the Create button once you finish customizing the text and wait for the new page to load.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -874,6 +888,13 @@ As the name indicates, [Disney Emoji Maker](https://lol.disney.com/games/disney-
 [Boomoji](https://boomoji.en.uptodown.com/android) is a free Android application that will allow you to create fun avatar type emoji of your choice.
 
 ![boomoji emoji maker](https://images.wondershare.com/filmora/article-images/8-boomoji-emoji-maker.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Price:**
 
@@ -1201,13 +1222,6 @@ Adding emoji to videos has been a trend for some time. It is fun as well as allo
 3\. Tap on the Elements tab at the top and tap on the Emoji category on the side. A list of emoji elements will be displayed to you.
 
 ![find free emoji](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4\. Or you can go to [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) (Filmora's effects store), find the free Animated Emoji Pack and download more emojis.
 
@@ -1867,6 +1881,13 @@ In this article, we are going to explain you, how to create memes using videos i
 * [**Part3: How to create a video meme with Kapwing**](#part3)
 * [**Part4: How to create a video meme with Blurbiz**](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How to create a video meme with Filmora meme maker
 
 You can also create a more vivid video meme with Filmora [meme maker](https://tools.techidaily.com/wondershare/filmora/download/). It is such a handy video editing tool which enables you to create your own meme in just three steps. You can download the software first and follow the steps below:
@@ -2193,6 +2214,13 @@ Follow @Ollie Mattison
 
 ![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Copy the image
 
  If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
@@ -2263,25 +2291,11 @@ Copy the image
 
 ![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
 
 #### 3\. Downloading Memes
 
 ![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
 
@@ -2407,13 +2421,6 @@ Moreover, you can duplicate an animoji or memoji and create a duet in just a few
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## List of iPhones and iPads that Support Animojis and Memojis
 
 | Face ID                             | Animoji                             | Memoji                              |
@@ -2462,19 +2469,6 @@ Animojis and Memojis have taken the world by storm since the first iPhone X mode
 Memojis enable you to choose the character’s skin color, head, nose, ear shape or hairstyle, meaning that you can create as many new characters as you want effortlessly. Furthermore, you can add stickers or apply up to five different filters to animojis and memojis you share with your friends.
 
 ![what-is-memoji](https://images.wondershare.com/filmora/article-images/what-is-memoji.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 See best Memoji makers here: [Top 8 Memoji Makers to Make a Memoji on PC, Android, and iPhone.](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -2707,18 +2701,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-add-emojis-to-discord-on-desktop-computer-and-mobile/"><u>2024 Approved How to Add Emojis To Discord on Desktop Computer and Mobile</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-motion-graphics-101-key-principles-and-methods/"><u>2024 Approved Motion Graphics 101 Key Principles & Methods</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-perfected-podcasts-iphones-seamless-audio-download-routines/"><u>2024 Approved Perfected Podcasts IPhone's Seamless Audio Download Routines</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/6kgo6z2i44oh44oq44kk44k544gn5yuv55s75yan55sf5lin6io977yf5zwp6agm54k55yig5p6q44go5ps55zae562w44gu44ks44kk44oj/"><u>表面デバイスで動画再生不能？問題点分析と改善策のガイド</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/from-crumpled-to-curated-your-step-by-step-process-of-transforming-faded-print-photographs-into-digital-originals/"><u>From Crumpled to Curated Your Step-by-Step Process of Transforming Faded Print Photographs Into Digital Originals</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-record-your-memorable-honeymoon-video-for-2024/"><u>How to Record Your Memorable Honeymoon Video for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>In 2024, 10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oppo-a79-5g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Oppo A79 5G to Outlook | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-13-mini-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account On iPhone 13 mini?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-use-emojis-on-windows/"><u>New How to Use Emojis on Windows</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>Updated In 2024, 10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-free-10-websites-to-watch-cartoon-online-in-hd/"><u>Updated In 2024, FREE 10 Websites to Watch Cartoon Online in HD</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/virtual-camcorder-expertise-unleash-your-potential-with-manycam-for-real-time-broadcasts/"><u>Virtual Camcorder Expertise: Unleash Your Potential with ManyCam for Real-Time Broadcasts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-immersion-in-hue-and-light-dreamcolors-z32-x-explored/"><u>[New] In 2024, Immersion in Hue and Light DreamColor's Z32 X Explored</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-pioneering-eco-friendly-visual-effects-aids/"><u>[Updated] Pioneering Eco-Friendly Visual Effects Aids</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/breathe-life-into-your-locked-windows-screen-saver/"><u>Breathe Life Into Your Locked Windows Screen Saver</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevate-your-cooking-skills-with-chatgpt-top-7-uses-for-home-chefs/"><u>Elevate Your Cooking Skills with ChatGPT – Top 7 Uses for Home Chefs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exemplary-6-online-communities-for-corporate-growth/"><u>In 2024, Exemplary 6 Online Communities for Corporate Growth</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself/"><u>In 2024, How to Make an Emoji of Yourself on Mobile ? Emoji Yourself</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/interactive-guide-setup-and-features-of-blinks-outdoor-4-wireless-led-floodlight-security-cam/"><u>Interactive Guide: Setup & Features of Blink's Outdoor 4 Wireless LED Floodlight Security Cam</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-10-popular-cartoon-characters-that-should-top-your-list-for-2024/"><u>New 10 Popular Cartoon Characters That Should Top Your List for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-free-10-websites-to-watch-cartoon-online-in-hd/"><u>New In 2024, FREE 10 Websites to Watch Cartoon Online in HD</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-add-emojis-to-discord/"><u>New In 2024, How to Add Emojis To Discord</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-samsung-galaxy-s24-ultra-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Samsung Galaxy S24 Ultra Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>Updated How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
 </ul></div>
 

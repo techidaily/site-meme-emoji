@@ -1,7 +1,7 @@
 ---
 title: Navigating Features and Functions of the Nook GlowLight 4 Reader
-date: 2024-09-28T22:28:32.691Z
-updated: 2024-09-30T16:28:52.821Z
+date: 2024-09-30T22:13:00.642Z
+updated: 2024-10-05T20:12:44.043Z
 categories:
   - BestProducts
 description: This Article Describes Navigating Features and Functions of the Nook GlowLight 4 Reader
@@ -39,9 +39,23 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
 3.6
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/EEEMCdq2FsBPMcT8nPUgndDIw4A=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Sony-XBR65X850F-4K-TV-1-0498a6473b25497c81fe71754603f6a5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -65,18 +79,18 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
  Though Sony panels are sometimes on the expensive end of the spectrum, there are some older Sony 4K TVs that can be had for a nice little discount. One such TV is Sony’s XBR65X850F from their X850F series. This specific model has now been replaced by the X850G, but that doesn’t mean you necessarily need to go with the most current model. In fact, snagging one of these earlier generation sets can save you some cash without forcing you to compromise too much.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Standard Sony**
 
  The XBR65X850F's design is a combination of sleek and workmanlike. The stand on this Sony is pretty common for TVs these days, with two V-shaped feet that stick out to either side. While they look aluminum, these are actually plastic too, with merely an aluminum finish. They are decently steady, but we noticed a bit of wobble if you move the TV around. It should be plenty sturdy for most, though you will need a fairly wide stand for them to rest on since they stick out so far. There’s also no room for adjusting the unit up or down, but they’re tall enough to fit a soundbar underneath if you want. They also flip open on the top if you want to use them for some clever cable management.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/v7wi7isxu06LAoWNZK3dJ908mCk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-4-cb1a370bd78244b383c802010a570313.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -92,25 +106,11 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
  On the front of the screen, the bezels are a little thicker than some of the 4K TVs we’ve reviewed, but they’re pretty thin and shouldn’t distract. There’s your standard anti-glare coating found on the screen here too.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Setup Process: Stick to the on-screen instructions**
 
  Setting up pretty much any modern-day smart TV is an easy process, so just stick to the on-screen instructions and you’ll be golden. Go ahead and unpack it all, tear off that plastic film, plug in the power cable, and turn on the device.
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vvIZMf3BNAr8JmiDAVdv4o3ceHg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-2-7eabd63fb6c0415ab75fd927d664a841.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -140,14 +140,14 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
 ![Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV](https://www.lifewire.com/thmb/vRvHMYGCPPg8nNrLBKdXwLPfwzg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Sony-XBR65X850F-4K-TV-3-9f0e77e7fa1d4533877316afb591cc71.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Audio Quality: Loud, but distorted**
 
@@ -177,13 +177,6 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
  But how do these prices stack up against comparable TVs from competitors like LG or Samsung? Taking a quick look around online, you can easily save a few hundred dollars by going with a comparable LG TV, while Samsung was pretty closely matched with Sony. In the end, the price for the X850F series isn’t the best bang for your buck, but it ain’t bad either.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Sony XBR65X850F vs. Samsung UN65RU8000**
 
  Now there are a ton of comparable 4K TVs out there stacked up against the Sony XBR65X850F, but Samsung is a similarly reputable brand, so let’s compare their UN65RU8000 (view on[Amazon](https://www.amazon.com/Samsung-UN65RU8000-Ultimate-SurgePro-6-Outlet/dp/B07Q6VCCLF?tag=lifewire-onsite-prod-20&ascsubtag=4796693%7Cn899f0376278d4881a5af76b596b54aa000%7C) ).
@@ -201,6 +194,13 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 **A solid IPS panel 4K TV.**
 
  The X850F series is far from perfect, but the Sony XBR65X850F 65-Inch 4K Ultra HD Smart LED TV and its family are more than capable of providing a pleasurable viewing experience for most people. Despite this, there are probably better options out there that can be had for even less.
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -231,20 +231,24 @@ thumbnail: https://www.lifewire.com/thmb/gNfXD3p4OfpTiznU4wTzYEqmh-k=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-navigating-the-path-to-accessing-fb-status-video-footage/"><u>[New] In 2024, Navigating the Path to Accessing FB Status Video Footage</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-tune-into-success-with-instagram-soundscapes/"><u>[New] Tune Into Success with Instagram Soundscapes</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-1-choice-easy-online-video-text-conversion/"><u>[Updated] 2024 Approved 1 Choice Easy Online Video Text Conversion</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/10-trending-memes-right-now-include-image-gifvideo-for-2024/"><u>10 Trending Memes Right Now (Include Image/ GIF/Video) for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-best-photo-slideshow-maker-how-to-make-a-photo-slideshow/"><u>2024 Approved Best Photo Slideshow Maker How to Make a Photo Slideshow</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/crafting-perfect-shots-the-ultimate-list-of-zooming-editors-for-2024/"><u>Crafting Perfect Shots The Ultimate List of Zooming Editors for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/image-editing-excellence-with-top-apps-list-for-2024/"><u>Image Editing Excellence with Top Apps List for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-photo-collage-on-maciphone-using-iphoto/"><u>In 2024, How to Make a Photo Collage on Mac/iPhone Using iPhoto?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-navigating-the-best-iphone-options-for-adding-water-marks/"><u>In 2024, Navigating the Best iPhone Options for Adding Water Marks</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-20-wonderful-stop-motion-ideas-for-beginners-and-kids-filmora/"><u>New 20 Wonderful Stop Motion Ideas for Beginners and Kids - Filmora</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-video-slideshow-with-your-travel-photos/"><u>New In 2024, How to Make Video Slideshow with Your Travel Photos</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-iosandandroid-best-apps-to-create-animoji-and-memoji-videos-for-2024/"><u>New IOS&Android Best Apps to Create Animoji and Memoji Videos for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-m34-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy M34 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-12-prominent-vivo-s17t-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Vivo S17t Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-top-5-best-websites-to-add-emojis-to-photo-online-for-2024/"><u>Updated Top 5 Best Websites to Add Emojis to Photo Online for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-futures-edge-the-top-10-sci-fi-movies-shaping-new-realities/"><u>[New] Future's Edge The Top 10 Sci-Fi Movies Shaping New Realities</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-optimizing-vimeo-video-speed-rates/"><u>[New] In 2024, Optimizing Vimeo Video Speed Rates</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-e-learning-event-recording-for-2024/"><u>[Updated] E-Learning Event Recording for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-add-and-custom-slack-emoji-wondershare-filmora/"><u>2024 Approved How to Add and Custom Slack Emoji-Wondershare Filmora</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself/"><u>2024 Approved How to Make an Emoji of Yourself on Mobile ? Emoji Yourself</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/abbyyabbyy-proof-of-identity/"><u>ABBYYが導入する革新的な一括身分確認サービス「ABBYY Proof of Identity」のご案内</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/android-capture-king-spam-free-edition/"><u>Android Capture King Spam-Free Edition</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-poco-m6-5g-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Poco M6 5G in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself-for-2024/"><u>How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-audio-fixes-resolving-playback-errors-for-seamless-powerpoint-performances/"><u>Mastering Audio Fixes: Resolving Playback Errors for Seamless PowerPoint Performances</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-10-best-meme-makers-online-free-to-use/"><u>New 2024 Approved 10 Best Meme Makers Online (Free to Use)</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-chrome-os-users-installation-and-removal-of-audacity-for-advanced-sound-editing/"><u>New In 2024, Chrome OS Users Installation and Removal of Audacity for Advanced Sound Editing</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/t-pioneering-transforming-youtube-views-into-vast-revenue-on-mobile-for-2024/"><u>Profit Pioneering Transforming YouTube Views Into Vast Revenue on Mobile for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/resolve-driver-issues-comprehensive-instructions-for-downloading-and-updating-intel-optane-software-for-your-pc/"><u>Resolve Driver Issues: Comprehensive Instructions for Downloading & Updating Intel Optane Software for Your PC</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-emoji-removers-to-remove-emojis-from-pictures/"><u>Updated Best Emoji Removers to Remove Emojis From Pictures</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-bitmoji-to-keyboard/"><u>Updated How to Add Bitmoji to Keyboard?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-memorable-honeymoon-video-for-2024/"><u>Updated How to Make a Memorable Honeymoon Video for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-a-memorable-honeymoon-video/"><u>Updated In 2024, How to Make a Memorable Honeymoon Video</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-what-is-emoji-and-what-does-it-mean-for-2024/"><u>Updated What Is Emoji and What Does It Mean for 2024</u></a></li>
 </ul></div>
 
