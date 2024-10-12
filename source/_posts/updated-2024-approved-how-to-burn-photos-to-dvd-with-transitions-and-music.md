@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved How to Burn Photos to DVD with Transitions and Music
-date: 2024-10-01T05:02:14.765Z
-updated: 2024-10-06T04:35:47.758Z
+date: 2024-10-04T23:57:53.421Z
+updated: 2024-10-11T20:23:55.677Z
 tags: 
   - ai
   - animation videos
@@ -158,13 +158,6 @@ Follow @Shanoon Cox
 
 ![DVD Slideshow burn to DVD](https://images.wondershare.com/filmora/article-images/dvd-slideshow-burn-to-dvd.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Insert a blank DVD disc, and do the following.
 * Click "Burn to DVD". Then specify the number of DVD copies. You can also choose to generate ISO Image files or DVD Folders.
 * Make sure the PAL or NTSC TV Standard settings is right. If you don't know which standard is used in your country, click the "Help" button. The wrong TV standard would cause playback incompatibility problem.
@@ -224,6 +217,13 @@ Follow @Shanoon Cox
  In Organize tab, simply click the "Add Files" button to open the browse window, find your files and import them into the program, you can drag and drop photos or videos to organize them on storyboard. Click the Expand button to get a larger viewer.
 
 ![Burn photos to dvd](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 2. Customize Photo Slideshow Transitions
 
@@ -371,13 +371,6 @@ Follow @Shanoon Cox
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -561,6 +554,19 @@ Follow @Shanoon Cox
 Childhood is a book with different chapters filled with joy, fun, school, chocolates, and our favorite cartoon characters. The most fantasizing thing for a child is the **popular cartoon characters** which they see as a tutor who teaches them to become honest, humble and most importantly they show us how to overcome problems in our life. All the **famous cartoon characters** are still famous among millennials who used to watch them in their childhood. In this article, we are going to dive back into childhood again and you will be amazed to see those characters again in front of your eyes.
 
 Get ready for something mesmerizing today!
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: 10 Popular Cartoon Characters of All Time
 
@@ -788,19 +794,6 @@ Features:
 
 ![Imgur](https://images.wondershare.com/filmora/article-images/Imgur.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7. Make a Meme
 
 When you go on Make a Meme, you will immediately see images of all the most famous memes from around the world. You can click on those images, where you get an interface asking for the top text, bottom text, and your custom title. Then you click on “make a meme” and your image is ready.
@@ -816,13 +809,6 @@ Features:
 
 ![Make a Meme](https://images.wondershare.com/filmora/article-images/Make-Meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8. Livememe
 
 Livememe is a meme generator that is very straightforward to use. When you visit the homepage, you will see a few selected images that are very popular. Click on the “create a meme” button and you will get a drop down menu that is thumbnails of all the popular memes.
@@ -836,13 +822,6 @@ Features:
 * Easily share created memes.
 
 ![Livememe](https://images.wondershare.com/filmora/article-images/Livememe.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9. Canva
 
@@ -1151,6 +1130,13 @@ Features:
 * Send and share memes through the site.
 
 ![MemeGenerator](https://images.wondershare.com/filmora/article-images/MemeGenerator.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6. Imgur
 
@@ -1509,6 +1495,13 @@ The use of free animated emoji to make videos funny has become a thing now. Furt
 
 The first idea is sure to make the audience burst into laughter. For starters, one can swap their faces with animated emojis like an animated dancing emoji or a crying emoji. You can tell your audience what you are feeling right at the moment as you use those emojis and then show your real face.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Sharing a Story
 
 One can share a funny story with their audience by using the power of animated emojis. They can explain what happened with a series of steps and incorporate emojis in the background that sync with the emotional reaction of the user as well as the audience.
@@ -1675,6 +1668,13 @@ The last part of this article covers a brief introduction to a renowned video ed
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In addition to this, one can count on this software to change the backgrounds, insert split screens, discover filters and overlays, control speed, and personalize the creation. If you are all set to use this amazing video editing software, follow the procedure keenly to avoid any future inconvenience.
 
 #### Step 1: Initiating the Project
@@ -1706,13 +1706,6 @@ On the top left section of the window, navigate to the "Elements" tab. From ther
 Click on "Export," located on the top right corner of the window. Pick out the output video format and hit "Export" to finalize the editing process.
 
 ![exporting the video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Wrapping Up
 
@@ -2360,13 +2353,6 @@ _Can't lose_ _if you don't play_ is a great illustration of what Roll Safe is al
 
 ![](https://images.wondershare.com/filmora/article-images/think-about-it-meme.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Copy the image
 
 ![](https://images.wondershare.com/filmora/article-images/roll-safe-think-about-it.gif)
@@ -2550,13 +2536,6 @@ Copy the image
  Adopting the logic behind the Roll Safe-Think About It memes in real life may not be the best of choices, but using it to cheer up your friends on social media can make your account more popular. Do you like making Roll Safe-Think About It memes? Share your experiences with us in the comments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -2714,6 +2693,13 @@ Finally, it’s time to save and export the music slideshow as you see fit. You 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make a slideshow with DVD Slideshow Builder
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
@@ -2743,6 +2729,117 @@ There are also 480+ free styles and transition effects that can be used for your
 Go to "Publish" tab, you can preview the photo video by click the preview button first. Then publish it to the format you want. If you want to watch your photo slideshow with music to iPod or iPhone, you'd better publish it to MP4 format. This [slideshow software](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) also enables you to share your slideshow directly to YouTube by filling in the necessary information. Besides, you can burn DVD slideshow with music by clicking the "Burn to DVD" button and putting a DVD disc in your computer.
 
 ![how to make a slideshow with music](https://images.wondershare.com/images/wedding/wedding-dvd-slideshow-output.jpg)
+
+We shared two ways of making slideshow with music, whether you are using Filmora or DVD slideshow maker, leave a comment below and let me know your choice.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Nowadays, we tend to store our experiences of important occasions in photos and videos since cameras and camcorders are popular. To better preserve these sweet memories, make a slideshow with music, photos and videos is a good idea. It's not as difficult as you think since all you need are: a good slideshow maker, photos and videos you want to show, music to go along with your slideshow. Here is a tutorial about how to make a slideshow with music with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) video editor and [Wondershare DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) .
+
+**Read more**: [20 Best Slideshow Songs for Different Occasions \[Royalty-Free\]](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## How to create slideshow with music in Filmora?
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Note: The video tutorial about how to make slideshow in minutes is created with the previous version of Filmora video editor. Most of the steps are similar and creating a music slideshow with the latest Filmora is very easy. As we said before, all you need is your photos and music tracks, then follow the steps below to start.
+
+#### Step 1. Download Filmora and Run it
+
+Click the Free Download button above to download and install Wondershare Filmora on your computer and then launch it.
+
+In case you want to change the default aspect ratio setting in the splash screen, you can choose 9:16 for portrait mode, 1:1 for Instagram slideshow and more. And then click New Project to create a project to continue.
+
+#### Step 2. Import Photos and Music
+
+After that, you need to import all your photo and music media to the Media Library and then drag and drop them to the timeline directly. Filmora allows you to change the order the photos in the timeline, and the photo duration as well.
+
+You can also rotate photos and crop them manually to fit your project.
+
+Note: If you find some black bar on your photos in preview, it is recommended to change **Photo Placement** to **Crop and Zoom** under **Preference** before drag-n-drop to timeline.
+
+#### Step 3. Add Transitions
+
+![Filmora9 slideshow transitions library](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
+
+There are hundreds of transitions available in Filmora which you should totally have a try. You can apply a specific transition between each selected photo, or apply random transitions to selected photos.
+
+Filmora features more than 30 transitions especially for Slideshow, such as cross merge, cross split, swap and sweep clockwise. Of course, you can also use some 3D transition, ripple and dissolve, or speed blur transitions.
+
+You can also adjust the transition duration accordingly.
+
+To make your photos slideshow looks better, it is highly recommended to apply filters and overlays effects.
+
+#### Step 4. Add background music
+
+You can choose background music or sound effect from the inbuilt audio library in Filmora or drag and drop the music track file from computer to the timeline directly. Filmora features the voiceover recording tool which helps you to record your own voice easily.
+
+![Create music slideshow with Filmora9](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
+
+#### Step 5. Export and Save
+
+Finally, it’s time to save and export the music slideshow as you see fit. You have several options, you can save it on the computer in different formats, or you can share it to YouTube or Vimeo directly, or you can burn it to DVD.
+
+---
+
+### Why choose Filmora to create music slideshow?
+
+* Filmora supports most of popular image formats such as .jpg, .png, .bmp, .gif, .tif, and .tiff.
+* Filmora allows you to crop, pan & zoom the slideshow manually or automatically by applying Pan & Zoom Photo Placement.
+* Filmora has inbuilt music track and sound effect library, and stunning transitions, effects and elements presets.
+* Filmora allows you to record your own voiceover and apply fade in and fade out effects.
+* Besides creating photo slideshow, you can use it to create videos for both your YouTube marketing, daily sharing and business.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## How to make a slideshow with DVD Slideshow Builder
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+## Tips for Make a Slideshow with Music
+
+#### 1\. Install slideshow software and import photos and videos
+
+Install the software and import your digital photos to the storyboard by clicking '"Add Files" (there is no quantity limitation of photos). You can also add videos from computer or camera.
+
+![make a slideshow with music](https://images.wondershare.com/images/wedding/wedding-dvd-slideshow-add-files.jpg)
+
+#### 2\. Add music to your photo slideshow
+
+Go to the "Personalize" tab. Click "Music" toolbar to add background music or just drag the music to the background track. In the timeline, you can drag the slider to make the music best suit the photos and videos. If you need to edit the music, double click the clip and in the pop up window, trim music and adjust music volume as you like.
+
+Tip: If you want to synchronize background music with the slideshow, click **"Settings"** (it's on the right upper corner) and choose **"Slideshow"** tab, then tick the checkbox under the "**Synchronize**". At last, click **"OK"** button.
+
+#### 3 .Select movie styles and add decorations
+
+There are also 480+ free styles and transition effects that can be used for your picture slideshow with music in this tab. Choose your favorite styles and drag it on the photos. You can also add decoration text, clipart and effects on your digital photos. To make add more fun, you can also add intro movie and credit movie to your picture slideshow with music by clicking the "Intro/Credit" build-in button.
+
+![dvd slideshow with music](https://images.wondershare.com/images/wedding/wedding-dvd-slideshow-style.jpg)
+
+#### 4 . Preview and save your slideshow with music
+
+Go to "Publish" tab, you can preview the photo video by click the preview button first. Then publish it to the format you want. If you want to watch your photo slideshow with music to iPod or iPhone, you'd better publish it to MP4 format. This [slideshow software](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) also enables you to share your slideshow directly to YouTube by filling in the necessary information. Besides, you can burn DVD slideshow with music by clicking the "Burn to DVD" button and putting a DVD disc in your computer.
+
+![how to make a slideshow with music](https://images.wondershare.com/images/wedding/wedding-dvd-slideshow-output.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 We shared two ways of making slideshow with music, whether you are using Filmora or DVD slideshow maker, leave a comment below and let me know your choice.
 
@@ -2926,109 +3023,12 @@ Finally, it’s time to save and export the music slideshow as you see fit. You 
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
-## Tips for Make a Slideshow with Music
-
-#### 1\. Install slideshow software and import photos and videos
-
-Install the software and import your digital photos to the storyboard by clicking '"Add Files" (there is no quantity limitation of photos). You can also add videos from computer or camera.
-
-![make a slideshow with music](https://images.wondershare.com/images/wedding/wedding-dvd-slideshow-add-files.jpg)
-
-#### 2\. Add music to your photo slideshow
-
-Go to the "Personalize" tab. Click "Music" toolbar to add background music or just drag the music to the background track. In the timeline, you can drag the slider to make the music best suit the photos and videos. If you need to edit the music, double click the clip and in the pop up window, trim music and adjust music volume as you like.
-
-Tip: If you want to synchronize background music with the slideshow, click **"Settings"** (it's on the right upper corner) and choose **"Slideshow"** tab, then tick the checkbox under the "**Synchronize**". At last, click **"OK"** button.
-
-#### 3 .Select movie styles and add decorations
-
-There are also 480+ free styles and transition effects that can be used for your picture slideshow with music in this tab. Choose your favorite styles and drag it on the photos. You can also add decoration text, clipart and effects on your digital photos. To make add more fun, you can also add intro movie and credit movie to your picture slideshow with music by clicking the "Intro/Credit" build-in button.
-
-![dvd slideshow with music](https://images.wondershare.com/images/wedding/wedding-dvd-slideshow-style.jpg)
-
-#### 4 . Preview and save your slideshow with music
-
-Go to "Publish" tab, you can preview the photo video by click the preview button first. Then publish it to the format you want. If you want to watch your photo slideshow with music to iPod or iPhone, you'd better publish it to MP4 format. This [slideshow software](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) also enables you to share your slideshow directly to YouTube by filling in the necessary information. Besides, you can burn DVD slideshow with music by clicking the "Burn to DVD" button and putting a DVD disc in your computer.
-
-![how to make a slideshow with music](https://images.wondershare.com/images/wedding/wedding-dvd-slideshow-output.jpg)
-
-We shared two ways of making slideshow with music, whether you are using Filmora or DVD slideshow maker, leave a comment below and let me know your choice.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Nowadays, we tend to store our experiences of important occasions in photos and videos since cameras and camcorders are popular. To better preserve these sweet memories, make a slideshow with music, photos and videos is a good idea. It's not as difficult as you think since all you need are: a good slideshow maker, photos and videos you want to show, music to go along with your slideshow. Here is a tutorial about how to make a slideshow with music with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) video editor and [Wondershare DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) .
-
-**Read more**: [20 Best Slideshow Songs for Different Occasions \[Royalty-Free\]](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## How to create slideshow with music in Filmora?
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Note: The video tutorial about how to make slideshow in minutes is created with the previous version of Filmora video editor. Most of the steps are similar and creating a music slideshow with the latest Filmora is very easy. As we said before, all you need is your photos and music tracks, then follow the steps below to start.
-
-#### Step 1. Download Filmora and Run it
-
-Click the Free Download button above to download and install Wondershare Filmora on your computer and then launch it.
-
-In case you want to change the default aspect ratio setting in the splash screen, you can choose 9:16 for portrait mode, 1:1 for Instagram slideshow and more. And then click New Project to create a project to continue.
-
-#### Step 2. Import Photos and Music
-
-After that, you need to import all your photo and music media to the Media Library and then drag and drop them to the timeline directly. Filmora allows you to change the order the photos in the timeline, and the photo duration as well.
-
-You can also rotate photos and crop them manually to fit your project.
-
-Note: If you find some black bar on your photos in preview, it is recommended to change **Photo Placement** to **Crop and Zoom** under **Preference** before drag-n-drop to timeline.
-
-#### Step 3. Add Transitions
-
-![Filmora9 slideshow transitions library](https://images.wondershare.com/filmora/article-images/filmora9-slideshow-transitions.jpg)
-
-There are hundreds of transitions available in Filmora which you should totally have a try. You can apply a specific transition between each selected photo, or apply random transitions to selected photos.
-
-Filmora features more than 30 transitions especially for Slideshow, such as cross merge, cross split, swap and sweep clockwise. Of course, you can also use some 3D transition, ripple and dissolve, or speed blur transitions.
-
-You can also adjust the transition duration accordingly.
-
-To make your photos slideshow looks better, it is highly recommended to apply filters and overlays effects.
-
-#### Step 4. Add background music
-
-You can choose background music or sound effect from the inbuilt audio library in Filmora or drag and drop the music track file from computer to the timeline directly. Filmora features the voiceover recording tool which helps you to record your own voice easily.
-
-![Create music slideshow with Filmora9](https://images.wondershare.com/filmora/article-images/create-music-slideshow-filmora9.jpg)
-
-#### Step 5. Export and Save
-
-Finally, it’s time to save and export the music slideshow as you see fit. You have several options, you can save it on the computer in different formats, or you can share it to YouTube or Vimeo directly, or you can burn it to DVD.
-
----
-
-### Why choose Filmora to create music slideshow?
-
-* Filmora supports most of popular image formats such as .jpg, .png, .bmp, .gif, .tif, and .tiff.
-* Filmora allows you to crop, pan & zoom the slideshow manually or automatically by applying Pan & Zoom Photo Placement.
-* Filmora has inbuilt music track and sound effect library, and stunning transitions, effects and elements presets.
-* Filmora allows you to record your own voiceover and apply fade in and fade out effects.
-* Besides creating photo slideshow, you can use it to create videos for both your YouTube marketing, daily sharing and business.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## How to make a slideshow with DVD Slideshow Builder
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips for Make a Slideshow with Music
 
@@ -3084,24 +3084,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-fly-higher-10-must-have-uav-extras-revealed/"><u>[Updated] In 2024, Fly Higher 10 Must-Have UAV Extras Revealed</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-speed-on-thin-ice-top-performances-from-the-olympics-for-2024/"><u>[Updated] Speed on Thin Ice Top Performances From the Olympics for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-youtubings-endgame-secrets-from-top-creators-and-templates/"><u>[Updated] YouTubing's Endgame Secrets From Top Creators and Templates</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-10-best-work-memes-to-have-fun-in-work-days/"><u>2024 Approved 10 Best Work Memes to Have Fun in Work Days</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/disabling-iphone-12-mini-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling iPhone 12 mini Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/elevate-your-design-game-with-our-guide-to-the-best-9-sites-showcasing-graffiti-typefaces/"><u>Elevate Your Design Game with Our Guide to the Best 9 Sites Showcasing Graffiti Typefaces</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-8-drfone-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-20-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 20 to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-10-free-online-sticker-makers-to-make-your-own-stickers-for-2024/"><u>New 10 Free Online Sticker Makers to Make Your Own Stickers for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-memes-on-iphone-and-android/"><u>New 2024 Approved How to Make Memes on iPhone and Android</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-8-best-meme-maker-app-to-create-memes-with-your-own-picture/"><u>New 8 Best Meme Maker App to Create Memes with Your Own Picture</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-best-solarmovie-alternatives-watch-movies-free-online-for-2024/"><u>New Best SolarMovie Alternatives-Watch Movies Free Online for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-slideshow-with-music/"><u>New How to Make a Slideshow with Music</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-10-best-meme-makers-online-free-to-use/"><u>New In 2024, 10 Best Meme Makers Online (Free to Use)</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-the-best-of-the-best-nine-premium-portable-microphones-for-high-quality-podcasts-level-9/"><u>New In 2024, The Best of the Best Nine Premium Portable Microphones for High-Quality Podcasts (Level 9)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ick-of-vocal-transformation-apps-for-youtubers/"><u>Top Pick of Vocal Transformation Apps for YouTubers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-flv-photo-slideshow-with-music-for-2024/"><u>Updated How to Make a FLV Photo Slideshow with Music for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-10-free-manga-sites-to-read-online/"><u>Updated In 2024, Best 10 Free Manga Sites to Read Online</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/winx-mediatrans-promo-offer-streamline-iphone-file-syncing-and-management-for-ios-users-no-itunes-needed/"><u>WinX MediaTrans Promo Offer! Streamline iPhone File Syncing and Management for iOS Users, No iTunes Needed.</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-easy-access-luxury-free-access-to-your-dreamset-of-50-banners/"><u>[New] 2024 Approved Easy-Access Luxury - Free Access to Your Dreamset of 50 Banners!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-cutting-edge-techniques-for-capturing-ps4-games-in-obs/"><u>[Updated] In 2024, Cutting-Edge Techniques for Capturing PS4 Games in OBS</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-increasing-ram-to-achieve-peak-performance-in-minecraft/"><u>[Updated] Increasing RAM to Achieve Peak Performance in Minecraft</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>2024 Approved 10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/cambiar-formato-de-musica-en-linea-sin-coste-ogg-a-flac-por-movavi/"><u>Cambiar Formato De Música en Línea Sin Coste - Ogg a Flac Por Movavi</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-nokia-xr21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-incorporating-visual-media-into-free-writings/"><u>In 2024, Incorporating Visual Media Into Free Writings</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/mvp-mastery-unveiled-detailed-ms-sql-tips/"><u>MVP Mastery Unveiled - Detailed MS SQL Tips</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-best-8-apps-for-savvy-world-wanderers-a-guide/"><u>The Best 8 Apps for Savvy World Wanderers: A Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/top-10-best-free-image-overlay-apps-for-android-and-iphone-for-2024/"><u>Top 10 Best Free Image Overlay Apps for Android and iPhone for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/top-6-animated-emoji-video-effects-for-2024/"><u>Top 6 Animated Emoji Video Effects for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-record-and-edit-an-animoji-or-memoji-karaoke-music-video-for-2024/"><u>Updated How to Record and Edit an Animoji or Memoji Karaoke Music Video for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-is-this-a-pigeon-meme-generator/"><u>Updated In 2024, Is This a Pigeon Meme Generator</u></a></li>
 </ul></div>
 
