@@ -1,7 +1,7 @@
 ---
 title: "Remote Control Adventure: Reviewing the Powerhouse That Is the Ford Galaxy F-15ˈtruck"
-date: 2024-10-06T19:32:22.437Z
-updated: 2024-10-12T00:00:26.951Z
+date: 2024-10-13T18:03:46.155Z
+updated: 2024-10-17T17:41:09.151Z
 categories:
   - BestProducts
 description: "This Article Describes Remote Control Adventure: Reviewing the Powerhouse That Is the Ford Galaxy F-15ˈtruck"
@@ -63,10 +63,10 @@ Lifewire / Kelsey Simon
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Setup Process: Simple for all users**
@@ -74,6 +74,13 @@ Lifewire / Kelsey Simon
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -115,24 +122,24 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
- Lifewire / Kelsey Simon
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Kelsey Simon
 
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
@@ -148,10 +155,10 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -161,13 +168,6 @@ Lifewire / Kelsey Simon
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -181,18 +181,18 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -216,24 +216,19 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-instastars-academy-how-to-amass-1000plus-followers-each-month-for-2024/"><u>[New] InstaStars Academy How to Amass 1,000+ Followers Each Month for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-10plus-must-know-tactics-for-selecting-optimal-cricket-broadcasts/"><u>[Updated] 10+ Must-Know Tactics for Selecting Optimal Cricket Broadcasts</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-how-to-streamline-your-vimeo-video-subtitles/"><u>[Updated] 2024 Approved How to Streamline Your Vimeo Video Subtitles</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-beam-it-up-15-must-haves-for-your-youtube-live-stream/"><u>[Updated] In 2024, Beam It Up! 15 Must-Haves for Your YouTube Live Stream</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/10-popular-cartoon-characters-that-should-top-your-list/"><u>10 Popular Cartoon Characters That Should Top Your List</u></a></li>
-<li><a href="https://fox-http.techidaily.com/effortless-background-erasure-in-digital-photography/"><u>Effortless Background Erasure in Digital Photography</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/generating-the-roll-safe-think-about-it-meme/"><u>Generating the Roll Safe-Think About It Meme</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-poco-x5-promirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Poco X5 ProMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-add-emojis-to-videos-the-ultimate-guide/"><u>In 2024, How to Add Emojis to Videos The Ultimate Guide</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-10-trending-memes-right-now-include-image-gifvideo/"><u>New 10 Trending Memes Right Now (Include Image/ GIF/Video)</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-add-emojis-to-discord/"><u>New 2024 Approved How to Add Emojis To Discord</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-25-cute-memes-to-make-you-feel-better/"><u>New 25 Cute Memes to Make You Feel Better</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-6-popular-animated-emoji-video-effects/"><u>New 6 Popular Animated Emoji Video Effects</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oppo-reno-11-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Oppo Reno 11 5G with and without jailbreak | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-3-premium-free-dvd-ripping-tools-for-windows-11-2020-convert-your-dvds-to-mp4-avi-or-wmv-effortlessly/"><u>Top 3 Premium Free DVD Ripping Tools for Windows 11 (2020) - Convert Your DVDs to MP4, AVI, or WMV Effortlessly</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-for-rainbow-six-sieges-nonfunctional-voice-chat-feature-patch/"><u>Troubleshooting Guide for Rainbow Six Siege's Nonfunctional Voice Chat Feature Patch</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-employer-retribution-for-chatgpt-use-in-work/"><u>Understanding Employer Retribution for ChatGPT Use in Work</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-generating-the-roll-safe-think-about-it-meme/"><u>Updated 2024 Approved Generating the Roll Safe-Think About It Meme</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-what-is-emoji-and-what-does-it-mean/"><u>Updated What Is Emoji and What Does It Mean?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-detailed-review-obs-as-a-top-choice-for-screen-recorders-for-2024/"><u>[Updated] Detailed Review OBS as a Top Choice for Screen Recorders for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>2024 Approved How to Burn Photos to DVD with Transitions and Music</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mastering-instagrams-untapped-potential/"><u>2024 Approved Mastering Instagram's Untapped Potential</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-lava-blaze-2-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Lava Blaze 2 without App | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/budget-mobile-ransomware-breakthrough-the-encryption-expedition/"><u>Budget Mobile, Ransomware Breakthrough - The Encryption Expedition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-optimal-solutions-for-webp-to-jpg-image-transformation/"><u>In 2024, Optimal Solutions for WebP-to-JPG Image Transformation</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/m4a-wmv-cs-0-mbps/"><u>M4A WMV 자바스크 전환 - 원활한 인터넷 코드cs용 무게 0 Mbps 회전</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/making-triggered-memes-with-filmora-video-editor/"><u>Making Triggered Memes with Filmora Video Editor</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>New 2024 Approved How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
+<li><a href="https://win-able.techidaily.com/step-by-step-solution-overcoming-common-problems-in-phasmophobia-vr/"><u>Step-by-Step Solution: Overcoming Common Problems in Phasmophobia VR</u></a></li>
+<li><a href="https://video-capture.techidaily.com/unlock-device-agnostic-techniques-for-professional-filming/"><u>Unlock Device-Agnostic Techniques for Professional Filming</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-top-6-animated-emoji-video-effects/"><u>Updated 2024 Approved Top 6 Animated Emoji Video Effects</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-photo-collage-using-iphoto-in-2024/"><u>Updated How to Make a Photo Collage Using iPhoto, In 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-photo-slideshow-maker-how-to-make-a-photo-slideshow/"><u>Updated In 2024, Best Photo Slideshow Maker How to Make a Photo Slideshow</u></a></li>
 </ul></div>
 

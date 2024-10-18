@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Powerful Performance of the Samsung Q60R Series for Gamers - A Comprehensive Review
-date: 2024-10-07T21:55:39.126Z
-updated: 2024-10-11T18:47:05.344Z
+date: 2024-10-13T22:57:26.130Z
+updated: 2024-10-17T22:02:47.294Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Powerful Performance of the Samsung Q60R Series for Gamers - A Comprehensive Review
@@ -70,24 +70,31 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -98,13 +105,6 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -144,6 +144,13 @@ Lifewire / Jeremy Laukkonen
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
  The biggest problem with the Xbox Series S is the lack of storage. Unlike the Series X, which packs in a 1TB drive, the Series S only offers 512GB of space. That's an extremely shallow pool to swim in when dealing with an all-digital console, as you have to download every game you play.
@@ -157,13 +164,6 @@ Lifewire / Jeremy Laukkonen
  For those who need more space, the Series S has a slot on the back for a storage expansion card, a proprietary storage device designed to be just as fast as the built-in NVME SSD. The issue is that it's expensive. You can get a USB 3.1 SSD of a similar capacity for less than half as much, so most price-conscious Series S owners will probably gravitate in that direction. However, Microsoft gives the raw I/O bandwidth of the drive, and presumably the expansion card, as 2.4 GB/s, which is almost twice as fast as USB 3.1.
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
@@ -186,10 +186,10 @@ Lifewire / Jeremy Laukkonen
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
@@ -208,20 +208,13 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
@@ -247,6 +240,13 @@ Lifewire / Jeremy Laukkonen
  **An affordable alternative for those without a 4K television.**
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -290,14 +290,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/updated-excellent-10-drone-set-professional-filming-and-photography/"><u>[Updated] Excellent 10-Drone Set Professional Filming & Photography</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/best-ios-and-android-apps-you-can-use-to-create-animoji-and-memoji-videos/"><u>Best iOS and Android Apps You Can Use to Create Animoji and Memoji Videos</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-stickers-to-whatsapp-the-ultimate-guide/"><u>New How to Add Stickers to WhatsApp-The Ultimate Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/rediscovering-languages-first-steps/"><u>Rediscovering Language's First Steps</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/single-frame-snipping-capturing-stillness-from-videos-in-photos/"><u>Single-Frame Snipping Capturing Stillness From Videos in Photos</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-words-that-shaped-a-warrior-culture/"><u>The Words That Shaped a Warrior Culture</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unleash-entertainment-with-our-selection-of-12-free-film-streamers/"><u>Unleash Entertainment with Our Selection of 12 Free Film Streamers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-emojis-to-discord-on-desktop-computer-and-mobile/"><u>Updated How to Add Emojis To Discord on Desktop Computer and Mobile</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-add-bitmoji-to-keyboard/"><u>Updated In 2024, How to Add Bitmoji to Keyboard?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-perfect-synergy-discover-5-superior-webcams-with-sound-tech/"><u>[New] 2024 Approved Perfect Synergy Discover 5 Superior Webcams with Sound Tech</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-essential-how-to-for-extracting-youtube-srt-files/"><u>[New] The Essential How-To for Extracting YouTube SRT Files</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-becoming-an-illustration-maestro-best-mac-free-tools/"><u>[Updated] In 2024, Becoming an Illustration Maestro - Best Mac Free Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145823817-bitcoin-named-as-zucks-unconventional-goat-companion/"><u>Bitcoin Named as Zuck's Unconventional Goat Companion</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-c67-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Realme C67 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-oppo-a79-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-poco-c55-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Poco C55 Screen | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-10-trending-memes-right-now-include-image-gifvideo/"><u>New 2024 Approved 10 Trending Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-add-and-custom-slack-emoji-wondershare-filmora/"><u>New 2024 Approved How to Add and Custom Slack Emoji-Wondershare Filmora</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-distracted-boyfriend-meme-generator/"><u>New In 2024, Distracted Boyfriend Meme Generator</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-making-triggered-memes-with-filmora-video-editor-for-2024/"><u>New Making Triggered Memes with Filmora Video Editor for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/the-essential-guide-to-emoji-memoji-animoji-and-bitmoji/"><u>The Essential Guide to Emoji, Memoji, Animoji, and Bitmoji</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-latest-evolution-2023s-samsung-bd-j5900-review-for-2024/"><u>The Latest Evolution 2023'S Samsung BD-J5900 Review for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-rise-of-conversational-agents-exploring-the-world-of-ai-powered-chatbots/"><u>The Rise of Conversational Agents: Exploring the World of AI-Powered Chatbots</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-stickers-to-whatsapp-the-ultimate-guide-for-2024/"><u>Updated How to Add Stickers to WhatsApp-The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-burn-photos-to-dvd-with-transitions-and-music-for-2024/"><u>Updated How to Burn Photos to DVD with Transitions and Music for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-photo-collage-on-maciphone-using-iphoto-for-2024/"><u>Updated How to Make a Photo Collage on Mac/iPhone Using iPhoto for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-triggered-meme/"><u>Updated How to Make a Triggered Meme?</u></a></li>
 </ul></div>
 

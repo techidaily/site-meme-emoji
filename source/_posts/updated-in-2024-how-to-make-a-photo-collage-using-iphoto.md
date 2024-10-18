@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, How to Make a Photo Collage Using iPhoto?
-date: 2024-10-08T17:32:33.399Z
-updated: 2024-10-11T22:55:19.240Z
+date: 2024-10-10T20:47:18.132Z
+updated: 2024-10-17T16:37:57.183Z
 tags: 
   - ai
   - animation videos
@@ -112,13 +112,6 @@ Here are the quick steps to create a photo collage with iPhoto.
 **Step 3:** Click the “+” button in the lower-left corner and select **Card** in the pop-up window.
 
 ![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-add-image.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** Choose “Picture Collage”, which should be under the **Any Occasion** section if you are using the iPhoto 11.
 
@@ -481,6 +474,13 @@ This meme can also be used to make fun of world leaders and their bad decisions 
 
 ![](https://images.wondershare.com/filmora/article-images/nut-button-sample-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The elements of the Nut meme are always the same, although their topics can vary because the hand and the blue button are irreplaceable parts of this meme.
 
 ## Generating the Nut Button Meme
@@ -623,89 +623,17 @@ Follow @Ollie Mattison
 * [**Part2: How to make memes on Android with Memedroid**](#part2)
 * [**Part3: Recommended - Making memes with Filmora meme maker online**](#part3)
 
-## Part 1: How to make memes on iPhone with Meme Generator
-
- While planning to create memes on your iPhone, you might find [Meme Generator](https://itunes.apple.com/us/app/meme-generator-free/id645831841?mt=8&at=11lDJ&ct=1568947X274a6ea4fe27d11dfb62d86cb9449931) as the most suitable tool. It helps you create hilarious memes and allows you to share on social media platforms like Twitter, Facebook, Messenger, Instagram, Dropbox, E-mail, Snapchat etc. you get 500 plus memes with example captions under different categories.
-
- You can customize memes using your own photos and adding text, alter size and color of text using 10 different fonts. You can crop the image, move it, add border to it, filter/search memes, and scroll through each meme category. There are no watermark or auto upload of memes to protect your privacy. Here is the detailed guide –
-
-**Step 1**: Install Meme Generator from App Store on your iPhone and launch the app.
-
-**Step 2**: Tap on the 3 horizontal lines on the top-left corner to browse memes. If you know the name, then search a meme and click on it.
-
-![browse memes](https://images.wondershare.com/filmora/article-images/Meme-Generator-browse-memes.JPG)
-
-**Step 3**: Use the example text or hit the ‘Text’ bar to add or edit your caption. Press the icons over the top-right corner for customizing your meme photo and caption options.
-
-![edit memes Generator](https://images.wondershare.com/filmora/article-images/edit-meme-Meme-Generator.JPG)
-
-**Step 4**: Tap on the ‘Save’ or ‘Share’ button, once you are done editing the meme. You can find the meme on your ‘Photos’ app.
-
-## Part 2: How to make memes on Android with Memedroid
-
- If you are wondering how to make memes on Android, then take the [Memedroid](https://play.google.com/store/apps/details?id=com.novagecko.memedroid&hl=en) app into consideration. You can create photos and GIF memes, jokes, avatars, graphics etc. with this app. There are numerous memes uploaded everyday on the app and you get the chance to let people vote for your meme too.
-
- You get to use popular templates such as evil toddler, attached girlfriend, surprised koala with hilarious designs. The best rated memes are in the top gallery and you get the main gallery with latest funny memes too. You can design and save your memes and share them or download, it’s up to you. It supports a wide variety of languages such as English, French, Spanish, Italian, Portuguese etc.
-
- Here are the steps for how to make memes on Android –
-
-**Step 1**： Download and install the app on your mobile and launch it. Click on ‘Meme Factory’ to pick the background image and then you can swipe to explore the other features too. Alternatively, you can add your own photos if Meme factory was not of your choice. Hit ‘Upload Zone’ instead of ‘Meme Factory’ and register for a free account. On the ‘Upload’ screen, tap the ‘Select An Image’ button to pick a photo within 330MB size
-
-![upload image Memedroid](https://images.wondershare.com/filmora/article-images/upload-image-Memedroid.JPG)
-
-**Step 2**： After selecting the background image, add captions at the top and bottom of the image. The ‘SAVE’ button can be found on the top-right, tap that to save. Likewise, for sharing the meme, hit the ‘SHARE’ button located at the bottom of the screen.
-
-**Step 3**： Add tags and accept the ‘Terms of Service’ followed by ‘Send’ button. Wait a while, to get you meme ready for your audience.
-
-![save memes Memedroid](https://images.wondershare.com/filmora/article-images/save-meme-Memedroid.JPG)
-
-## Part 3: Recommended - Making memes with Filmora meme maker online
-
- In order to make memes on iPhone/Android, you need a mobile device. But, what if you have a computer on which you need to create a meme? Well, [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/) is the apt choice for you. You don’t need to download apps or software on your Pc. It is the ultimate online solution.
-
- Brief steps to introduce making memes. You can create image, GIF, and video memes adding nice fonts. It processes video/GIF/image memes rapidly than the competitors. Adding texts, fonts and altering font colors is so easy with it.
-
- Here is the detailed guide to make memes on Android –
-
-**Step 1**: Visit the official Filmora website and look for Filmora online meme maker. Import videos by dragging and dropping to the Filmora interface. You can even add online links to videos in order to upload them.
-
-![drag memes](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
-
-**Step 2**: After selecting the video/photo/GIF move to the meme editor page and customize your video meme using tools from the left pane. Include text, change fonts and then you can preview the changes.
-
-![edit memes](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
-
-**Step 3**: Tap on the ‘CREATE’ button to apply the changes, when you are satisfied. Press the ‘DOWNLOAD’ button and then share your meme on social media sites.
-
-![export memes](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
-
-## Conclusion
-
- Coming towards the end of the article, we have discovered that Filmora creates brilliant memes and that too, in no time. No lengthy or annoying processes, nor you need apps that eat up your phone memory. Life is blissfully funny with meme making on Filmora.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- With growing demand on the internet, memes are spreading like wildfire. In case you want to promote your brand using various types of relatable memes that would drive more traffic for your website, then there is good news for you. It doesn’t matter, whether you own an Android or iOS device. We will help you out in learning how to make memes on iPhone/Android in this article. Keep reading!
-
-* [**Part1: How to make memes on iPhone with Meme Generator**](#part1)
-* [**Part2: How to make memes on Android with Memedroid**](#part2)
-* [**Part3: Recommended - Making memes with Filmora meme maker online**](#part3)
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: How to make memes on iPhone with Meme Generator
@@ -802,14 +730,14 @@ Follow @Ollie Mattison
 
 ![edit memes Generator](https://images.wondershare.com/filmora/article-images/edit-meme-Meme-Generator.JPG)
 
-**Step 4**: Tap on the ‘Save’ or ‘Share’ button, once you are done editing the meme. You can find the meme on your ‘Photos’ app.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+**Step 4**: Tap on the ‘Save’ or ‘Share’ button, once you are done editing the meme. You can find the meme on your ‘Photos’ app.
 
 ## Part 2: How to make memes on Android with Memedroid
 
@@ -871,12 +799,90 @@ Follow @Ollie Mattison
 * [**Part2: How to make memes on Android with Memedroid**](#part2)
 * [**Part3: Recommended - Making memes with Filmora meme maker online**](#part3)
 
+## Part 1: How to make memes on iPhone with Meme Generator
+
+ While planning to create memes on your iPhone, you might find [Meme Generator](https://itunes.apple.com/us/app/meme-generator-free/id645831841?mt=8&at=11lDJ&ct=1568947X274a6ea4fe27d11dfb62d86cb9449931) as the most suitable tool. It helps you create hilarious memes and allows you to share on social media platforms like Twitter, Facebook, Messenger, Instagram, Dropbox, E-mail, Snapchat etc. you get 500 plus memes with example captions under different categories.
+
+ You can customize memes using your own photos and adding text, alter size and color of text using 10 different fonts. You can crop the image, move it, add border to it, filter/search memes, and scroll through each meme category. There are no watermark or auto upload of memes to protect your privacy. Here is the detailed guide –
+
+**Step 1**: Install Meme Generator from App Store on your iPhone and launch the app.
+
+**Step 2**: Tap on the 3 horizontal lines on the top-left corner to browse memes. If you know the name, then search a meme and click on it.
+
+![browse memes](https://images.wondershare.com/filmora/article-images/Meme-Generator-browse-memes.JPG)
+
+**Step 3**: Use the example text or hit the ‘Text’ bar to add or edit your caption. Press the icons over the top-right corner for customizing your meme photo and caption options.
+
+![edit memes Generator](https://images.wondershare.com/filmora/article-images/edit-meme-Meme-Generator.JPG)
+
+**Step 4**: Tap on the ‘Save’ or ‘Share’ button, once you are done editing the meme. You can find the meme on your ‘Photos’ app.
+
+## Part 2: How to make memes on Android with Memedroid
+
+ If you are wondering how to make memes on Android, then take the [Memedroid](https://play.google.com/store/apps/details?id=com.novagecko.memedroid&hl=en) app into consideration. You can create photos and GIF memes, jokes, avatars, graphics etc. with this app. There are numerous memes uploaded everyday on the app and you get the chance to let people vote for your meme too.
+
+ You get to use popular templates such as evil toddler, attached girlfriend, surprised koala with hilarious designs. The best rated memes are in the top gallery and you get the main gallery with latest funny memes too. You can design and save your memes and share them or download, it’s up to you. It supports a wide variety of languages such as English, French, Spanish, Italian, Portuguese etc.
+
+ Here are the steps for how to make memes on Android –
+
+**Step 1**： Download and install the app on your mobile and launch it. Click on ‘Meme Factory’ to pick the background image and then you can swipe to explore the other features too. Alternatively, you can add your own photos if Meme factory was not of your choice. Hit ‘Upload Zone’ instead of ‘Meme Factory’ and register for a free account. On the ‘Upload’ screen, tap the ‘Select An Image’ button to pick a photo within 330MB size
+
+![upload image Memedroid](https://images.wondershare.com/filmora/article-images/upload-image-Memedroid.JPG)
+
+**Step 2**： After selecting the background image, add captions at the top and bottom of the image. The ‘SAVE’ button can be found on the top-right, tap that to save. Likewise, for sharing the meme, hit the ‘SHARE’ button located at the bottom of the screen.
+
+**Step 3**： Add tags and accept the ‘Terms of Service’ followed by ‘Send’ button. Wait a while, to get you meme ready for your audience.
+
+![save memes Memedroid](https://images.wondershare.com/filmora/article-images/save-meme-Memedroid.JPG)
+
+## Part 3: Recommended - Making memes with Filmora meme maker online
+
+ In order to make memes on iPhone/Android, you need a mobile device. But, what if you have a computer on which you need to create a meme? Well, [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/) is the apt choice for you. You don’t need to download apps or software on your Pc. It is the ultimate online solution.
+
+ Brief steps to introduce making memes. You can create image, GIF, and video memes adding nice fonts. It processes video/GIF/image memes rapidly than the competitors. Adding texts, fonts and altering font colors is so easy with it.
+
+ Here is the detailed guide to make memes on Android –
+
+**Step 1**: Visit the official Filmora website and look for Filmora online meme maker. Import videos by dragging and dropping to the Filmora interface. You can even add online links to videos in order to upload them.
+
+![drag memes](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
+
+**Step 2**: After selecting the video/photo/GIF move to the meme editor page and customize your video meme using tools from the left pane. Include text, change fonts and then you can preview the changes.
+
+![edit memes](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
+
+**Step 3**: Tap on the ‘CREATE’ button to apply the changes, when you are satisfied. Press the ‘DOWNLOAD’ button and then share your meme on social media sites.
+
+![export memes](https://images.wondershare.com/filmora/article-images/export-memes-filmora-meme-maker.JPG)
+
+## Conclusion
+
+ Coming towards the end of the article, we have discovered that Filmora creates brilliant memes and that too, in no time. No lengthy or annoying processes, nor you need apps that eat up your phone memory. Life is blissfully funny with meme making on Filmora.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ With growing demand on the internet, memes are spreading like wildfire. In case you want to promote your brand using various types of relatable memes that would drive more traffic for your website, then there is good news for you. It doesn’t matter, whether you own an Android or iOS device. We will help you out in learning how to make memes on iPhone/Android in this article. Keep reading!
+
+* [**Part1: How to make memes on iPhone with Meme Generator**](#part1)
+* [**Part2: How to make memes on Android with Memedroid**](#part2)
+* [**Part3: Recommended - Making memes with Filmora meme maker online**](#part3)
 
 ## Part 1: How to make memes on iPhone with Meme Generator
 
@@ -1241,41 +1247,138 @@ If the built-in emoji library doesn’t contain your favorite expressions, you c
 
 ![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
 
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
 ## Part 2: How to Use Emojis with Keyboard Shortcuts
 
 A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
@@ -1314,6 +1417,13 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 * From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
 
 ![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
 
@@ -1400,102 +1510,12 @@ As for the shortcuts, depending on the type of expression you want to convey, th
 
 **Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
 
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
 
@@ -1627,13 +1647,6 @@ Winnie-the-Pooh was a cartoon character featured in 1928 in A.A Milne’s House 
 #### 10. Donald Duck
 
 Donald Duck is a cartoon character created by Walt Disney in 1934 with yellow legs and feet. Donald Duck wears a typical sailor shirt and a cap to look like a gentleman in every way. Donald Duck first appeared in The Wise Little Hen in 1934 and become one of the most popular characters with its style and anger-related issues. Though Donald Duck was very strict it inspired people to be gentle and easy with being tough.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -1966,13 +1979,6 @@ Follow @Shanoon Cox
 
 ![photo slideshow making software](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Now sit back and relax, it'll only take a while to get your photo slideshow for sharing anywhere.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -2011,6 +2017,13 @@ Follow @Shanoon Cox
 
 ![Burn photos to dvd, photo slideshow maker](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 3 Create photo slideshow and burn to DVD
 
 [![fotophire](https://images.wondershare.com/filmora/article-images/fotophire-article-banner.jpg) ](https://tools.techidaily.com/wondershare/fotophire/download/)
@@ -2038,13 +2051,6 @@ Follow @Shanoon Cox
  Download and run [DVD slideshow builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/), then follow the steps below to see how to make a photo slideshow.
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png) ](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Ways for Photo Slidehow making
 
@@ -2098,24 +2104,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-sonic-skills-mac-recording-tips/"><u>[New] Sonic Skills Mac Recording Tips</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/complete-guide-erasing-all-data-from-your-iphone-using-a-pc-or-mac-with-stellar/"><u>Complete Guide: Erasing All Data From Your iPhone Using a PC or Mac with Stellar</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/easy-tips-and-tricks-how-to-change-your-mka-files-into-mp3s-efficiently/"><u>Easy Tips and Tricks: How To Change Your MKA Files Into MP3s Efficiently</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effortless-fixes-for-audacity-sound-device-malfunctions-5-reliable-methods/"><u>Effortless Fixes for Audacity Sound Device Malfunctions – 5 Reliable Methods</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-imovie-photo-slideshow-with-music-for-2024/"><u>How to Make a iMovie Photo Slideshow with Music for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Oppo A2 | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/instagram-reels-strategy-for-instant-success-for-2024/"><u>Instagram Reels Strategy for Instant Success for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/maximize-gaming-thrills-secure-the-latest-driver-packages-for-logitech-momo-racing-wheel-on-windows-pc/"><u>Maximize Gaming Thrills: Secure the Latest Driver Packages for Logitech MOMO Racing Wheel on Windows PC!</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-best-solarmovie-alternatives-watch-movies-online/"><u>New 2024 Approved Best SolarMovie Alternatives-Watch Movies Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-a-funny-meme-on-macbook/"><u>New 2024 Approved How to Make a Funny Meme on MacBook</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-top-10-storyboarding-software/"><u>New 2024 Approved Top 10 Storyboarding Software</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-imovie-photo-slideshow-with-music/"><u>New In 2024, How to Make a iMovie Photo Slideshow with Music?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-is-this-a-pigeon-meme-generator/"><u>New Is This a Pigeon Meme Generator</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/ultimate-compatibility-pack-officejet-pro-8600-windows-edition/"><u>Ultimate Compatibility Pack: Officejet Pro 8600, Windows Edition</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-secrets-affordable-thrills-with-the-quick-and-nimble-propella-7s-electric-scooter/"><u>Unveiling the Secrets: Affordable Thrills with the Quick and Nimble Propella 7S Electric Scooter!</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-a-video-meme-with-4-best-meme-video-makers/"><u>Updated In 2024, How to Make a Video Meme with 4 Best Meme Video Makers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-making-triggered-memes-with-filmora-video-editor/"><u>Updated Making Triggered Memes with Filmora Video Editor</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/what-is-emoji-for-2024/"><u>What Is Emoji for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/whats-different-about-vegaspro-since-its-launch-for-2024/"><u>What's Different About VegasPro Since Its Launch for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-expertise-in-mobile-lut-apps/"><u>[New] Expertise in Mobile LUT Apps</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-prime-fb-extra-tools-enhanced-firefox-version-compatibility/"><u>[New] In 2024, Prime FB Extra Tools Enhanced Firefox Version Compatibility</u></a></li>
+<li><a href="https://win11.techidaily.com/bridging-gap-to-windows-11-concealed-searchlight/"><u>Bridging Gap to Windows 11 Concealed Searchlight</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/explore-the-ultimate-6-destinations-for-quality-laptops-available-now/"><u>Explore the Ultimate 6 Destinations for Quality Laptops Available Now</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-20-wonderful-stop-motion-ideas-for-beginners-and-kids-filmora/"><u>In 2024, 20 Wonderful Stop Motion Ideas for Beginners and Kids - Filmora</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-emojis-to-videos-the-ultimate-guide-for-2024/"><u>New How to Add Emojis to Videos The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-honor-x50-by-drfone-android/"><u>Top 10 Password Cracking Tools For Honor X50</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-emoji-removers-to-remove-emojis-from-pictures-onlinepcmobile/"><u>Updated Best Emoji Removers to Remove Emojis From Pictures Online/PC/Mobile</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-top-12-best-meme-makers-online-for-free/"><u>Updated Top 12 Best Meme Makers Online for FREE</u></a></li>
 </ul></div>
 
