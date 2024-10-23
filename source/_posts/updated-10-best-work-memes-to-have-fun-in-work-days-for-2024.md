@@ -1,7 +1,7 @@
 ---
 title: Updated 10 Best Work Memes to Have Fun in Work Days for 2024
-date: 2024-10-15T16:24:26.617Z
-updated: 2024-10-17T17:05:50.179Z
+date: 2024-10-16T16:13:31.760Z
+updated: 2024-10-23T16:47:04.887Z
 tags: 
   - ai
   - animation videos
@@ -85,13 +85,6 @@ thumbnail: https://thmb.techidaily.com/51dee520b6548ad713de001f9d872ff359ce7157f
 
 ![But you have to stop yourself](https://images.wondershare.com/filmora/article-images/stop-yourself-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10\. I am sending a follow up email
 
  When you keep on reminding people to acknowledge your work email, but they don’t. You send follow up email to tell them, that your job is done.
@@ -146,11 +139,25 @@ Follow @Ollie Mattison
 
 ![When you have been telling management](https://images.wondershare.com/filmora/article-images/telling-management-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. It’s Wednesday
 
  Work memes like this are sarcastic. When your boss asks that you are late for work third time in the week. Your obvious response is mentally replying is it Wednesday?
 
 ![It’s Wednesday](https://images.wondershare.com/filmora/article-images/wednesday-meme.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Dress for the job you want
 
@@ -296,6 +303,13 @@ Follow @Ollie Mattison
 
 ![When you think you been working for 4 hours](https://images.wondershare.com/filmora/article-images/working-4-hours-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Me five minutes after getting to work
 
  This work meme literally made us laugh. Every minute seems longer at work and it’s funny that the meme says a cupcake is badly needed to lift the work mood.
@@ -337,13 +351,6 @@ Follow @Ollie Mattison
  This work meme is epic. People usually get annoyed by people and revolt, but at the work place they need to tolerate the undesired behavior and bossy-ness.
 
 ![I don’t always tolerate stupid people](https://images.wondershare.com/filmora/article-images/stupid-people-meme.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\. But you have to stop yourself
 
@@ -877,6 +884,13 @@ So, these are some of the best free and paid to storyboard software that you can
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -937,13 +951,6 @@ Price: $10/month (14 days Free Trial Available)
 Platforms: Windows, Linux, and Mac
 
 ![plot-poster](https://images.wondershare.com/filmora/article-images/plot-poster.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Storytelling is super easy with the plot. There are no limits to the number of boards, projects, and users you can have. With some nice features targeted toward animators, it is a web-based storyboarding app for beginners.
 
@@ -1048,6 +1055,13 @@ So, these are some of the best free and paid to storyboard software that you can
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -1161,6 +1175,13 @@ Memojis enable you to choose the character’s skin color, head, nose, ear shape
 ![what-is-memoji](https://images.wondershare.com/filmora/article-images/what-is-memoji.jpg)
 
 See best Memoji makers here: [Top 8 Memoji Makers to Make a Memoji on PC, Android, and iPhone.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Set Up and Create Memojis?
 
@@ -1730,13 +1751,6 @@ On the other hand, as a server owner, you can give others this role with the fol
 * **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
 * **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## FAQs About Discord Emojis
 
 ### 1\. Why Do I See Grey Emoji In The Emoji Menu?
@@ -1748,6 +1762,13 @@ Greyed-out emoji in the menu means that either those emoji are animated, or you 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
 You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. What Is The Discord Emoji Size?
 
@@ -1981,13 +2002,6 @@ Follow the steps below for either platform:
 
 ![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
 * A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
 * Enjoy your emoji in chats as soon as you upload them to the Discord server!
@@ -2034,13 +2048,6 @@ On the other hand, as a server owner, you can give others this role with the fol
 * **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
 * **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## FAQs About Discord Emojis
 
 ### 1\. Why Do I See Grey Emoji In The Emoji Menu?
@@ -2048,13 +2055,6 @@ On the other hand, as a server owner, you can give others this role with the fol
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
 ![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2127,13 +2127,6 @@ As an owner of a Discord channel, it is easy for you to add emoji to Discord. Fo
 * Select "Save Changes" to save the name with the emoji.
 
 ![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
 
@@ -2422,6 +2415,13 @@ Follow @Ollie Mattison
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Things You Need to Make a Triggered Meme
 
  Preparation is key to almost every important thing in life, including making a triggered meme featuring your bestie. Before you can capitalize on that amazing footage of triggered people you first have to make sure you have everything you need to generate a meme. Okay, let's get started with the essentials to making a fun and effective meme.
@@ -2586,20 +2586,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-discover-the-best-10-mac-screenshot-and-recording-apps/"><u>[New] In 2024, Discover the Best 10 Mac Screenshot and Recording Apps</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-vapor-3-showdown-veil-4-steps-forward-for-2024/"><u>[New] Vapor 3 Showdown Veil 4 Steps Forward for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-to-follow-tutorial-on-installing-free-intel-82579v-graphics-card-drivers/"><u>Easy-to-Follow Tutorial on Installing Free Intel 82579V Graphics Card Drivers</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fix-bootmgr-is-missing-error-easily-with-pictures/"><u>Fix BOOTMGR Is Missing Error Easily [with Pictures]</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/free-10-websites-to-watch-cartoon-online-in-hd-for-2024/"><u>FREE 10 Websites to Watch Cartoon Online in HD for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-realme-c33-2023-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Realme C33 2023 FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://games-able.techidaily.com/initiating-ps5-collaborative-gaming/"><u>Initiating PS5 Collaborative Gaming</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-best-emoji-removers-to-remove-emojis-from-pictures/"><u>New Best Emoji Removers to Remove Emojis From Pictures</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/troubleshooting-the-absence-of-mfc42dll-a-detailed-approach/"><u>Troubleshooting the Absence of mfc42.dll - A Detailed Approach</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-motorola-moto-g-5g-2023-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Motorola Moto G 5G (2023) Users</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-burn-photos-to-dvd-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>Updated 2024 Approved Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-edit-memoji-on-android-and-iphone-for-2024/"><u>Updated How to Edit Memoji on Android and iPhone for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-imovie-photo-slideshow-with-music/"><u>Updated How to Make a iMovie Photo Slideshow with Music?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-emoji-removers-to-remove-emojis-from-pictures-onlinepcmobile/"><u>Updated In 2024, Best Emoji Removers to Remove Emojis From Pictures Online/PC/Mobile</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-add-and-custom-slack-emoji-wondershare-filmora/"><u>Updated In 2024, How to Add and Custom Slack Emoji-Wondershare Filmora</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-faithful-melodies-how-to-install-christian-chimes/"><u>[New] 2024 Approved Faithful Melodies How to Install Christian Chimes</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-brighter-horizons-is-intense-light-for-hdr-right/"><u>[New] Brighter Horizons Is Intense Light for HDR Right?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-the-smart-technique-for-iphone-videos-reduction-and-scaling/"><u>2024 Approved The Smart Technique for iPhone Videos Reduction & Scaling</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ecore-the-premium-sdk-for-high-level-ebook-format-transformation/"><u>ECore: The Premium SDK for High-Level eBook Format Transformation</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-add-bitmoji-to-keyboard/"><u>How to Add Bitmoji to Keyboard?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-video-for-your-babys-first-year/"><u>How to Make a Video for Your Babys First Year</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Realme 12 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-20-wonderful-stop-motion-ideas-for-beginners-and-kids-for-2024/"><u>New 20 Wonderful Stop Motion Ideas for Beginners and Kids for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-stickers-to-whatsapp-the-ultimate-guide-for-2024/"><u>New How to Add Stickers to WhatsApp-The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-memes-with-white-background-step-by-step/"><u>New In 2024, How to Make Memes with White Background Step by Step</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-7-free-apps-to-get-emojis-on-android-and-iphone/"><u>Updated In 2024, 7 Free Apps to Get Emojis on Android and iPhone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-discover-the-best-video-editing-apps-for-kids-a-comprehensive-list/"><u>Updated In 2024, Discover the Best Video Editing Apps for Kids A Comprehensive List</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/winxdvd-eine-umfassende-losung-fur-die-konvertierung-von-dvds-in-hochwertige-formate-unter-einbeziehung-von-rippen-verbessern-und-iphone-ubertragungsfunktio141/"><u>WinXDVD: Eine Umfassende Lösung Für Die Konvertierung Von DVDs in Hochwertige Formate Unter Einbeziehung Von Rippen-, Verbessern- Und iPhone Übertragungsfunktionen, Offizielles Produkt</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/flac-mp3-m4a-swf-movavi-online-converter/"><u>오늘날의 인터넷 세이브로 FLAC, MP3, M4A를 SWF로 간단하게 변환 - MOVAVI ONLINE CONVERTER</u></a></li>
 </ul></div>
 

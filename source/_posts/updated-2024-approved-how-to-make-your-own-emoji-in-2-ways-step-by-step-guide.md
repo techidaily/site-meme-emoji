@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved How to Make Your Own Emoji in 2 Ways Step-By Step Guide
-date: 2024-10-13T21:22:37.774Z
-updated: 2024-10-17T22:40:38.346Z
+date: 2024-10-21T18:07:29.431Z
+updated: 2024-10-23T18:45:29.876Z
 tags: 
   - ai
   - animation videos
@@ -296,13 +296,6 @@ Now, as promised, I will show you exactly how it's done.
 6\. You can also click on the Text tab to insert a message with customized size, color, or font
 
 ![create emoji text](https://images.wondershare.com/filmora/article-images/4-create-emoji-text.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 7\. After customization, press Save in the top right corner. You can either directly save the emoji to your pc or crop to size and then save.
 
@@ -815,6 +808,13 @@ Follow @Shanoon Cox
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 25 Cute Memes to Make You Feel Better
 
 # 25 Cute Memes to Make You Feel Better
@@ -901,6 +901,13 @@ Follow @Shanoon Cox
 
 ![You Drink Milk Out Of a Glass](https://images.wondershare.com/filmora/article-images/drink-milk-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 13\. Excuse me
 
  This meme can surely make your day. It is so cute. A rabbit knocking you to ask the direction of the carrot patch saying excuse me.
@@ -924,13 +931,6 @@ Follow @Shanoon Cox
  This meme shows a dog holding a soft toy in his mouth and playing with it. The master it seems urges the dog to throw it 3000 more times.
 
 ![Throw it More 3000 Times](https://images.wondershare.com/filmora/article-images/throw-far-meme.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 17\. I Pray to Cheesus
 
@@ -973,6 +973,13 @@ Follow @Shanoon Cox
  This little rabbit is seen being washed in the water and the sad rabbit retorts the water cannot wash away his cuteness however you try. This cute meme cannot be overlooked.
 
 ![You will never wash off my cuteness](https://images.wondershare.com/filmora/article-images/wash-off-cuteness.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 24\. Chemistry joke
 
@@ -1242,6 +1249,13 @@ Follow @Ollie Mattison
 
 ![People Say I Look Cute](https://images.wondershare.com/filmora/article-images/i-look-cute-meme.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 12\. You Drink Milk Out Of a Glass?
 
  This meme is cuteness overloaded with a baby giving a weird look and saying you drink milk out of a glass?
@@ -1265,13 +1279,6 @@ Follow @Ollie Mattison
  A fat squirrel sitting fluffily sitting on the grass and saying he’s ready for winter, why do you have to ask? Isn’t it cute?
 
 ![Ready for Winter](https://images.wondershare.com/filmora/article-images/reday-winter-meme.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 16\. Throw it More 3000 Times
 
@@ -1353,6 +1360,13 @@ Follow @Ollie Mattison
 
 ## 25 Cute Memes
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. I said good morning
 
  When you are angry with your friend and receive a message with this cute black and white fur dog saying Good Morning with big eyes, it can melt your heart instantly. Try sending it to someone; it can surely bring a smile to your loved one’s faces.
@@ -1370,13 +1384,6 @@ Follow @Ollie Mattison
  There is some amazing cut now memes that show when something grows out of proportion, cutting it off is the best solution. Here, the meme shows 2 images of the dogs. On the first image, a small bird is sitting and looking cute. But, in the second image, the bird has grown bigger and the dog seems frail. So, from cute now it becomes ‘cut now.’
 
 ![Cut Now](https://images.wondershare.com/filmora/article-images/cute-now-meme.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Drop the Camera
 
@@ -1503,6 +1510,19 @@ Follow @Ollie Mattison
  Anyone can look at the cat in this cute meme and fall in love with it. This cat is seen wearing specs and bow sitting on a chair and teaching Chemistry. But, unfortunately, didn’t find any reaction when he narrated a chemistry joke.
 
 ![Chemistry joke](https://images.wondershare.com/filmora/article-images/reaction-meme.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 25\. Tired, just tired
 
@@ -2118,13 +2138,6 @@ In Windows 11, although you can launch the emojis keyboard using the same shortc
 
 In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Get More Emojis in Windows 11
 
 If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
@@ -2221,13 +2234,6 @@ In Windows 11, although you can launch the emojis keyboard using the same shortc
 * **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
 
 In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Get More Emojis in Windows 11
 
@@ -2340,13 +2346,6 @@ Follow @Shanoon Cox
 
 ![transition effects](https://images.wondershare.com/topic/photo-editing/transition-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 3 Save Photo Slideshow to FLV Video
 
  Select Flash Video format as the output and make advanced settings by clicking Settings button. Finally, click Burn and wail a while, you get your FLV video to sharing on YouTube, Facebook, MySpace, Mobile Phone. Alternatively, play FLV video on computer via stand-alone FLV player.
@@ -2409,6 +2408,13 @@ Follow @Shanoon Cox
 
 ![create flv slideshow](https://images.wondershare.com/topic/photo-editing/create-flv-slideshow.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### FLV Slideshow Tips
 
  For more detailed settings of FLV slideshow, click Settings button and specify various options, like encoder, resolution, frame rate, bit rate and audio settings.
@@ -2444,13 +2450,6 @@ Follow @Shanoon Cox
  Mar 27, 2024• Proven solutions
 
  FLV slideshow is a suitable way to share photos and videos online due to its small size and reasonable quality. [Wondershare DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) brings more convenience to instantly [make a slideshow with music](https://tools.techidaily.com/wondershare/filmora/download/), photos and lets you create FLV videos, as well as other video formats. You can create a **FLV slideshow** in easy steps as below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Easy Guide to Make FLV Slideshow with Music
 
@@ -2587,6 +2586,13 @@ Follow @Shanoon Cox
  The precious memories of your friends being enraged by the silliest things can be turned into hilarious memes effortlessly. A video editing software like Wondershare Filmora gives you all the tools you’ll need to quickly generate a triggered meme, so you can focus on having fun with your friends. What’s your favorite method of making memes?
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
@@ -2858,17 +2864,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-gamers-galaxy-a-thousand-stars-in-gaming/"><u>[New] In 2024, Gamers' Galaxy A Thousand Stars in Gaming</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-transform-your-hauls-into-visual-stories/"><u>[Updated] In 2024, Transform Your Hauls Into Visual Stories</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/1719581805899-beat-time-learn-japanese-digits-fast/"><u>Beat Time, Learn Japanese Digits Fast!</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-add-bitmoji-to-keyboard-complete-guide/"><u>In 2024, How to Add Bitmoji to Keyboard? Complete Guide</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-online-video-hubs-picking-between-vimeo-youtube-and-dailymotion/"><u>In 2024, Online Video Hubs Picking Between Vimeo, YouTube & Dailymotion</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-add-emojisstickers-to-videos-on-pcmacmobileonline/"><u>New How Add Emojis/Stickers to Videos on PC/Mac/Mobile/Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-imovie-photo-slideshow-with-music-imovie-tutorial/"><u>New In 2024, How to Make a iMovie Photo Slideshow with Music? IMovie Tutorial</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolved-how-to-fix-windows-cant-find-an-appropriate-printer-driver/"><u>Resolved: How to Fix 'Windows Can't Find an Appropriate Printer Driver'</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/streamlining-remote-collaboration-the-role-of-chatgpt-in-virtual-teams/"><u>Streamlining Remote Collaboration: The Role of ChatGPT in Virtual Teams</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/the-comprehensive-guide-to-effective-screen-recording-for-2024/"><u>The Comprehensive Guide to Effective Screen Recording for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/the-essential-guide-to-emoji-memoji-animoji-and-bitmoji-for-2024/"><u>The Essential Guide to Emoji, Memoji, Animoji, and Bitmoji for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-top-12-best-meme-makers-online-for-free-for-2024/"><u>Updated Top 12 Best Meme Makers Online for FREE for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-exploring-media-magic-an-in-depth-analysis-of-magix-vpx/"><u>[New] Exploring Media Magic An In-Depth Analysis of Magix VPX</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/47867040-new-your-marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads/"><u>[New] Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-essential-podcast-scriptwriting-skills-demystified-examples-included-for-2024/"><u>[Updated] Essential Podcast Scriptwriting Skills Demystified (Examples Included) for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fire-browser-revolution-top-extra-tools-to-streamline-facebook-video-downloads-on-firefox/"><u>[Updated] Fire-Browser Revolution Top Extra Tools to Streamline Facebook Video Downloads on FireFox</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-apple-iphone-12-pro-icloud-activation-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing Apple iPhone 12 Pro iCloud Activation Lock</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-add-stickers-to-whatsapp-the-ultimate-guide/"><u>New 2024 Approved How to Add Stickers to WhatsApp-The Ultimate Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-best-solarmovie-alternatives-watch-movies-free-online/"><u>New In 2024, Best SolarMovie Alternatives-Watch Movies Free Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-video-slideshow-with-your-travel-photos/"><u>Updated 2024 Approved How to Make Video Slideshow with Your Travel Photos</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-what-is-emoji/"><u>Updated 2024 Approved What Is Emoji?</u></a></li>
 </ul></div>
 

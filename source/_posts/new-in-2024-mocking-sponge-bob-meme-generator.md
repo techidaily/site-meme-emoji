@@ -1,7 +1,7 @@
 ---
 title: New In 2024, Mocking Sponge Bob Meme Generator
-date: 2024-10-11T16:31:22.269Z
-updated: 2024-10-17T22:58:04.666Z
+date: 2024-10-16T16:11:32.670Z
+updated: 2024-10-23T18:30:14.534Z
 tags: 
   - ai
   - animation videos
@@ -107,6 +107,13 @@ Copy the image
 
 ![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The Edit Your Image window will pop up on the screen if you decide to upload the template from a compute, so you can just drag one of the handles to crop it. If you want, you can rotate or flip the picture, before you hit the OK button.
 
 ![](https://images.wondershare.com/filmora/article-images/crop-sponge-bob-meme.jpg)
@@ -116,6 +123,13 @@ Copy the image
  The Editing panel will appear on the screen, with the SpongeBob picture displayed in the middle of the screen. On the left side of the webpage, you'll be able to see the Text Inside and Text Outside tools that let you choose the position of the text in the picture. Select the **Outside Text** option because a great majority of Mocking SpongeBob memes doesn't feature text within the image. Below these tools you can find Top and Bottom text boxes, so you can just choose the position of the text and then insert it into appropriate boxes.
 
 ![](https://images.wondershare.com/filmora/article-images/add-text-to-sponge-bob-meme.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  There is a lot of fonts to choose from, and you can easily select the text size, change the color of the text or align the text. After customizing the texts you can choose the file type since the Filmora Online Meme Maker lets you generate GIFs, videos and images.
 
@@ -274,89 +288,6 @@ Follow @Ollie Mattison
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-iPhoto is a photo library familiar to iOS users. It can help you easily organize, store and sort images, and even make a slide show to help you enjoy photos. This is why, even though Apple no longer develops iPhoto, some people use it.
-
-**Update:** On April 8, 2015, Apple has launched a new Photos app on OS X Yosemite, which means Apple has stopped developing iPhoto. However, if you like iPhoto, you can still use it.
-
-The following will introduce how to use the iPhoto collage maker on Mac or iPhone. At the end of this article, iPhoto alternative software will serve as your reference.
-
-* **[Part 1: How to Make a Photo Collage in iPhoto?](#part1)**
-* **[Part 2: What Replaces iPhoto on Mac/iPhone?](#part2)**
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part 1: How to Make a Photo Collage in iPhoto?
-
-Here are the quick steps to create a photo collage with iPhoto.
-
-**Step 1:** Launch iPhoto and click “Events” in the side menu.
-
-**Step 2:** Hold “Shift” and click each photo you want to include in your photo collage.
-
-**Step 3:** Click the “+” button in the lower-left corner and select **Card** in the pop-up window.
-
-![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-add-image.JPG)
-
-**Step 4:** Choose “Picture Collage”, which should be under the **Any Occasion** section if you are using the iPhoto 11.
-
-**Step 5:** You’ll notice that all the templates are sorted based on the occasion.
-
-**Step 6:** Drag photos to the template and pick a background, orientation and design.
-
-![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-drag-photo.JPG)
-
-**Step 7:** Click the **Buy** button on the lower right-hand corner of the collage editor, or go to the **Share** menu and email it to yourself or family members.
-
-But before you make a photo collage using iPhoto, here are some important things for you to know:
-
-1. Technically, iPhoto can’t make fancy photo collages like other Photo collages makers on Mac. So don’t expect too much of it. iPhoto only creates greeting cards with a simple collage layout.
-2. The templates iPhoto offers are quite limited and ordinary that you might feel a little disappointed.
-3. iPhoto offers no share options to save photo collages to desktop or to post on Facebook, which is a basic feature of picture collage editor.
-
-## Part 2: What Replaces iPhoto on Mac/iPhone?
-
-Since iPhoto's functions are not sufficient, we will introduce some alternative collage makers that you may be interested in.
-
-### Alternative to Make a Short Video, Slideshow, or Photo Collage: Wondershare Filmora
-
-If there are too many photos to save or share with friends and family, you can use these images to make short videos to better collage and share. Filmora can do this for you, through which you can easily crop, add effects, split the screen, and merge photos. In order to make the "photo video" lively and exciting, you can also add music, audio, animation, title, music, etc. to it.
-
-[![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-### Alternative to Organize, Store, and Sort Images: iCloud
-
-Migrating your photos to iCloud is a wise choice. iCloud is the best photo storage for iOS or Mac users. You don't need to download other apps or software. Just allow iCloud to back up the photo's library in the settings.
-
-The best thing is that you can view iCloud photos anytime and anywhere after logging in to your iCloud account. You can also automatically share photos with others by opening "Shared Album". However, if there are too many photos, a paid subscription may be required to upgrade the storage space.
-
-### Conclusion
-
-Above are the steps to make a photo collage using iPhoto on Mac/iPhone. We also list alternative methods to meet the different needs of the Photo library. So, if this isn’t quite what you’re looking for, you can also use some [online photo collage service](https://tools.techidaily.com/wondershare/fotophire/download/) instead. If you want to have more fun editing photo stories, welcome to download Filmora and make more memorable and interesting videos.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
 ##### Shanoon Cox
 
  Mar 27, 2024• Proven solutions
@@ -450,6 +381,82 @@ Here are the quick steps to create a photo collage with iPhoto.
 **Step 3:** Click the “+” button in the lower-left corner and select **Card** in the pop-up window.
 
 ![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-add-image.JPG)
+
+**Step 4:** Choose “Picture Collage”, which should be under the **Any Occasion** section if you are using the iPhoto 11.
+
+**Step 5:** You’ll notice that all the templates are sorted based on the occasion.
+
+**Step 6:** Drag photos to the template and pick a background, orientation and design.
+
+![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-drag-photo.JPG)
+
+**Step 7:** Click the **Buy** button on the lower right-hand corner of the collage editor, or go to the **Share** menu and email it to yourself or family members.
+
+But before you make a photo collage using iPhoto, here are some important things for you to know:
+
+1. Technically, iPhoto can’t make fancy photo collages like other Photo collages makers on Mac. So don’t expect too much of it. iPhoto only creates greeting cards with a simple collage layout.
+2. The templates iPhoto offers are quite limited and ordinary that you might feel a little disappointed.
+3. iPhoto offers no share options to save photo collages to desktop or to post on Facebook, which is a basic feature of picture collage editor.
+
+## Part 2: What Replaces iPhoto on Mac/iPhone?
+
+Since iPhoto's functions are not sufficient, we will introduce some alternative collage makers that you may be interested in.
+
+### Alternative to Make a Short Video, Slideshow, or Photo Collage: Wondershare Filmora
+
+If there are too many photos to save or share with friends and family, you can use these images to make short videos to better collage and share. Filmora can do this for you, through which you can easily crop, add effects, split the screen, and merge photos. In order to make the "photo video" lively and exciting, you can also add music, audio, animation, title, music, etc. to it.
+
+[![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Alternative to Organize, Store, and Sort Images: iCloud
+
+Migrating your photos to iCloud is a wise choice. iCloud is the best photo storage for iOS or Mac users. You don't need to download other apps or software. Just allow iCloud to back up the photo's library in the settings.
+
+The best thing is that you can view iCloud photos anytime and anywhere after logging in to your iCloud account. You can also automatically share photos with others by opening "Shared Album". However, if there are too many photos, a paid subscription may be required to upgrade the storage space.
+
+### Conclusion
+
+Above are the steps to make a photo collage using iPhoto on Mac/iPhone. We also list alternative methods to meet the different needs of the Photo library. So, if this isn’t quite what you’re looking for, you can also use some [online photo collage service](https://tools.techidaily.com/wondershare/fotophire/download/) instead. If you want to have more fun editing photo stories, welcome to download Filmora and make more memorable and interesting videos.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+iPhoto is a photo library familiar to iOS users. It can help you easily organize, store and sort images, and even make a slide show to help you enjoy photos. This is why, even though Apple no longer develops iPhoto, some people use it.
+
+**Update:** On April 8, 2015, Apple has launched a new Photos app on OS X Yosemite, which means Apple has stopped developing iPhoto. However, if you like iPhoto, you can still use it.
+
+The following will introduce how to use the iPhoto collage maker on Mac or iPhone. At the end of this article, iPhoto alternative software will serve as your reference.
+
+* **[Part 1: How to Make a Photo Collage in iPhoto?](#part1)**
+* **[Part 2: What Replaces iPhoto on Mac/iPhone?](#part2)**
+
+## Part 1: How to Make a Photo Collage in iPhoto?
+
+Here are the quick steps to create a photo collage with iPhoto.
+
+**Step 1:** Launch iPhoto and click “Events” in the side menu.
+
+**Step 2:** Hold “Shift” and click each photo you want to include in your photo collage.
+
+**Step 3:** Click the “+” button in the lower-left corner and select **Card** in the pop-up window.
+
+![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-add-image.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4:** Choose “Picture Collage”, which should be under the **Any Occasion** section if you are using the iPhoto 11.
 
@@ -915,10 +922,10 @@ For instance, a long-haired dead man was found standing behind a man working on 
 ![pewdiepiesubmissions](https://images.wondershare.com/filmora/article-images/PewdiepieSubmissions.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9. /r/funny
@@ -1085,105 +1092,6 @@ Let me show you how to add Slack emoji in a few quick steps:
 
 ![Tap And Send Slack Emoji](https://images.wondershare.com/filmora/article-images/tap-and-send-slack-emoji.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part 2: How to Custom Slack Emoji
-
-Using the commonly used emojis can get boring. Sometimes, even the Slack emoji collection falls short in expressing the exact feeling you wish to convey. However, the good news is that you can easily create a custom Slack emoji without any hassle.
-
-A Slack custom emoji can range from your own picture to any other image. You can create a personalized custom Slack emoji to crack inside jokes or create your brand icon Slack emoji.
-
-Here's how to create an awesome custom Slack emoji-
-
-1.On your workspace, click on your company name or icon to open the settings drop-down menu. Tap on **Settings&Administration<Customize.**
-
-![Slack Custom Settings](https://images.wondershare.com/filmora/article-images/slack-custom-settings.jpg)
-
-2.A new window will pop open. In the **Emoji** tab, click on **Add Custom Emoji.**
-
-![Add Custom Slack Emoji](https://images.wondershare.com/filmora/article-images/add-custom-slack-emoji.jpg)
-
-3.Here you can upload any image to make your custom Slack emoji. Click on **Upload** **Image** to select a file.
-
-![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
-
-4.Then, give your emoji a name so you can easily find the custom Slack emoji while chatting. Click **Save** to finish.
-
-![Name Slack Emoji](https://images.wondershare.com/filmora/article-images/name-slack-emoji.jpg)
-
-5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
-
-![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
-
-## Bonus Tip-Edit Emoji and Add Emoji to Your Video
-
-Now, let me present a top-notch video editor to help you add Slack emoji to your video without needing any editing experience.
-
-Wondershare Filmora is a powerful video editor with a highly intuitive interface. It is loaded with high-end editing tools that are incredibly easy to use. You can add keyframe animations to make your videos more dynamic with a single click. Motion tracking allows you to track the specified object's movements throughout the video, even allowing you to blur certain parts of the video. From the Effects tab, you can add cinematic effects to your videos, or you can easily color match all your scenes with one tap or apply noise reduction.
-
-If you wish to edit or add custom Slack emoji to your video, you can import the image to Filmora and then drag it to the track above the video in the timeline. You can then add animations or motion tracking to adjust the custom Slack emoji. Cool transitions and color adjustments can also be made to make the video more appealing and unique. Special effects or catchy captions are just a tap away to help you create stunning videos
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-### Conclusion
-
-With the introduction of emojis, the need for writing long messages has diminished. Using a Slack emoji can turn your conversations around and make them more interesting. Chatting has never been easier or more fun.
-
-Add Slack emoji or react to what others have to say. It's time to create a custom Slack emoji to wow your friends and colleagues with tiny emojis that are exclusive to just you. If you want to spice up your work chats, just add Slack emoji and enjoy.
-
-Try out Wondershare Filmora to add Slack emoji to your videos to make them unique.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-A Slack emoji is just like the emojis you usually use on Whatsapp, Messenger, or other chatting platforms. There is a wide range of emojis you can use to express yourself better or lighten the working environment.
-
-Plus, the option to create a custom Slack emoji makes it more interesting. You can use it to create a new and unique Slack emoji to personalize your chatting experience. Why write long texts when you can just add Slack emoji to say it all?
-
-Let me show you the ropes on how to create a custom Slack emoji and make your chatting experience more fun.
-
-* [Part 1: How to Add Slack Emoji](#part1)
-* [Part 2: How to Custom Slack Emoji](#part2)
-* [Bonus Tip-Edit Emoji and Add Emoji to Your Video](#part3)
-
-## Part 1: How to Add Slack Emoji
-
-At Slack, you can find a Slack emoji for every emotion or occasion. Finding the perfect Slack emoji is as easy as browsing through the categorized sections. Better yet, the option to search for a Slack emoji makes it a cakewalk to get the exact Slack emoji to express oneself.
-
-Also, you can add Slack emoji with a single tap. And it allows you to add unlimited Slack emoji in one message.
-
-Let me show you how to add Slack emoji in a few quick steps:
-
-1.Download and open Slack on your desktop or smartphone.
-
-![Open And Launch Slack](https://images.wondershare.com/filmora/article-images/open-and-launch-slack.jpg)
-
-2.To add a Slack emoji, click on the Smiley face icon in the bottom right corner of the message box
-
-![Find Slack Emoji Option](https://images.wondershare.com/filmora/article-images/find-slack-emoji-option.jpg)
-
-3.Browse through the categories to find the right Slack emoji for your message. In the search bar, type the kind of emoji you are looking for to find it faster.
-
-![Select Slack Emoji](https://images.wondershare.com/filmora/article-images/select-slack-emoji.jpg)
-
-4.Click on the Hand icon in the bottom right corner to choose the default skin tone for all your emojis. Finally, to add Slack emoji to your message, just tap on it. Add as many Slack emoji as you like just by tapping on them.
-
-![Tap And Send Slack Emoji](https://images.wondershare.com/filmora/article-images/tap-and-send-slack-emoji.jpg)
-
 ## Part 2: How to Custom Slack Emoji
 
 Using the commonly used emojis can get boring. Sometimes, even the Slack emoji collection falls short in expressing the exact feeling you wish to convey. However, the good news is that you can easily create a custom Slack emoji without any hassle.
@@ -1289,11 +1197,110 @@ Here's how to create an awesome custom Slack emoji-
 ![Slack Custom Settings](https://images.wondershare.com/filmora/article-images/slack-custom-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+2.A new window will pop open. In the **Emoji** tab, click on **Add Custom Emoji.**
+
+![Add Custom Slack Emoji](https://images.wondershare.com/filmora/article-images/add-custom-slack-emoji.jpg)
+
+3.Here you can upload any image to make your custom Slack emoji. Click on **Upload** **Image** to select a file.
+
+![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
+
+4.Then, give your emoji a name so you can easily find the custom Slack emoji while chatting. Click **Save** to finish.
+
+![Name Slack Emoji](https://images.wondershare.com/filmora/article-images/name-slack-emoji.jpg)
+
+5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
+
+![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
+
+## Bonus Tip-Edit Emoji and Add Emoji to Your Video
+
+Now, let me present a top-notch video editor to help you add Slack emoji to your video without needing any editing experience.
+
+Wondershare Filmora is a powerful video editor with a highly intuitive interface. It is loaded with high-end editing tools that are incredibly easy to use. You can add keyframe animations to make your videos more dynamic with a single click. Motion tracking allows you to track the specified object's movements throughout the video, even allowing you to blur certain parts of the video. From the Effects tab, you can add cinematic effects to your videos, or you can easily color match all your scenes with one tap or apply noise reduction.
+
+If you wish to edit or add custom Slack emoji to your video, you can import the image to Filmora and then drag it to the track above the video in the timeline. You can then add animations or motion tracking to adjust the custom Slack emoji. Cool transitions and color adjustments can also be made to make the video more appealing and unique. Special effects or catchy captions are just a tap away to help you create stunning videos
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Conclusion
+
+With the introduction of emojis, the need for writing long messages has diminished. Using a Slack emoji can turn your conversations around and make them more interesting. Chatting has never been easier or more fun.
+
+Add Slack emoji or react to what others have to say. It's time to create a custom Slack emoji to wow your friends and colleagues with tiny emojis that are exclusive to just you. If you want to spice up your work chats, just add Slack emoji and enjoy.
+
+Try out Wondershare Filmora to add Slack emoji to your videos to make them unique.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+A Slack emoji is just like the emojis you usually use on Whatsapp, Messenger, or other chatting platforms. There is a wide range of emojis you can use to express yourself better or lighten the working environment.
+
+Plus, the option to create a custom Slack emoji makes it more interesting. You can use it to create a new and unique Slack emoji to personalize your chatting experience. Why write long texts when you can just add Slack emoji to say it all?
+
+Let me show you the ropes on how to create a custom Slack emoji and make your chatting experience more fun.
+
+* [Part 1: How to Add Slack Emoji](#part1)
+* [Part 2: How to Custom Slack Emoji](#part2)
+* [Bonus Tip-Edit Emoji and Add Emoji to Your Video](#part3)
+
+## Part 1: How to Add Slack Emoji
+
+At Slack, you can find a Slack emoji for every emotion or occasion. Finding the perfect Slack emoji is as easy as browsing through the categorized sections. Better yet, the option to search for a Slack emoji makes it a cakewalk to get the exact Slack emoji to express oneself.
+
+Also, you can add Slack emoji with a single tap. And it allows you to add unlimited Slack emoji in one message.
+
+Let me show you how to add Slack emoji in a few quick steps:
+
+1.Download and open Slack on your desktop or smartphone.
+
+![Open And Launch Slack](https://images.wondershare.com/filmora/article-images/open-and-launch-slack.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+2.To add a Slack emoji, click on the Smiley face icon in the bottom right corner of the message box
+
+![Find Slack Emoji Option](https://images.wondershare.com/filmora/article-images/find-slack-emoji-option.jpg)
+
+3.Browse through the categories to find the right Slack emoji for your message. In the search bar, type the kind of emoji you are looking for to find it faster.
+
+![Select Slack Emoji](https://images.wondershare.com/filmora/article-images/select-slack-emoji.jpg)
+
+4.Click on the Hand icon in the bottom right corner to choose the default skin tone for all your emojis. Finally, to add Slack emoji to your message, just tap on it. Add as many Slack emoji as you like just by tapping on them.
+
+![Tap And Send Slack Emoji](https://images.wondershare.com/filmora/article-images/tap-and-send-slack-emoji.jpg)
+
+## Part 2: How to Custom Slack Emoji
+
+Using the commonly used emojis can get boring. Sometimes, even the Slack emoji collection falls short in expressing the exact feeling you wish to convey. However, the good news is that you can easily create a custom Slack emoji without any hassle.
+
+A Slack custom emoji can range from your own picture to any other image. You can create a personalized custom Slack emoji to crack inside jokes or create your brand icon Slack emoji.
+
+Here's how to create an awesome custom Slack emoji-
+
+1.On your workspace, click on your company name or icon to open the settings drop-down menu. Tap on **Settings&Administration<Customize.**
+
+![Slack Custom Settings](https://images.wondershare.com/filmora/article-images/slack-custom-settings.jpg)
 
 2.A new window will pop open. In the **Emoji** tab, click on **Add Custom Emoji.**
 
@@ -1760,6 +1767,13 @@ As for the shortcuts, depending on the type of expression you want to convey, th
 
 **Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
 
+<!-- affiliate ads begin -->
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
 
 If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
@@ -1889,6 +1903,13 @@ In Windows 11, although you can launch the emojis keyboard using the same shortc
 * **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
 
 In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Get More Emojis in Windows 11
 
@@ -2147,13 +2168,6 @@ One of the best things about Discord's emoji feature is that there are two ways 
 
 ![Send emojis on Discord Chat](https://images.wondershare.com/filmora/article-images/send-emoji-discord-chat.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You can access the emoji menu for all Discord platforms by pressing the grey smiley face next to the message box. This will be on the right of the box for desktops, and for mobile apps, it will be on the left.
 
 Discord-exclusive and standard emoji are present in the emoji menu, along with a part that keeps track of your most-used emoji.
@@ -2356,13 +2370,6 @@ Discord's interface is similar across all devices, so the following steps work o
 
 ![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/open-discord-channel-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * As the channel and server list opens for Discord, you can see a three-dot menu right next to the channel list with the server name. Tap on it to proceed.
 * To get to your server settings, press "Settings" in the Discord server menu that shows up.
 * Under the "Server Settings" menu, select "Emoji" to access the custom emoji settings.
@@ -2392,13 +2399,6 @@ On the other hand, as a server owner, you can give others this role with the fol
 
 * **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
 * **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About Discord Emojis
 
@@ -2736,18 +2736,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-best-price-to-performance-laptops-under-500-gaming-edition/"><u>[Updated] In 2024, Best Price-to-Performance Laptops Under $500 (Gaming Edition)</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-itel-p55plus-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Itel P55+ Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/device-unlock-infinix-smart-8-hd-by-drfone-android-unlock-android-unlock/"><u>Device unlock Infinix Smart 8 HD</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/dont-miss-a-buzzer-beater-comprehensive-mens-ncaa-march-madness-and-final-four-radio-highlights/"><u>Don’t Miss a Buzzer-Beater: Comprehensive Men's NCAA March Madness and Final Four Radio Highlights!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-nokia-c110-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Nokia C110 Device</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-photo-collage-using-iphoto/"><u>New In 2024, How to Make a Photo Collage Using iPhoto?</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/superior-mac-gif-enhancer-for-2024/"><u>Superior Mac GIF Enhancer for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/1722124628093-unpacking-the-pace-problem-why-is-chatgpt-4-not-as-fast-as-its-predecessor-chatgpt-3e/"><u>Unpacking the Pace Problem: Why Is ChatGPT-4 Not As Fast As Its Predecessor, ChatGPT-3.e</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-iosandandroid-best-apps-to-create-animoji-and-memoji-videos/"><u>Updated 2024 Approved IOS&Android Best Apps to Create Animoji and Memoji Videos</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-best-ios-and-android-apps-you-can-use-to-create-animoji-and-memoji-videos-for-2024/"><u>Updated Best iOS and Android Apps You Can Use to Create Animoji and Memoji Videos for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-record-and-edit-an-animoji-or-memoji-karaoke-music-video/"><u>Updated In 2024, How to Record and Edit an Animoji or Memoji Karaoke Music Video?</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-the-10-finest-no-cost-software-for-cutting-edge-podcast-recordings/"><u>Updated In 2024, The 10 Finest No-Cost Software for Cutting-Edge Podcast Recordings</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-top-5-free-ways-to-join-mpeg-video-files-together/"><u>Updated In 2024, Top 5 Free Ways to Join MPEG Video Files Together</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-avoiding-camera-induced-image-disruption/"><u>[New] 2024 Approved Avoiding Camera-Induced Image Disruption</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-elite-list-of-mac-tech-for-live-recording/"><u>[New] Elite List of Mac Tech for Live Recording</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-caramel-cam-chronicles-in-depth-analysis-and-instructions-for-ice-cream-recording/"><u>[New] In 2024, Caramel Cam Chronicles In-Depth Analysis & Instructions for Ice Cream Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-windows-10-basic-guide-to-audio-recording/"><u>[Updated] 2024 Approved Windows 10 Basic Guide to Audio Recording</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself/"><u>How to Make an Emoji of Yourself on Mobile ? Emoji Yourself</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-record-your-memorable-honeymoon-video-for-2024/"><u>How to Record Your Memorable Honeymoon Video for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>In 2024, 10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-harmonymix-pro-mac-and-windows-version/"><u>In 2024, HarmonyMix Pro Mac & Windows Version</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-filmora-scrn-essentials-recording-your-desktop-in-minutes-for-2024/"><u>New Filmora Scrn Essentials Recording Your Desktop in Minutes for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-use-emojis-on-windows/"><u>New How to Use Emojis on Windows</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-best-photo-slideshow-maker-how-to-make-a-photo-slideshow/"><u>New In 2024, Best Photo Slideshow Maker How to Make a Photo Slideshow</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/online-dailymotion-converter-convert-videos-to-any-format-for-free-for-2024/"><u>Online Dailymotion Converter Convert Videos to Any Format for Free for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-issues-with-non-working-fn-keys-on-asus-notebook-devices/"><u>Overcoming Issues with Non-Working Fn Keys on Asus Notebook Devices</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-a-review-of-the-anker-roav-dash-camera-c1/"><u>Unpacking the Features: A Review of the Anker Roav Dash Camera C1</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-free-10-websites-to-watch-cartoon-online-in-hd/"><u>Updated In 2024, FREE 10 Websites to Watch Cartoon Online in HD</u></a></li>
 </ul></div>
 

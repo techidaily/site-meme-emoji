@@ -1,7 +1,7 @@
 ---
 title: Updated How to Make a FLV Photo Slideshow for 2024
-date: 2024-10-08T16:25:03.625Z
-updated: 2024-10-11T18:31:19.937Z
+date: 2024-10-20T17:15:28.805Z
+updated: 2024-10-23T17:43:02.877Z
 tags: 
   - ai
   - animation videos
@@ -81,13 +81,6 @@ Follow @Shanoon Cox
 
  FLV slideshow is a suitable way to share photos and videos online due to its small size and reasonable quality. [Wondershare DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) brings more convenience to instantly [make a slideshow with music](https://tools.techidaily.com/wondershare/filmora/download/), photos and lets you create FLV videos, as well as other video formats. You can create a **FLV slideshow** in easy steps as below.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Easy Guide to Make FLV Slideshow with Music
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
@@ -101,13 +94,6 @@ Follow @Shanoon Cox
  This [slideshow maker](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) includes more than 100 transition effects for slides switch. Before applying, double-click transition thumbnail to preview in player on the right. You could also randomize transitions or apply one transition to all slides in FLV slideshow.
 
 ![transition effects](https://images.wondershare.com/topic/photo-editing/transition-effects.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3 Save Photo Slideshow to FLV Video
 
@@ -337,13 +323,6 @@ Winnie-the-Pooh was a cartoon character featured in 1928 in A.A Milne’s House 
 #### 10. Donald Duck
 
 Donald Duck is a cartoon character created by Walt Disney in 1934 with yellow legs and feet. Donald Duck wears a typical sailor shirt and a cap to look like a gentleman in every way. Donald Duck first appeared in The Wise Little Hen in 1934 and become one of the most popular characters with its style and anger-related issues. Though Donald Duck was very strict it inspired people to be gentle and easy with being tough.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -902,6 +881,13 @@ When you are done with that, you have to select the filters and overlays that wi
 
 Wondershare Filmora is a very good application for those that want a unique, fun travel slideshow. It allows you to get all the tools and high-quality features that you need in order to take the experience to the next level. We recommend you to check it out right away as it’s well worth the investment ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -1196,407 +1182,394 @@ Follow @Ollie Mattison
 
 ![Throw it More 3000 Times](https://images.wondershare.com/filmora/article-images/throw-far-meme.JPG)
 
+### 17\. I Pray to Cheesus
+
+ Here you can see a rat looking at you with a sad face and praying Cheesus. Seems it is truly cheesy and delicious to follow.
+
+![I Pray to Cheesus](https://images.wondershare.com/filmora/article-images/pray-to-cheesus.JPG)
+
+### 18\. I have no idea
+
+ The dog seems to enjoy a bath in the sea with waves rolling around him. Is it so? The dog has no idea what it’s up to.
+
+![I have no idea](https://images.wondershare.com/filmora/article-images/no-idea-meme.JPG)
+
+### 19\. I will devour your soul
+
+ It is a cactus meme wishing to consume your soul. Yet, too cute to miss out.
+
+![I will devour your soul](https://images.wondershare.com/filmora/article-images/devour-soul-meme.JPG)
+
+### 20\. I am otterly in love with you
+
+ These cute otters loving meme can definitely make your day. You can 2 otters in this cute meme, one kissing the other and expressing love.
+
+![I am otterly in love with you](https://images.wondershare.com/filmora/article-images/otterly-love-meme.JPG)
+
+### 21\. I request your assistance
+
+ This cute meme shows a cat wearing a hanger around its neck and asking for assistance from humans.
+
+![I request your assistance](https://images.wondershare.com/filmora/article-images/assistance-meme.JPG)
+
+### 22\. You make me blush
+
+ This yellow parrot with red cheeks is really cute to ignore. And when the parrot asks you to stop making it blush, it gets even cuter.
+
+![You make me blush](https://images.wondershare.com/filmora/article-images/make-me-blush-meme.JPG)
+
+### 23\. You will never wash off my cuteness
+
+ This little rabbit is seen being washed in the water and the sad rabbit retorts the water cannot wash away his cuteness however you try. This cute meme cannot be overlooked.
+
+![You will never wash off my cuteness](https://images.wondershare.com/filmora/article-images/wash-off-cuteness.JPG)
+
+### 24\. Chemistry joke
+
+ Anyone can look at the cat in this cute meme and fall in love with it. This cat is seen wearing specs and bow sitting on a chair and teaching Chemistry. But, unfortunately, didn’t find any reaction when he narrated a chemistry joke.
+
+![Chemistry joke](https://images.wondershare.com/filmora/article-images/reaction-meme.JPG)
+
+### 25\. Tired, just tired
+
+ This cute meme shows a dog sleeping on a deck. It seems to be very tired.
+
+![Tired](https://images.wondershare.com/filmora/article-images/tired-meme.JPG)
+
+## Conclusion
+
+ If you want to make memes easily, we recommend using Filmora meme maker. It is free to use and fast editing. No sign up! You can use it to make image, GIF and video memes in one place. Click [here](https://tools.techidaily.com/wondershare/filmora/download/) to check it out!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Are you stressed and feeling low? [Memes are the latest trend](https://tools.techidaily.com/wondershare/filmora/download/) that can make you feel better at any point in time. If you are depressed, tired, under the weather, and stressed- out, the cute memes can definitely brighten you up and offer positive and feel good vibes instantly. If you are feeling blue, just check out the 25 cute memes below and make your day worthy.
+
+## 25 Cute Memes
+
+### 1\. I said good morning
+
+ When you are angry with your friend and receive a message with this cute black and white fur dog saying Good Morning with big eyes, it can melt your heart instantly. Try sending it to someone; it can surely bring a smile to your loved one’s faces.
+
+![I said good morning](https://images.wondershare.com/filmora/article-images/said-good-morning-meme.JPG)
+
+### 2\. Cheer-Up
+
+ Are you sad and unhappy? This cute meme is enough to bring a broad smile on your face. It has a cute small kitty standing and looking at you. The kitty requests you to cheer up and not to make him sad. The cute expression of the kitty makes you forget all your sadness.
+
+![Cheer Up](https://images.wondershare.com/filmora/article-images/cheer-up-meme.JPG)
+
+### 3\. Cut Now
+
+ There is some amazing cut now memes that show when something grows out of proportion, cutting it off is the best solution. Here, the meme shows 2 images of the dogs. On the first image, a small bird is sitting and looking cute. But, in the second image, the bird has grown bigger and the dog seems frail. So, from cute now it becomes ‘cut now.’
+
+![Cut Now](https://images.wondershare.com/filmora/article-images/cute-now-meme.JPG)
+
+### 4\. Drop the Camera
+
+ In this cute meme, you can see the head of the panda with the body drowned in the water. The panda asks the photographer to drop the camera suggesting nobody will get hurt.
+
+![Drop the Camera](https://images.wondershare.com/filmora/article-images/drop-camera-meme.JPG)
+
+### 5\. I Just Want You
+
+ Aww!!! Such a cute meme showing a cat hugging the deer and saying, “I just want you…that’s it”. He likes everything whether it’s smile or flaws, sarcasm or jokes. This meme can make your day as there’s so much love in it.
+
+![I Just Want You](https://images.wondershare.com/filmora/article-images/just-want-you-meme.JPG)
+
+### 6\. You Can’t See Me
+
+ This is another cute meme that shows a standing dog amidst thousands and thousands of purple flowers. The caption says, “you cannot see me. I’m a flower” as the dog is lost amongst so many flowers and seems to look one of them.
+
+![You Can’t See Me](https://images.wondershare.com/filmora/article-images/you-can-not-see-me-meme.JPG)
+
+### 7\. It’s Your Birthday
+
+ In this meme, you can see a cat taking its head out through a piece of bread cut into a circle from the middle and the caption says proposing a toast for your Birthday. A wonderful and unique thought indeed.
+
+![It’s Your Birthday](https://images.wondershare.com/filmora/article-images/your-birthday-meme.JPG)
+
+### 8\. I Believe I Can Fly
+
+ This is an encouraging and cute meme showing the flying Penguins.
+
+![I Believe I Can Fly](https://images.wondershare.com/filmora/article-images/i-can-fly-meme.JPG)
+
+### 9\. I Love You
+
+ It shows a dog pointing at you with its paws saying Hey you I Love You. It’s really so cute.
+
+![I Love You](https://images.wondershare.com/filmora/article-images/i-love-you-meme.JPG)
+
+### 10\. They Said I Could Be Anything
+
+ This cute meme shows a panda hanging on the tree and saying as everyone said he can be anything, so he became a panda.
+
+![They Said I Could Be Anything](https://images.wondershare.com/filmora/article-images/could-be-anything-meme.JPG)
+
+### 11\. People Say I Look Cute
+
+ You can see a small cotton ball like doggy, cute like button confidently saying people say he’s cute and he knows it too.
+
+![People Say I Look Cute](https://images.wondershare.com/filmora/article-images/i-look-cute-meme.JPG)
+
+### 12\. You Drink Milk Out Of a Glass?
+
+ This meme is cuteness overloaded with a baby giving a weird look and saying you drink milk out of a glass?
+
+![You Drink Milk Out Of a Glass](https://images.wondershare.com/filmora/article-images/drink-milk-meme.JPG)
+
+### 13\. Excuse me
+
+ This meme can surely make your day. It is so cute. A rabbit knocking you to ask the direction of the carrot patch saying excuse me.
+
+![Excuse me](https://images.wondershare.com/filmora/article-images/excuse-me-meme.JPG)
+
+### 14\. Happy Friday
+
+ This cute meme shows a dog sitting beside the swimming pool and turning back to say Happy Friday.
+
+![Happy Friday](https://images.wondershare.com/filmora/article-images/happy-friday-meme.JPG)
+
+### 15\. Ready for Winter
+
+ A fat squirrel sitting fluffily sitting on the grass and saying he’s ready for winter, why do you have to ask? Isn’t it cute?
+
+![Ready for Winter](https://images.wondershare.com/filmora/article-images/reday-winter-meme.JPG)
+
+### 16\. Throw it More 3000 Times
+
+ This meme shows a dog holding a soft toy in his mouth and playing with it. The master it seems urges the dog to throw it 3000 more times.
+
+![Throw it More 3000 Times](https://images.wondershare.com/filmora/article-images/throw-far-meme.JPG)
+
+### 17\. I Pray to Cheesus
+
+ Here you can see a rat looking at you with a sad face and praying Cheesus. Seems it is truly cheesy and delicious to follow.
+
+![I Pray to Cheesus](https://images.wondershare.com/filmora/article-images/pray-to-cheesus.JPG)
+
+### 18\. I have no idea
+
+ The dog seems to enjoy a bath in the sea with waves rolling around him. Is it so? The dog has no idea what it’s up to.
+
+![I have no idea](https://images.wondershare.com/filmora/article-images/no-idea-meme.JPG)
+
+### 19\. I will devour your soul
+
+ It is a cactus meme wishing to consume your soul. Yet, too cute to miss out.
+
+![I will devour your soul](https://images.wondershare.com/filmora/article-images/devour-soul-meme.JPG)
+
+### 20\. I am otterly in love with you
+
+ These cute otters loving meme can definitely make your day. You can 2 otters in this cute meme, one kissing the other and expressing love.
+
+![I am otterly in love with you](https://images.wondershare.com/filmora/article-images/otterly-love-meme.JPG)
+
+### 21\. I request your assistance
+
+ This cute meme shows a cat wearing a hanger around its neck and asking for assistance from humans.
+
+![I request your assistance](https://images.wondershare.com/filmora/article-images/assistance-meme.JPG)
+
+### 22\. You make me blush
+
+ This yellow parrot with red cheeks is really cute to ignore. And when the parrot asks you to stop making it blush, it gets even cuter.
+
+![You make me blush](https://images.wondershare.com/filmora/article-images/make-me-blush-meme.JPG)
+
+### 23\. You will never wash off my cuteness
+
+ This little rabbit is seen being washed in the water and the sad rabbit retorts the water cannot wash away his cuteness however you try. This cute meme cannot be overlooked.
+
+![You will never wash off my cuteness](https://images.wondershare.com/filmora/article-images/wash-off-cuteness.JPG)
+
+### 24\. Chemistry joke
+
+ Anyone can look at the cat in this cute meme and fall in love with it. This cat is seen wearing specs and bow sitting on a chair and teaching Chemistry. But, unfortunately, didn’t find any reaction when he narrated a chemistry joke.
+
+![Chemistry joke](https://images.wondershare.com/filmora/article-images/reaction-meme.JPG)
+
+### 25\. Tired, just tired
+
+ This cute meme shows a dog sleeping on a deck. It seems to be very tired.
+
+![Tired](https://images.wondershare.com/filmora/article-images/tired-meme.JPG)
+
+## Conclusion
+
+ If you want to make memes easily, we recommend using Filmora meme maker. It is free to use and fast editing. No sign up! You can use it to make image, GIF and video memes in one place. Click [here](https://tools.techidaily.com/wondershare/filmora/download/) to check it out!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Are you stressed and feeling low? [Memes are the latest trend](https://tools.techidaily.com/wondershare/filmora/download/) that can make you feel better at any point in time. If you are depressed, tired, under the weather, and stressed- out, the cute memes can definitely brighten you up and offer positive and feel good vibes instantly. If you are feeling blue, just check out the 25 cute memes below and make your day worthy.
+
+## 25 Cute Memes
+
+### 1\. I said good morning
+
+ When you are angry with your friend and receive a message with this cute black and white fur dog saying Good Morning with big eyes, it can melt your heart instantly. Try sending it to someone; it can surely bring a smile to your loved one’s faces.
+
+![I said good morning](https://images.wondershare.com/filmora/article-images/said-good-morning-meme.JPG)
+
+### 2\. Cheer-Up
+
+ Are you sad and unhappy? This cute meme is enough to bring a broad smile on your face. It has a cute small kitty standing and looking at you. The kitty requests you to cheer up and not to make him sad. The cute expression of the kitty makes you forget all your sadness.
+
+![Cheer Up](https://images.wondershare.com/filmora/article-images/cheer-up-meme.JPG)
+
+### 3\. Cut Now
+
+ There is some amazing cut now memes that show when something grows out of proportion, cutting it off is the best solution. Here, the meme shows 2 images of the dogs. On the first image, a small bird is sitting and looking cute. But, in the second image, the bird has grown bigger and the dog seems frail. So, from cute now it becomes ‘cut now.’
+
+![Cut Now](https://images.wondershare.com/filmora/article-images/cute-now-meme.JPG)
+
+### 4\. Drop the Camera
+
+ In this cute meme, you can see the head of the panda with the body drowned in the water. The panda asks the photographer to drop the camera suggesting nobody will get hurt.
+
+![Drop the Camera](https://images.wondershare.com/filmora/article-images/drop-camera-meme.JPG)
+
+### 5\. I Just Want You
+
+ Aww!!! Such a cute meme showing a cat hugging the deer and saying, “I just want you…that’s it”. He likes everything whether it’s smile or flaws, sarcasm or jokes. This meme can make your day as there’s so much love in it.
+
+![I Just Want You](https://images.wondershare.com/filmora/article-images/just-want-you-meme.JPG)
+
+### 6\. You Can’t See Me
+
+ This is another cute meme that shows a standing dog amidst thousands and thousands of purple flowers. The caption says, “you cannot see me. I’m a flower” as the dog is lost amongst so many flowers and seems to look one of them.
+
+![You Can’t See Me](https://images.wondershare.com/filmora/article-images/you-can-not-see-me-meme.JPG)
+
+### 7\. It’s Your Birthday
+
+ In this meme, you can see a cat taking its head out through a piece of bread cut into a circle from the middle and the caption says proposing a toast for your Birthday. A wonderful and unique thought indeed.
+
+![It’s Your Birthday](https://images.wondershare.com/filmora/article-images/your-birthday-meme.JPG)
+
+### 8\. I Believe I Can Fly
+
+ This is an encouraging and cute meme showing the flying Penguins.
+
+![I Believe I Can Fly](https://images.wondershare.com/filmora/article-images/i-can-fly-meme.JPG)
+
+### 9\. I Love You
+
+ It shows a dog pointing at you with its paws saying Hey you I Love You. It’s really so cute.
+
+![I Love You](https://images.wondershare.com/filmora/article-images/i-love-you-meme.JPG)
+
+### 10\. They Said I Could Be Anything
+
+ This cute meme shows a panda hanging on the tree and saying as everyone said he can be anything, so he became a panda.
+
+![They Said I Could Be Anything](https://images.wondershare.com/filmora/article-images/could-be-anything-meme.JPG)
+
+### 11\. People Say I Look Cute
+
+ You can see a small cotton ball like doggy, cute like button confidently saying people say he’s cute and he knows it too.
+
+![People Say I Look Cute](https://images.wondershare.com/filmora/article-images/i-look-cute-meme.JPG)
+
+### 12\. You Drink Milk Out Of a Glass?
+
+ This meme is cuteness overloaded with a baby giving a weird look and saying you drink milk out of a glass?
+
+![You Drink Milk Out Of a Glass](https://images.wondershare.com/filmora/article-images/drink-milk-meme.JPG)
+
+### 13\. Excuse me
+
+ This meme can surely make your day. It is so cute. A rabbit knocking you to ask the direction of the carrot patch saying excuse me.
+
+![Excuse me](https://images.wondershare.com/filmora/article-images/excuse-me-meme.JPG)
+
+### 14\. Happy Friday
+
+ This cute meme shows a dog sitting beside the swimming pool and turning back to say Happy Friday.
+
+![Happy Friday](https://images.wondershare.com/filmora/article-images/happy-friday-meme.JPG)
+
+### 15\. Ready for Winter
+
+ A fat squirrel sitting fluffily sitting on the grass and saying he’s ready for winter, why do you have to ask? Isn’t it cute?
+
+![Ready for Winter](https://images.wondershare.com/filmora/article-images/reday-winter-meme.JPG)
+
+### 16\. Throw it More 3000 Times
+
+ This meme shows a dog holding a soft toy in his mouth and playing with it. The master it seems urges the dog to throw it 3000 more times.
+
+![Throw it More 3000 Times](https://images.wondershare.com/filmora/article-images/throw-far-meme.JPG)
+
+### 17\. I Pray to Cheesus
+
+ Here you can see a rat looking at you with a sad face and praying Cheesus. Seems it is truly cheesy and delicious to follow.
+
+![I Pray to Cheesus](https://images.wondershare.com/filmora/article-images/pray-to-cheesus.JPG)
+
+### 18\. I have no idea
+
+ The dog seems to enjoy a bath in the sea with waves rolling around him. Is it so? The dog has no idea what it’s up to.
+
+![I have no idea](https://images.wondershare.com/filmora/article-images/no-idea-meme.JPG)
+
+### 19\. I will devour your soul
+
+ It is a cactus meme wishing to consume your soul. Yet, too cute to miss out.
+
+![I will devour your soul](https://images.wondershare.com/filmora/article-images/devour-soul-meme.JPG)
+
+### 20\. I am otterly in love with you
+
+ These cute otters loving meme can definitely make your day. You can 2 otters in this cute meme, one kissing the other and expressing love.
+
+![I am otterly in love with you](https://images.wondershare.com/filmora/article-images/otterly-love-meme.JPG)
+
+### 21\. I request your assistance
+
+ This cute meme shows a cat wearing a hanger around its neck and asking for assistance from humans.
+
+![I request your assistance](https://images.wondershare.com/filmora/article-images/assistance-meme.JPG)
+
+### 22\. You make me blush
+
+ This yellow parrot with red cheeks is really cute to ignore. And when the parrot asks you to stop making it blush, it gets even cuter.
+
+![You make me blush](https://images.wondershare.com/filmora/article-images/make-me-blush-meme.JPG)
+
+### 23\. You will never wash off my cuteness
+
+ This little rabbit is seen being washed in the water and the sad rabbit retorts the water cannot wash away his cuteness however you try. This cute meme cannot be overlooked.
+
+![You will never wash off my cuteness](https://images.wondershare.com/filmora/article-images/wash-off-cuteness.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-### 17\. I Pray to Cheesus
-
- Here you can see a rat looking at you with a sad face and praying Cheesus. Seems it is truly cheesy and delicious to follow.
-
-![I Pray to Cheesus](https://images.wondershare.com/filmora/article-images/pray-to-cheesus.JPG)
-
-### 18\. I have no idea
-
- The dog seems to enjoy a bath in the sea with waves rolling around him. Is it so? The dog has no idea what it’s up to.
-
-![I have no idea](https://images.wondershare.com/filmora/article-images/no-idea-meme.JPG)
-
-### 19\. I will devour your soul
-
- It is a cactus meme wishing to consume your soul. Yet, too cute to miss out.
-
-![I will devour your soul](https://images.wondershare.com/filmora/article-images/devour-soul-meme.JPG)
-
-### 20\. I am otterly in love with you
-
- These cute otters loving meme can definitely make your day. You can 2 otters in this cute meme, one kissing the other and expressing love.
-
-![I am otterly in love with you](https://images.wondershare.com/filmora/article-images/otterly-love-meme.JPG)
-
-### 21\. I request your assistance
-
- This cute meme shows a cat wearing a hanger around its neck and asking for assistance from humans.
-
-![I request your assistance](https://images.wondershare.com/filmora/article-images/assistance-meme.JPG)
-
-### 22\. You make me blush
-
- This yellow parrot with red cheeks is really cute to ignore. And when the parrot asks you to stop making it blush, it gets even cuter.
-
-![You make me blush](https://images.wondershare.com/filmora/article-images/make-me-blush-meme.JPG)
-
-### 23\. You will never wash off my cuteness
-
- This little rabbit is seen being washed in the water and the sad rabbit retorts the water cannot wash away his cuteness however you try. This cute meme cannot be overlooked.
-
-![You will never wash off my cuteness](https://images.wondershare.com/filmora/article-images/wash-off-cuteness.JPG)
-
-### 24\. Chemistry joke
-
- Anyone can look at the cat in this cute meme and fall in love with it. This cat is seen wearing specs and bow sitting on a chair and teaching Chemistry. But, unfortunately, didn’t find any reaction when he narrated a chemistry joke.
-
-![Chemistry joke](https://images.wondershare.com/filmora/article-images/reaction-meme.JPG)
-
-### 25\. Tired, just tired
-
- This cute meme shows a dog sleeping on a deck. It seems to be very tired.
-
-![Tired](https://images.wondershare.com/filmora/article-images/tired-meme.JPG)
-
-## Conclusion
-
- If you want to make memes easily, we recommend using Filmora meme maker. It is free to use and fast editing. No sign up! You can use it to make image, GIF and video memes in one place. Click [here](https://tools.techidaily.com/wondershare/filmora/download/) to check it out!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Are you stressed and feeling low? [Memes are the latest trend](https://tools.techidaily.com/wondershare/filmora/download/) that can make you feel better at any point in time. If you are depressed, tired, under the weather, and stressed- out, the cute memes can definitely brighten you up and offer positive and feel good vibes instantly. If you are feeling blue, just check out the 25 cute memes below and make your day worthy.
-
-## 25 Cute Memes
-
-### 1\. I said good morning
-
- When you are angry with your friend and receive a message with this cute black and white fur dog saying Good Morning with big eyes, it can melt your heart instantly. Try sending it to someone; it can surely bring a smile to your loved one’s faces.
-
-![I said good morning](https://images.wondershare.com/filmora/article-images/said-good-morning-meme.JPG)
-
-### 2\. Cheer-Up
-
- Are you sad and unhappy? This cute meme is enough to bring a broad smile on your face. It has a cute small kitty standing and looking at you. The kitty requests you to cheer up and not to make him sad. The cute expression of the kitty makes you forget all your sadness.
-
-![Cheer Up](https://images.wondershare.com/filmora/article-images/cheer-up-meme.JPG)
-
-### 3\. Cut Now
-
- There is some amazing cut now memes that show when something grows out of proportion, cutting it off is the best solution. Here, the meme shows 2 images of the dogs. On the first image, a small bird is sitting and looking cute. But, in the second image, the bird has grown bigger and the dog seems frail. So, from cute now it becomes ‘cut now.’
-
-![Cut Now](https://images.wondershare.com/filmora/article-images/cute-now-meme.JPG)
-
-### 4\. Drop the Camera
-
- In this cute meme, you can see the head of the panda with the body drowned in the water. The panda asks the photographer to drop the camera suggesting nobody will get hurt.
-
-![Drop the Camera](https://images.wondershare.com/filmora/article-images/drop-camera-meme.JPG)
-
-### 5\. I Just Want You
-
- Aww!!! Such a cute meme showing a cat hugging the deer and saying, “I just want you…that’s it”. He likes everything whether it’s smile or flaws, sarcasm or jokes. This meme can make your day as there’s so much love in it.
-
-![I Just Want You](https://images.wondershare.com/filmora/article-images/just-want-you-meme.JPG)
-
-### 6\. You Can’t See Me
-
- This is another cute meme that shows a standing dog amidst thousands and thousands of purple flowers. The caption says, “you cannot see me. I’m a flower” as the dog is lost amongst so many flowers and seems to look one of them.
-
-![You Can’t See Me](https://images.wondershare.com/filmora/article-images/you-can-not-see-me-meme.JPG)
-
-### 7\. It’s Your Birthday
-
- In this meme, you can see a cat taking its head out through a piece of bread cut into a circle from the middle and the caption says proposing a toast for your Birthday. A wonderful and unique thought indeed.
-
-![It’s Your Birthday](https://images.wondershare.com/filmora/article-images/your-birthday-meme.JPG)
-
-### 8\. I Believe I Can Fly
-
- This is an encouraging and cute meme showing the flying Penguins.
-
-![I Believe I Can Fly](https://images.wondershare.com/filmora/article-images/i-can-fly-meme.JPG)
-
-### 9\. I Love You
-
- It shows a dog pointing at you with its paws saying Hey you I Love You. It’s really so cute.
-
-![I Love You](https://images.wondershare.com/filmora/article-images/i-love-you-meme.JPG)
-
-### 10\. They Said I Could Be Anything
-
- This cute meme shows a panda hanging on the tree and saying as everyone said he can be anything, so he became a panda.
-
-![They Said I Could Be Anything](https://images.wondershare.com/filmora/article-images/could-be-anything-meme.JPG)
-
-### 11\. People Say I Look Cute
-
- You can see a small cotton ball like doggy, cute like button confidently saying people say he’s cute and he knows it too.
-
-![People Say I Look Cute](https://images.wondershare.com/filmora/article-images/i-look-cute-meme.JPG)
-
-### 12\. You Drink Milk Out Of a Glass?
-
- This meme is cuteness overloaded with a baby giving a weird look and saying you drink milk out of a glass?
-
-![You Drink Milk Out Of a Glass](https://images.wondershare.com/filmora/article-images/drink-milk-meme.JPG)
-
-### 13\. Excuse me
-
- This meme can surely make your day. It is so cute. A rabbit knocking you to ask the direction of the carrot patch saying excuse me.
-
-![Excuse me](https://images.wondershare.com/filmora/article-images/excuse-me-meme.JPG)
-
-### 14\. Happy Friday
-
- This cute meme shows a dog sitting beside the swimming pool and turning back to say Happy Friday.
-
-![Happy Friday](https://images.wondershare.com/filmora/article-images/happy-friday-meme.JPG)
-
-### 15\. Ready for Winter
-
- A fat squirrel sitting fluffily sitting on the grass and saying he’s ready for winter, why do you have to ask? Isn’t it cute?
-
-![Ready for Winter](https://images.wondershare.com/filmora/article-images/reday-winter-meme.JPG)
-
-### 16\. Throw it More 3000 Times
-
- This meme shows a dog holding a soft toy in his mouth and playing with it. The master it seems urges the dog to throw it 3000 more times.
-
-![Throw it More 3000 Times](https://images.wondershare.com/filmora/article-images/throw-far-meme.JPG)
-
-### 17\. I Pray to Cheesus
-
- Here you can see a rat looking at you with a sad face and praying Cheesus. Seems it is truly cheesy and delicious to follow.
-
-![I Pray to Cheesus](https://images.wondershare.com/filmora/article-images/pray-to-cheesus.JPG)
-
-### 18\. I have no idea
-
- The dog seems to enjoy a bath in the sea with waves rolling around him. Is it so? The dog has no idea what it’s up to.
-
-![I have no idea](https://images.wondershare.com/filmora/article-images/no-idea-meme.JPG)
-
-### 19\. I will devour your soul
-
- It is a cactus meme wishing to consume your soul. Yet, too cute to miss out.
-
-![I will devour your soul](https://images.wondershare.com/filmora/article-images/devour-soul-meme.JPG)
-
-### 20\. I am otterly in love with you
-
- These cute otters loving meme can definitely make your day. You can 2 otters in this cute meme, one kissing the other and expressing love.
-
-![I am otterly in love with you](https://images.wondershare.com/filmora/article-images/otterly-love-meme.JPG)
-
-### 21\. I request your assistance
-
- This cute meme shows a cat wearing a hanger around its neck and asking for assistance from humans.
-
-![I request your assistance](https://images.wondershare.com/filmora/article-images/assistance-meme.JPG)
-
-### 22\. You make me blush
-
- This yellow parrot with red cheeks is really cute to ignore. And when the parrot asks you to stop making it blush, it gets even cuter.
-
-![You make me blush](https://images.wondershare.com/filmora/article-images/make-me-blush-meme.JPG)
-
-### 23\. You will never wash off my cuteness
-
- This little rabbit is seen being washed in the water and the sad rabbit retorts the water cannot wash away his cuteness however you try. This cute meme cannot be overlooked.
-
-![You will never wash off my cuteness](https://images.wondershare.com/filmora/article-images/wash-off-cuteness.JPG)
-
-### 24\. Chemistry joke
-
- Anyone can look at the cat in this cute meme and fall in love with it. This cat is seen wearing specs and bow sitting on a chair and teaching Chemistry. But, unfortunately, didn’t find any reaction when he narrated a chemistry joke.
-
-![Chemistry joke](https://images.wondershare.com/filmora/article-images/reaction-meme.JPG)
-
-### 25\. Tired, just tired
-
- This cute meme shows a dog sleeping on a deck. It seems to be very tired.
-
-![Tired](https://images.wondershare.com/filmora/article-images/tired-meme.JPG)
-
-## Conclusion
-
- If you want to make memes easily, we recommend using Filmora meme maker. It is free to use and fast editing. No sign up! You can use it to make image, GIF and video memes in one place. Click [here](https://tools.techidaily.com/wondershare/filmora/download/) to check it out!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Are you stressed and feeling low? [Memes are the latest trend](https://tools.techidaily.com/wondershare/filmora/download/) that can make you feel better at any point in time. If you are depressed, tired, under the weather, and stressed- out, the cute memes can definitely brighten you up and offer positive and feel good vibes instantly. If you are feeling blue, just check out the 25 cute memes below and make your day worthy.
-
-## 25 Cute Memes
-
-### 1\. I said good morning
-
- When you are angry with your friend and receive a message with this cute black and white fur dog saying Good Morning with big eyes, it can melt your heart instantly. Try sending it to someone; it can surely bring a smile to your loved one’s faces.
-
-![I said good morning](https://images.wondershare.com/filmora/article-images/said-good-morning-meme.JPG)
-
-### 2\. Cheer-Up
-
- Are you sad and unhappy? This cute meme is enough to bring a broad smile on your face. It has a cute small kitty standing and looking at you. The kitty requests you to cheer up and not to make him sad. The cute expression of the kitty makes you forget all your sadness.
-
-![Cheer Up](https://images.wondershare.com/filmora/article-images/cheer-up-meme.JPG)
-
-### 3\. Cut Now
-
- There is some amazing cut now memes that show when something grows out of proportion, cutting it off is the best solution. Here, the meme shows 2 images of the dogs. On the first image, a small bird is sitting and looking cute. But, in the second image, the bird has grown bigger and the dog seems frail. So, from cute now it becomes ‘cut now.’
-
-![Cut Now](https://images.wondershare.com/filmora/article-images/cute-now-meme.JPG)
-
-### 4\. Drop the Camera
-
- In this cute meme, you can see the head of the panda with the body drowned in the water. The panda asks the photographer to drop the camera suggesting nobody will get hurt.
-
-![Drop the Camera](https://images.wondershare.com/filmora/article-images/drop-camera-meme.JPG)
-
-### 5\. I Just Want You
-
- Aww!!! Such a cute meme showing a cat hugging the deer and saying, “I just want you…that’s it”. He likes everything whether it’s smile or flaws, sarcasm or jokes. This meme can make your day as there’s so much love in it.
-
-![I Just Want You](https://images.wondershare.com/filmora/article-images/just-want-you-meme.JPG)
-
-### 6\. You Can’t See Me
-
- This is another cute meme that shows a standing dog amidst thousands and thousands of purple flowers. The caption says, “you cannot see me. I’m a flower” as the dog is lost amongst so many flowers and seems to look one of them.
-
-![You Can’t See Me](https://images.wondershare.com/filmora/article-images/you-can-not-see-me-meme.JPG)
-
-### 7\. It’s Your Birthday
-
- In this meme, you can see a cat taking its head out through a piece of bread cut into a circle from the middle and the caption says proposing a toast for your Birthday. A wonderful and unique thought indeed.
-
-![It’s Your Birthday](https://images.wondershare.com/filmora/article-images/your-birthday-meme.JPG)
-
-### 8\. I Believe I Can Fly
-
- This is an encouraging and cute meme showing the flying Penguins.
-
-![I Believe I Can Fly](https://images.wondershare.com/filmora/article-images/i-can-fly-meme.JPG)
-
-### 9\. I Love You
-
- It shows a dog pointing at you with its paws saying Hey you I Love You. It’s really so cute.
-
-![I Love You](https://images.wondershare.com/filmora/article-images/i-love-you-meme.JPG)
-
-### 10\. They Said I Could Be Anything
-
- This cute meme shows a panda hanging on the tree and saying as everyone said he can be anything, so he became a panda.
-
-![They Said I Could Be Anything](https://images.wondershare.com/filmora/article-images/could-be-anything-meme.JPG)
-
-### 11\. People Say I Look Cute
-
- You can see a small cotton ball like doggy, cute like button confidently saying people say he’s cute and he knows it too.
-
-![People Say I Look Cute](https://images.wondershare.com/filmora/article-images/i-look-cute-meme.JPG)
-
-### 12\. You Drink Milk Out Of a Glass?
-
- This meme is cuteness overloaded with a baby giving a weird look and saying you drink milk out of a glass?
-
-![You Drink Milk Out Of a Glass](https://images.wondershare.com/filmora/article-images/drink-milk-meme.JPG)
-
-### 13\. Excuse me
-
- This meme can surely make your day. It is so cute. A rabbit knocking you to ask the direction of the carrot patch saying excuse me.
-
-![Excuse me](https://images.wondershare.com/filmora/article-images/excuse-me-meme.JPG)
-
-### 14\. Happy Friday
-
- This cute meme shows a dog sitting beside the swimming pool and turning back to say Happy Friday.
-
-![Happy Friday](https://images.wondershare.com/filmora/article-images/happy-friday-meme.JPG)
-
-### 15\. Ready for Winter
-
- A fat squirrel sitting fluffily sitting on the grass and saying he’s ready for winter, why do you have to ask? Isn’t it cute?
-
-![Ready for Winter](https://images.wondershare.com/filmora/article-images/reday-winter-meme.JPG)
-
-### 16\. Throw it More 3000 Times
-
- This meme shows a dog holding a soft toy in his mouth and playing with it. The master it seems urges the dog to throw it 3000 more times.
-
-![Throw it More 3000 Times](https://images.wondershare.com/filmora/article-images/throw-far-meme.JPG)
-
-### 17\. I Pray to Cheesus
-
- Here you can see a rat looking at you with a sad face and praying Cheesus. Seems it is truly cheesy and delicious to follow.
-
-![I Pray to Cheesus](https://images.wondershare.com/filmora/article-images/pray-to-cheesus.JPG)
-
-### 18\. I have no idea
-
- The dog seems to enjoy a bath in the sea with waves rolling around him. Is it so? The dog has no idea what it’s up to.
-
-![I have no idea](https://images.wondershare.com/filmora/article-images/no-idea-meme.JPG)
-
-### 19\. I will devour your soul
-
- It is a cactus meme wishing to consume your soul. Yet, too cute to miss out.
-
-![I will devour your soul](https://images.wondershare.com/filmora/article-images/devour-soul-meme.JPG)
-
-### 20\. I am otterly in love with you
-
- These cute otters loving meme can definitely make your day. You can 2 otters in this cute meme, one kissing the other and expressing love.
-
-![I am otterly in love with you](https://images.wondershare.com/filmora/article-images/otterly-love-meme.JPG)
-
-### 21\. I request your assistance
-
- This cute meme shows a cat wearing a hanger around its neck and asking for assistance from humans.
-
-![I request your assistance](https://images.wondershare.com/filmora/article-images/assistance-meme.JPG)
-
-### 22\. You make me blush
-
- This yellow parrot with red cheeks is really cute to ignore. And when the parrot asks you to stop making it blush, it gets even cuter.
-
-![You make me blush](https://images.wondershare.com/filmora/article-images/make-me-blush-meme.JPG)
-
-### 23\. You will never wash off my cuteness
-
- This little rabbit is seen being washed in the water and the sad rabbit retorts the water cannot wash away his cuteness however you try. This cute meme cannot be overlooked.
-
-![You will never wash off my cuteness](https://images.wondershare.com/filmora/article-images/wash-off-cuteness.JPG)
 
 ### 24\. Chemistry joke
 
@@ -1706,6 +1679,13 @@ Features:
 
 ![Imgur](https://images.wondershare.com/filmora/article-images/Imgur.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7. Make a Meme
 
 When you go on Make a Meme, you will immediately see images of all the most famous memes from around the world. You can click on those images, where you get an interface asking for the top text, bottom text, and your custom title. Then you click on “make a meme” and your image is ready.
@@ -1766,13 +1746,6 @@ Features:
 
 ![iLoveIMG](https://images.wondershare.com/filmora/article-images/iLoveIMG.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 11. Meme Creator
 
 With Meme Creator, you can recreate existing memes with the text of your choice, or upload images to make custom memes.
@@ -1800,6 +1773,13 @@ Features:
 * Ability to adjust font size and color.
 
 ![DIYLOL](https://images.wondershare.com/filmora/article-images/DIYLOL.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -2025,13 +2005,6 @@ Features:
 
 ![Wondershare PixStudio](https://images.wondershare.com/filmora/article-images/create-memes-with-pixstudio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4. Quickmeme
 
 Quickmeme is the best meme maker option for anyone who wants a simple experience, without too many frills. You can check out featured memes, which show you the most popular ones right now.
@@ -2084,6 +2057,13 @@ Features:
 * Preview memes before making them.
 
 ![Make a Meme](https://images.wondershare.com/filmora/article-images/Make-Meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8. Livememe
 
@@ -2194,6 +2174,13 @@ Filmora meme maker is a totally free meme generator without a watermark. Also, y
 ### [
 ![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. Wondershare PixStudio
 
 Wondershare PixStudio owns massive templates that can help you create your memes easily. You can feel free to upload your image and start to design it with text, colors and filters to the images.
@@ -2206,6 +2193,13 @@ Features:
 * Option to change font and text color.
 
 ![Wondershare PixStudio](https://images.wondershare.com/filmora/article-images/create-memes-with-pixstudio.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Quickmeme
 
@@ -2389,349 +2383,355 @@ The memes of this comic show a startling presentation with a 3rd page, where the
 
 ![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
 
+### 3\. American Chopper Argument
+
+In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
+
+In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
+
+![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
+
+### 4\. Who Killed Hannibal?
+
+It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
+
+It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
+
+![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
+
+### 5\. Walmart Yodel Boy
+
+The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
+
+![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
+
+### 6\. Is this a pigeon?
+
+A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
+
+![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
+
+### 7\. LeBron James's NBA Finals Reaction
+
+This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
+
+The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
+
+![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
+
+### 8\. Tired Spongebob
+
+Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
+
+![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
+
+### 9\. Tide Pods
+
+Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
+
+Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
+
+![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
+
+### 10\. Green M&M Bambi Copypasta
+
+While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
+
+The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
+
+![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
+
+Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: Recommended Tool to Make Memes
+
+The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
+
+From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
+
+When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
+
+* [**Part1: 10 Best Memes In 2024**](#part1)
+* [**Part2: Recommended Tool to Make Memes**](#part2)
+
+## Part 1: 10 Best Memes In 2024
+
+### 1\. Steven Crowder's "Change My Mind" Campus Sign
+
+The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
+
+The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
+
+![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
+
+### 2\. Gru's Plan
+
+When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
+
+The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
+
+![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
+
+### 3\. American Chopper Argument
+
+In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
+
+In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
+
+![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
+
+### 4\. Who Killed Hannibal?
+
+It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
+
+It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
+
+![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
+
+### 5\. Walmart Yodel Boy
+
+The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
+
+![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
+
+### 6\. Is this a pigeon?
+
+A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
+
+![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
+
+### 7\. LeBron James's NBA Finals Reaction
+
+This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
+
+The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
+
+![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
+
+### 8\. Tired Spongebob
+
+Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
+
+![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
+
+### 9\. Tide Pods
+
+Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
+
+Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
+
+![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
+
+### 10\. Green M&M Bambi Copypasta
+
+While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
+
+The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
+
+![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
+
+Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: Recommended Tool to Make Memes
+
+The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
+
+From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
+
+When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
+
+* [**Part1: 10 Best Memes In 2024**](#part1)
+* [**Part2: Recommended Tool to Make Memes**](#part2)
+
+## Part 1: 10 Best Memes In 2024
+
+### 1\. Steven Crowder's "Change My Mind" Campus Sign
+
+The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
+
+The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
+
+![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
+
+### 2\. Gru's Plan
+
+When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
+
+The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
+
+![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
+
+### 3\. American Chopper Argument
+
+In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
+
+In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
+
+![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
+
+### 4\. Who Killed Hannibal?
+
+It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
+
+It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
+
+![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
+
+### 5\. Walmart Yodel Boy
+
+The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
+
+![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
+
+### 6\. Is this a pigeon?
+
+A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
+
+![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
+
+### 7\. LeBron James's NBA Finals Reaction
+
+This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
+
+The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
+
+![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
+
+### 8\. Tired Spongebob
+
+Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
+
+![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
+
+### 9\. Tide Pods
+
+Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
+
+Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
+
+![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
+
+### 10\. Green M&M Bambi Copypasta
+
+While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
+
+The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
+
+![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
+
+Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: Recommended Tool to Make Memes
+
+The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
+
+From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
+
+When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
+
+* [**Part1: 10 Best Memes In 2024**](#part1)
+* [**Part2: Recommended Tool to Make Memes**](#part2)
+
+## Part 1: 10 Best Memes In 2024
+
+### 1\. Steven Crowder's "Change My Mind" Campus Sign
+
+The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
+
+The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
+
+![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
+
+### 2\. Gru's Plan
+
+When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
+
+The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
+
+![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
+
+### 3\. American Chopper Argument
+
+In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
+
+In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
+
+![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
+
+### 4\. Who Killed Hannibal?
+
+It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
+
+It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
+
+![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
+
+### 5\. Walmart Yodel Boy
+
+The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
+
+![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
+
+### 6\. Is this a pigeon?
+
+A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
+
+![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-### 3\. American Chopper Argument
-
-In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
-
-In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
-
-![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
-
-### 4\. Who Killed Hannibal?
-
-It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
-
-It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
-
-![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
-
-### 5\. Walmart Yodel Boy
-
-The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
-
-![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
-
-### 6\. Is this a pigeon?
-
-A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
-
-![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
-
-### 7\. LeBron James's NBA Finals Reaction
-
-This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
-
-The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
-
-![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
-
-### 8\. Tired Spongebob
-
-Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
-
-![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
-
-### 9\. Tide Pods
-
-Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
-
-Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
-
-![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
-
-### 10\. Green M&M Bambi Copypasta
-
-While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
-
-The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
-
-![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
-
-Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 2: Recommended Tool to Make Memes
-
-The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
-
-From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
-
-When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
-
-* [**Part1: 10 Best Memes In 2024**](#part1)
-* [**Part2: Recommended Tool to Make Memes**](#part2)
-
-## Part 1: 10 Best Memes In 2024
-
-### 1\. Steven Crowder's "Change My Mind" Campus Sign
-
-The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
-
-The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
-
-![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
-
-### 2\. Gru's Plan
-
-When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
-
-The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
-
-![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
-
-### 3\. American Chopper Argument
-
-In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
-
-In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
-
-![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
-
-### 4\. Who Killed Hannibal?
-
-It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
-
-It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
-
-![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
-
-### 5\. Walmart Yodel Boy
-
-The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
-
-![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
-
-### 6\. Is this a pigeon?
-
-A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
-
-![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
-
-### 7\. LeBron James's NBA Finals Reaction
-
-This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
-
-The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
-
-![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
-
-### 8\. Tired Spongebob
-
-Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
-
-![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
-
-### 9\. Tide Pods
-
-Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
-
-Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
-
-![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
-
-### 10\. Green M&M Bambi Copypasta
-
-While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
-
-The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
-
-![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
-
-Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 2: Recommended Tool to Make Memes
-
-The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
-
-From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
-
-When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
-
-* [**Part1: 10 Best Memes In 2024**](#part1)
-* [**Part2: Recommended Tool to Make Memes**](#part2)
-
-## Part 1: 10 Best Memes In 2024
-
-### 1\. Steven Crowder's "Change My Mind" Campus Sign
-
-The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
-
-The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
-
-![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
-
-### 2\. Gru's Plan
-
-When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
-
-The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
-
-![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
-
-### 3\. American Chopper Argument
-
-In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
-
-In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
-
-![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
-
-### 4\. Who Killed Hannibal?
-
-It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
-
-It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
-
-![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
-
-### 5\. Walmart Yodel Boy
-
-The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
-
-![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
-
-### 6\. Is this a pigeon?
-
-A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
-
-![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
-
-### 7\. LeBron James's NBA Finals Reaction
-
-This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
-
-The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
-
-![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
-
-### 8\. Tired Spongebob
-
-Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
-
-![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
-
-### 9\. Tide Pods
-
-Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
-
-Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
-
-![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
-
-### 10\. Green M&M Bambi Copypasta
-
-While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
-
-The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
-
-![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
-
-Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 2: Recommended Tool to Make Memes
-
-The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
-
-From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
-
-When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
-
-* [**Part1: 10 Best Memes In 2024**](#part1)
-* [**Part2: Recommended Tool to Make Memes**](#part2)
-
-## Part 1: 10 Best Memes In 2024
-
-### 1\. Steven Crowder's "Change My Mind" Campus Sign
-
-The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
-
-The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
-
-![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
-
-### 2\. Gru's Plan
-
-When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
-
-The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
-
-![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
-
-### 3\. American Chopper Argument
-
-In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
-
-In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
-
-![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
-
-### 4\. Who Killed Hannibal?
-
-It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
-
-It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
-
-![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
-
-### 5\. Walmart Yodel Boy
-
-The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
-
-![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
-
-### 6\. Is this a pigeon?
-
-A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
-
-![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
 
 ### 7\. LeBron James's NBA Finals Reaction
 
@@ -3331,19 +3331,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-art-of-warmth-in-winter-top-5-video-backdrop-choices/"><u>[Updated] 2024 Approved The Art of Warmth in Winter Top 5 Video Backdrop Choices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-pixel-perfect-converter-max-resolution-for-2024/"><u>[Updated] Pixel Perfect Converter Max Resolution for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-frostbite-finishes-olympic-ice-classics/"><u>2024 Approved Frostbite Finishes Olympic Ice Classics</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-top-audio-interfaces-unveiled-the-podcasters-must-have-list/"><u>2024 Approved Top Audio Interfaces Unveiled The Podcaster's Must-Have List</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-negative-effects-of-social-media-on-people-and-users/"><u>7 Negative Effects of Social Media on People and Users</u></a></li>
-<li><a href="https://windows11.techidaily.com/breaking-free-from-the-frozen-windows-terminal/"><u>Breaking Free From the Frozen Windows Terminal</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/generating-the-roll-safe-think-about-it-meme-for-2024/"><u>Generating the Roll Safe-Think About It Meme for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-funny-meme-on-macbook-for-2024/"><u>How to Make a Funny Meme on MacBook for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-nubia-red-magic-8s-pro-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Nubia Red Magic 8S Pro to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-funniest-faces-learning-kinemaster/"><u>In 2024, Funniest Faces Learning KineMaster</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself-for-2024/"><u>New How to Make an Emoji of Yourself on Mobile ? Emoji Yourself for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-combine-multiple-avi-files-into-one-top-10-free-avi-merger-tools/"><u>New In 2024, Combine Multiple AVI Files Into One Top 10 Free AVI Merger Tools</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-what-is-emoji/"><u>New What Is Emoji?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-video-for-your-babys-first-year-for-2024/"><u>Updated How to Make a Video for Your Babys First Year for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-voice-logger-essentials-the-best-speech-apps-for-mac-devices/"><u>[New] In 2024, Voice Logger Essentials The Best Speech Apps for Mac Devices</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-twitter-memes-downloaded-easily-for-windows-users/"><u>[Updated] 2024 Approved Twitter Memes Downloaded Easily for Windows Users</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-generating-the-roll-safe-think-about-it-meme/"><u>2024 Approved Generating the Roll Safe-Think About It Meme</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/best-10-emoji-makers-to-create-your-own-emojis-pconlineandroidiphone-for-2024/"><u>Best 10 Emoji Makers to Create Your Own Emojis PC/Online/Android/iPhone for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/exquisite-makeup-moments-captured-for-2024/"><u>Exquisite Makeup Moments Captured for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-add-emojis-to-discord-for-2024/"><u>How to Add Emojis To Discord for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-magic-6-pro-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Magic 6 Pro</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-realme-11-5g-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-10-best-memes-right-now-include-image-gifvideo/"><u>New 10 Best Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-best-websites-to-add-emojis-to-photos-online/"><u>New 2024 Approved Best Websites to Add Emojis to Photos Online</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/rohin-pengenalan-otomatis-tantangan-mengembalikan-file-terhapus-hanya-gratis/"><u>Rohin - Pengenalan Otomatis Tantangan Mengembalikan File Terhapus, Hanya Gratis!</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/the-beat-engineers-companion-selecting-from-among-the-top-8-daw-tools-for-todays-urban-music-masters/"><u>The Beat Engineers Companion Selecting From Among the Top 8 DAW Tools for Todays Urban Music Masters</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-mocking-sponge-bob-meme-generator/"><u>Updated 2024 Approved Mocking Sponge Bob Meme Generator</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-top-10-best-free-manga-sites-to-read-online/"><u>Updated Top 10 Best Free Manga Sites to Read Online</u></a></li>
 </ul></div>
 
