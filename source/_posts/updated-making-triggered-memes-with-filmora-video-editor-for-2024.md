@@ -1,7 +1,7 @@
 ---
 title: Updated Making Triggered Memes with Filmora Video Editor for 2024
-date: 2024-10-20T16:57:03.083Z
-updated: 2024-10-23T17:40:43.773Z
+date: 2024-10-25T18:46:58.921Z
+updated: 2024-10-28T20:04:11.673Z
 tags: 
   - ai
   - animation videos
@@ -133,13 +133,6 @@ Follow @Ollie Mattison
 
  This ingredient of a good meme is easy to forget, but music or any other type of sound can make your meme funnier. In most cases, you’ll want to keep at least a portion of the original audio, but adding sound effects at different points of the meme can have a comical effect. The Filmora’s Music Library can serve as your endless source of [royalty free music and sounds](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Making a Triggered Meme Template in Microsoft Paint
 
  Creating a meme template is an easy task that can be handled from the Microsoft Paint in a couple of minutes. When you launch the software, click on the Fill with color icon located in the Tools section of the Paint’s ribbon. Activating this option enables you to change the color of the background with a single click. Proceed to select the color of the background from the color palette located on the far right side of the ribbon. We recommend choosing shades of green because the background is going to be used for the Chroma Key effect. You can click on the Edit Colors icon if you want to find a perfect color tone for the background. Right-click anywhere on the canvas to change its color.
@@ -205,13 +198,6 @@ Follow @Ollie Mattison
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Things You Need to Make a Triggered Meme
 
@@ -294,6 +280,13 @@ Follow @Ollie Mattison
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Things You Need to Make a Triggered Meme
 
@@ -702,13 +695,6 @@ If you haven’t iMovie installed on your Mac yet, just go to iTunes and downloa
 
 If you are an iOS user, check our picks of [best photo slideshow apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhone or iPad.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Ways for iMovie Photo Slideshow with Music Making
 
 To make a photo slideshow with music in iMovie, you can follow these steps.
@@ -856,13 +842,6 @@ Add all the travel photos into the applications. You can add in multiple folders
 
 ![How to make video slideshow with travel photos - import](https://images.wondershare.com/filmora/article-images/import-travel-photos-video-to-filmora.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Next, set up the photo duration to the desired length, so that you don't need to adjust the photo duration one by one.
 
 ![Set up travel photo duration](https://images.wondershare.com/filmora/article-images/preference-settings.jpg)
@@ -916,13 +895,6 @@ Before you create the travel slideshow you have to keep in mind a few things. If
 You need to try and consider your audience because based on that the slideshow will have a specific format. You also need to think about telling a story as that will make it a lot more interesting other than just having a bunch of images aligned together in a non-meaningful manner.
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  **Wondershare Filmora – The best tool to create a video slideshow with your travel photos**
 
@@ -1180,172 +1152,172 @@ _**Attention**: This post only provides the solutions to make memes for personal
 
 ![](https://images.wondershare.com/filmora/article-images/mocking-sponge-bob.png)
 
+Copy the image
+
+ Then, go to <https://filmora.wondershare.com/meme-maker/> insert the image link you just copied by press Ctrl+V, click on the Upload button to start the upload process and wait until the template is uploaded.
+
+![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+ The Edit Your Image window will pop up on the screen if you decide to upload the template from a compute, so you can just drag one of the handles to crop it. If you want, you can rotate or flip the picture, before you hit the OK button.
+
+![](https://images.wondershare.com/filmora/article-images/crop-sponge-bob-meme.jpg)
+
+#### Step 2 – Adding Text to the Meme
+
+ The Editing panel will appear on the screen, with the SpongeBob picture displayed in the middle of the screen. On the left side of the webpage, you'll be able to see the Text Inside and Text Outside tools that let you choose the position of the text in the picture. Select the **Outside Text** option because a great majority of Mocking SpongeBob memes doesn't feature text within the image. Below these tools you can find Top and Bottom text boxes, so you can just choose the position of the text and then insert it into appropriate boxes.
+
+![](https://images.wondershare.com/filmora/article-images/add-text-to-sponge-bob-meme.jpg)
+
+ There is a lot of fonts to choose from, and you can easily select the text size, change the color of the text or align the text. After customizing the texts you can choose the file type since the Filmora Online Meme Maker lets you generate GIFs, videos and images.
+
+#### Step 3 – Export and Download the Mocking SpongeBob Meme
+
+ Click on the Create button once you're happy with the results, then click on the Download button to save it to your computer and upload it to your social media account. If you're using a Smartphone you can tap on the Share button and select a social media platform on which you want to post your mocking SpongeBob meme.
+
+![](https://images.wondershare.com/filmora/article-images/export-sponge-bob-meme.jpg)
+
+**Conclusion**
+
+ Combining text and images is easy with the Filmora Online Maker since you just have to choose the position and the style of the text and download the meme. However, coming up with great jokes that will make the meme viral is up to you. What is your favorite mocking SpongeBob meme? Leave a comment below and let us know.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ The still frame taken from the episode titled 'Little Yellow Book' of the animated series SpongeBob SquarePants has gone viral a few years ago, and since then it has become one of the funniest memes used to mock all sorts of private and public issues. If you'd like to learn how to make the Mocking SpongeBob meme, you've come to the right place, because in this article we're going to show you how you can accomplish this using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Making The Mocking SpongeBob Meme
+
+_**Attention**: This post only provides the solutions to make memes for personal and non-commercial purpose. Since any redistribution without the approval of the copyright owners may violate the copyright laws, you'd better refer to the copyright laws in your country before doing so._
+
+ There are hundreds of online meme generators you can use to quickly make a great joke or depict a situation you frequently find yourself in, but a large portion of these platforms watermark your memes, which can be frustrating at times. That's why we recommend using Filmora Online Meme Maker that lets you generate the mocking SpongeBob meme and all other types of memes for free. Here's how to make a mocking SpongeBob meme is just a few simple steps without having to register or create an account.
+
+#### Step 1 – Uploading the SpongeBob Meme Template
+
+ Filmora Meme Maker offers you 2 ways to upload images, videos, and gifs.
+
+* Drop a file or click the + icon to upload your upload
+* Enter the URL of your media file to upload
+
+ You can find the sponge bobbmeme templates on a number of platforms, such as [Imgur](https://imgur.com/gallery/fJB0a) and [Know Your Meme](https://knowyourmeme.com/memes/mocking-spongebob). Or you can click the “Copy the image” link below and the image link will be copied automatically.
+
+![](https://images.wondershare.com/filmora/article-images/mocking-sponge-bob.png)
+
+Copy the image
+
+ Then, go to <https://filmora.wondershare.com/meme-maker/> insert the image link you just copied by press Ctrl+V, click on the Upload button to start the upload process and wait until the template is uploaded.
+
+![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+ The Edit Your Image window will pop up on the screen if you decide to upload the template from a compute, so you can just drag one of the handles to crop it. If you want, you can rotate or flip the picture, before you hit the OK button.
+
+![](https://images.wondershare.com/filmora/article-images/crop-sponge-bob-meme.jpg)
+
+#### Step 2 – Adding Text to the Meme
+
+ The Editing panel will appear on the screen, with the SpongeBob picture displayed in the middle of the screen. On the left side of the webpage, you'll be able to see the Text Inside and Text Outside tools that let you choose the position of the text in the picture. Select the **Outside Text** option because a great majority of Mocking SpongeBob memes doesn't feature text within the image. Below these tools you can find Top and Bottom text boxes, so you can just choose the position of the text and then insert it into appropriate boxes.
+
+![](https://images.wondershare.com/filmora/article-images/add-text-to-sponge-bob-meme.jpg)
+
+ There is a lot of fonts to choose from, and you can easily select the text size, change the color of the text or align the text. After customizing the texts you can choose the file type since the Filmora Online Meme Maker lets you generate GIFs, videos and images.
+
+#### Step 3 – Export and Download the Mocking SpongeBob Meme
+
+ Click on the Create button once you're happy with the results, then click on the Download button to save it to your computer and upload it to your social media account. If you're using a Smartphone you can tap on the Share button and select a social media platform on which you want to post your mocking SpongeBob meme.
+
+![](https://images.wondershare.com/filmora/article-images/export-sponge-bob-meme.jpg)
+
+**Conclusion**
+
+ Combining text and images is easy with the Filmora Online Maker since you just have to choose the position and the style of the text and download the meme. However, coming up with great jokes that will make the meme viral is up to you. What is your favorite mocking SpongeBob meme? Leave a comment below and let us know.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ The still frame taken from the episode titled 'Little Yellow Book' of the animated series SpongeBob SquarePants has gone viral a few years ago, and since then it has become one of the funniest memes used to mock all sorts of private and public issues. If you'd like to learn how to make the Mocking SpongeBob meme, you've come to the right place, because in this article we're going to show you how you can accomplish this using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Making The Mocking SpongeBob Meme
+
+_**Attention**: This post only provides the solutions to make memes for personal and non-commercial purpose. Since any redistribution without the approval of the copyright owners may violate the copyright laws, you'd better refer to the copyright laws in your country before doing so._
+
+ There are hundreds of online meme generators you can use to quickly make a great joke or depict a situation you frequently find yourself in, but a large portion of these platforms watermark your memes, which can be frustrating at times. That's why we recommend using Filmora Online Meme Maker that lets you generate the mocking SpongeBob meme and all other types of memes for free. Here's how to make a mocking SpongeBob meme is just a few simple steps without having to register or create an account.
+
+#### Step 1 – Uploading the SpongeBob Meme Template
+
+ Filmora Meme Maker offers you 2 ways to upload images, videos, and gifs.
+
+* Drop a file or click the + icon to upload your upload
+* Enter the URL of your media file to upload
+
+ You can find the sponge bobbmeme templates on a number of platforms, such as [Imgur](https://imgur.com/gallery/fJB0a) and [Know Your Meme](https://knowyourmeme.com/memes/mocking-spongebob). Or you can click the “Copy the image” link below and the image link will be copied automatically.
+
+![](https://images.wondershare.com/filmora/article-images/mocking-sponge-bob.png)
+
+Copy the image
+
+ Then, go to <https://filmora.wondershare.com/meme-maker/> insert the image link you just copied by press Ctrl+V, click on the Upload button to start the upload process and wait until the template is uploaded.
+
+![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+ The Edit Your Image window will pop up on the screen if you decide to upload the template from a compute, so you can just drag one of the handles to crop it. If you want, you can rotate or flip the picture, before you hit the OK button.
+
+![](https://images.wondershare.com/filmora/article-images/crop-sponge-bob-meme.jpg)
+
+#### Step 2 – Adding Text to the Meme
+
+ The Editing panel will appear on the screen, with the SpongeBob picture displayed in the middle of the screen. On the left side of the webpage, you'll be able to see the Text Inside and Text Outside tools that let you choose the position of the text in the picture. Select the **Outside Text** option because a great majority of Mocking SpongeBob memes doesn't feature text within the image. Below these tools you can find Top and Bottom text boxes, so you can just choose the position of the text and then insert it into appropriate boxes.
+
+![](https://images.wondershare.com/filmora/article-images/add-text-to-sponge-bob-meme.jpg)
+
+ There is a lot of fonts to choose from, and you can easily select the text size, change the color of the text or align the text. After customizing the texts you can choose the file type since the Filmora Online Meme Maker lets you generate GIFs, videos and images.
+
+#### Step 3 – Export and Download the Mocking SpongeBob Meme
+
+ Click on the Create button once you're happy with the results, then click on the Download button to save it to your computer and upload it to your social media account. If you're using a Smartphone you can tap on the Share button and select a social media platform on which you want to post your mocking SpongeBob meme.
+
+![](https://images.wondershare.com/filmora/article-images/export-sponge-bob-meme.jpg)
+
+**Conclusion**
+
+ Combining text and images is easy with the Filmora Online Maker since you just have to choose the position and the style of the text and download the meme. However, coming up with great jokes that will make the meme viral is up to you. What is your favorite mocking SpongeBob meme? Leave a comment below and let us know.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ The still frame taken from the episode titled 'Little Yellow Book' of the animated series SpongeBob SquarePants has gone viral a few years ago, and since then it has become one of the funniest memes used to mock all sorts of private and public issues. If you'd like to learn how to make the Mocking SpongeBob meme, you've come to the right place, because in this article we're going to show you how you can accomplish this using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/).
+
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-Copy the image
-
- Then, go to <https://filmora.wondershare.com/meme-maker/> insert the image link you just copied by press Ctrl+V, click on the Upload button to start the upload process and wait until the template is uploaded.
-
-![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
-
- The Edit Your Image window will pop up on the screen if you decide to upload the template from a compute, so you can just drag one of the handles to crop it. If you want, you can rotate or flip the picture, before you hit the OK button.
-
-![](https://images.wondershare.com/filmora/article-images/crop-sponge-bob-meme.jpg)
-
-#### Step 2 – Adding Text to the Meme
-
- The Editing panel will appear on the screen, with the SpongeBob picture displayed in the middle of the screen. On the left side of the webpage, you'll be able to see the Text Inside and Text Outside tools that let you choose the position of the text in the picture. Select the **Outside Text** option because a great majority of Mocking SpongeBob memes doesn't feature text within the image. Below these tools you can find Top and Bottom text boxes, so you can just choose the position of the text and then insert it into appropriate boxes.
-
-![](https://images.wondershare.com/filmora/article-images/add-text-to-sponge-bob-meme.jpg)
-
- There is a lot of fonts to choose from, and you can easily select the text size, change the color of the text or align the text. After customizing the texts you can choose the file type since the Filmora Online Meme Maker lets you generate GIFs, videos and images.
-
-#### Step 3 – Export and Download the Mocking SpongeBob Meme
-
- Click on the Create button once you're happy with the results, then click on the Download button to save it to your computer and upload it to your social media account. If you're using a Smartphone you can tap on the Share button and select a social media platform on which you want to post your mocking SpongeBob meme.
-
-![](https://images.wondershare.com/filmora/article-images/export-sponge-bob-meme.jpg)
-
-**Conclusion**
-
- Combining text and images is easy with the Filmora Online Maker since you just have to choose the position and the style of the text and download the meme. However, coming up with great jokes that will make the meme viral is up to you. What is your favorite mocking SpongeBob meme? Leave a comment below and let us know.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- The still frame taken from the episode titled 'Little Yellow Book' of the animated series SpongeBob SquarePants has gone viral a few years ago, and since then it has become one of the funniest memes used to mock all sorts of private and public issues. If you'd like to learn how to make the Mocking SpongeBob meme, you've come to the right place, because in this article we're going to show you how you can accomplish this using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## Making The Mocking SpongeBob Meme
-
-_**Attention**: This post only provides the solutions to make memes for personal and non-commercial purpose. Since any redistribution without the approval of the copyright owners may violate the copyright laws, you'd better refer to the copyright laws in your country before doing so._
-
- There are hundreds of online meme generators you can use to quickly make a great joke or depict a situation you frequently find yourself in, but a large portion of these platforms watermark your memes, which can be frustrating at times. That's why we recommend using Filmora Online Meme Maker that lets you generate the mocking SpongeBob meme and all other types of memes for free. Here's how to make a mocking SpongeBob meme is just a few simple steps without having to register or create an account.
-
-#### Step 1 – Uploading the SpongeBob Meme Template
-
- Filmora Meme Maker offers you 2 ways to upload images, videos, and gifs.
-
-* Drop a file or click the + icon to upload your upload
-* Enter the URL of your media file to upload
-
- You can find the sponge bobbmeme templates on a number of platforms, such as [Imgur](https://imgur.com/gallery/fJB0a) and [Know Your Meme](https://knowyourmeme.com/memes/mocking-spongebob). Or you can click the “Copy the image” link below and the image link will be copied automatically.
-
-![](https://images.wondershare.com/filmora/article-images/mocking-sponge-bob.png)
-
-Copy the image
-
- Then, go to <https://filmora.wondershare.com/meme-maker/> insert the image link you just copied by press Ctrl+V, click on the Upload button to start the upload process and wait until the template is uploaded.
-
-![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
-
- The Edit Your Image window will pop up on the screen if you decide to upload the template from a compute, so you can just drag one of the handles to crop it. If you want, you can rotate or flip the picture, before you hit the OK button.
-
-![](https://images.wondershare.com/filmora/article-images/crop-sponge-bob-meme.jpg)
-
-#### Step 2 – Adding Text to the Meme
-
- The Editing panel will appear on the screen, with the SpongeBob picture displayed in the middle of the screen. On the left side of the webpage, you'll be able to see the Text Inside and Text Outside tools that let you choose the position of the text in the picture. Select the **Outside Text** option because a great majority of Mocking SpongeBob memes doesn't feature text within the image. Below these tools you can find Top and Bottom text boxes, so you can just choose the position of the text and then insert it into appropriate boxes.
-
-![](https://images.wondershare.com/filmora/article-images/add-text-to-sponge-bob-meme.jpg)
-
- There is a lot of fonts to choose from, and you can easily select the text size, change the color of the text or align the text. After customizing the texts you can choose the file type since the Filmora Online Meme Maker lets you generate GIFs, videos and images.
-
-#### Step 3 – Export and Download the Mocking SpongeBob Meme
-
- Click on the Create button once you're happy with the results, then click on the Download button to save it to your computer and upload it to your social media account. If you're using a Smartphone you can tap on the Share button and select a social media platform on which you want to post your mocking SpongeBob meme.
-
-![](https://images.wondershare.com/filmora/article-images/export-sponge-bob-meme.jpg)
-
-**Conclusion**
-
- Combining text and images is easy with the Filmora Online Maker since you just have to choose the position and the style of the text and download the meme. However, coming up with great jokes that will make the meme viral is up to you. What is your favorite mocking SpongeBob meme? Leave a comment below and let us know.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- The still frame taken from the episode titled 'Little Yellow Book' of the animated series SpongeBob SquarePants has gone viral a few years ago, and since then it has become one of the funniest memes used to mock all sorts of private and public issues. If you'd like to learn how to make the Mocking SpongeBob meme, you've come to the right place, because in this article we're going to show you how you can accomplish this using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## Making The Mocking SpongeBob Meme
-
-_**Attention**: This post only provides the solutions to make memes for personal and non-commercial purpose. Since any redistribution without the approval of the copyright owners may violate the copyright laws, you'd better refer to the copyright laws in your country before doing so._
-
- There are hundreds of online meme generators you can use to quickly make a great joke or depict a situation you frequently find yourself in, but a large portion of these platforms watermark your memes, which can be frustrating at times. That's why we recommend using Filmora Online Meme Maker that lets you generate the mocking SpongeBob meme and all other types of memes for free. Here's how to make a mocking SpongeBob meme is just a few simple steps without having to register or create an account.
-
-#### Step 1 – Uploading the SpongeBob Meme Template
-
- Filmora Meme Maker offers you 2 ways to upload images, videos, and gifs.
-
-* Drop a file or click the + icon to upload your upload
-* Enter the URL of your media file to upload
-
- You can find the sponge bobbmeme templates on a number of platforms, such as [Imgur](https://imgur.com/gallery/fJB0a) and [Know Your Meme](https://knowyourmeme.com/memes/mocking-spongebob). Or you can click the “Copy the image” link below and the image link will be copied automatically.
-
-![](https://images.wondershare.com/filmora/article-images/mocking-sponge-bob.png)
-
-Copy the image
-
- Then, go to <https://filmora.wondershare.com/meme-maker/> insert the image link you just copied by press Ctrl+V, click on the Upload button to start the upload process and wait until the template is uploaded.
-
-![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
-
- The Edit Your Image window will pop up on the screen if you decide to upload the template from a compute, so you can just drag one of the handles to crop it. If you want, you can rotate or flip the picture, before you hit the OK button.
-
-![](https://images.wondershare.com/filmora/article-images/crop-sponge-bob-meme.jpg)
-
-#### Step 2 – Adding Text to the Meme
-
- The Editing panel will appear on the screen, with the SpongeBob picture displayed in the middle of the screen. On the left side of the webpage, you'll be able to see the Text Inside and Text Outside tools that let you choose the position of the text in the picture. Select the **Outside Text** option because a great majority of Mocking SpongeBob memes doesn't feature text within the image. Below these tools you can find Top and Bottom text boxes, so you can just choose the position of the text and then insert it into appropriate boxes.
-
-![](https://images.wondershare.com/filmora/article-images/add-text-to-sponge-bob-meme.jpg)
-
- There is a lot of fonts to choose from, and you can easily select the text size, change the color of the text or align the text. After customizing the texts you can choose the file type since the Filmora Online Meme Maker lets you generate GIFs, videos and images.
-
-#### Step 3 – Export and Download the Mocking SpongeBob Meme
-
- Click on the Create button once you're happy with the results, then click on the Download button to save it to your computer and upload it to your social media account. If you're using a Smartphone you can tap on the Share button and select a social media platform on which you want to post your mocking SpongeBob meme.
-
-![](https://images.wondershare.com/filmora/article-images/export-sponge-bob-meme.jpg)
-
-**Conclusion**
-
- Combining text and images is easy with the Filmora Online Maker since you just have to choose the position and the style of the text and download the meme. However, coming up with great jokes that will make the meme viral is up to you. What is your favorite mocking SpongeBob meme? Leave a comment below and let us know.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- The still frame taken from the episode titled 'Little Yellow Book' of the animated series SpongeBob SquarePants has gone viral a few years ago, and since then it has become one of the funniest memes used to mock all sorts of private and public issues. If you'd like to learn how to make the Mocking SpongeBob meme, you've come to the right place, because in this article we're going to show you how you can accomplish this using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ## Making The Mocking SpongeBob Meme
 
@@ -1428,13 +1400,6 @@ Memojis enable you to choose the character’s skin color, head, nose, ear shape
 
 ![what-is-memoji](https://images.wondershare.com/filmora/article-images/what-is-memoji.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 See best Memoji makers here: [Top 8 Memoji Makers to Make a Memoji on PC, Android, and iPhone.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## How to Set Up and Create Memojis?
@@ -1462,6 +1427,13 @@ Import the memoji video file you’ve transferred to your computer into Filmora 
 Moreover, you can duplicate an animoji or memoji and create a duet in just a few simple clicks. The editor’s powerful audio editing tools enable you to add a high-quality audio file to your project or sound effects that can make your video more entertaining. Click on the Export button to choose the output destination, format, resolution and aspect ratio for the karaoke video you’ve just created. Filmora lets you export videos directly to your YouTube or Vimeo channel, which can be quite handy if you want to share your memoji videos online immediately after you’ve completed the video editing process.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## List of iPhones and iPads that Support Animojis and Memojis
 
@@ -1529,19 +1501,6 @@ Read this article to learn more about Animoji: [The Ultimate Guide of How to Use
 It is worth noting that knowing the lyrics of the song is going to improve the quality of the karaoke music video you’re producing significantly, so rehearsing a song few times before you hit the record button may be a good idea if you don’t know its lyrics by heart.
 
 ![new-Animoj](https://images.wondershare.com/filmora/article-images/new-Animoji.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  When you’re ready, launch the iMessage app and choose an animoji or memoji character you’re going to be in the video. Don’t record karaoke videos in the full-screen mode because the record button is going to cover a significant portion of the screen, which can complicate the video editing process. Optionally, you download and install the [Animoji Studio](https://github.com/insidegui/AnimojiStudio) app if you want to record videos that are longer than thirty seconds, but you might need some time to get used to making karaoke videos with this app.
 
@@ -1812,6 +1771,13 @@ There's no shortage of free comic books online at Manga Park. This website also 
 
 ![mangapark-poster](https://images.wondershare.com/filmora/article-images/mangopark-poster.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Features:**
 
 * In a clear grid pattern, MangaPark presents all popular comic books and the most recent comic releases.
@@ -1855,6 +1821,19 @@ There is a website called MangaKakalot that offers a clearer and more sophistica
 Because of the easy navigation interface and the extensive collection of Manga collections on this site, we have included it in our list of best manga sites. You can browse Top 100 Action Adventure Manga, Top 50 Sports Manga, Top 50 Romantic Manga, and more on this website.
 
 ![otakusmash-poster](https://images.wondershare.com/filmora/article-images/otakusmash-poster.png)
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Features:**
 
@@ -2386,6 +2365,13 @@ A good number of audiences find it useful and enjoy it, despite the advertisemen
 Our next platform is Comixology. Amazon assists Comixology in its operations. Marvel Comics, DCU, Manga, and other digital comics are available here. Coximology, therefore, has a diverse comic book collection. The other great feature of this website is that they host every graphic novel in their library in English. The prices for comics and manga on Comixology are incredibly reasonable. You can also find many free comics on websites for which you don't need to pay anything. Sadly, they do not have any options for renting. The website is also incredibly easy to navigate and looks very premium. We rate this manga site among the top on our list today.
 
 ![comixology-poster](https://images.wondershare.com/filmora/article-images/comixology-poster.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Features:**
 
@@ -3153,6 +3139,13 @@ Step 4: Once the editing is completed, Export the video into the format you wish
 
 ![Export Video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 Stickers sometimes speak better than words and it is very important to know how to customize stickers as every individual wishes to speak differently. Stickers are used for many purposes, from casual chats to marketing means and home décor, which is why the quality of them is very important.
@@ -3331,6 +3324,13 @@ Avery lets its users create seals and stickers personalized to their choice of i
 
 ![Avery Sticker Maker](https://images.wondershare.com/filmora/article-images/avery-sticker-maker.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Pricing**
 
 * Pricing depends on the order of purchase
@@ -3432,18 +3432,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-jailbreak-joy-top-funny-faces-at-the-social-networks-limits/"><u>[Updated] 2024 Approved Jailbreak Joy - Top Funny Faces at the Social Network’s Limits</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-unlocking-image-potential-smart-online-cropping-techniques/"><u>[Updated] Unlocking Image Potential Smart Online Cropping Techniques</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-step-up-your-language-game-top-15-tools-to-turn-videos-into-universal-text/"><u>2024 Approved Step Up Your Language Game Top 15 Tools to Turn Videos Into Universal Text</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-complete-guide-to-reversed-videos-on-instagram/"><u>2024 Approved The Complete Guide to Reversed Videos on Instagram</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/explore-the-exciting-features-of-ios-18-public-beta-top-5-innovations-from-apple/"><u>Explore the Exciting Features of iOS 18 Public Beta: Top 5 Innovations From Apple</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-flv-photo-slideshow/"><u>In 2024, How to Make a FLV Photo Slideshow</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-meme-step-by-step/"><u>In 2024, How to Make a Meme (Step by Step)</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-wonderful-video-slideshow-with-your-travel-photos/"><u>In 2024, How to Make a Wonderful Video Slideshow with Your Travel Photos</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721468033555-ios-update-issues-try-out-our-9-effective-remedies-today/"><u>IOS Update Issues? Try Out Our 9 Effective Remedies Today!</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-10-best-free-websites-to-watch-cartoons-online/"><u>New 10 Best Free Websites to Watch Cartoons Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-best-10-free-manga-sites-to-read-online/"><u>New Best 10 Free Manga Sites to Read Online</u></a></li>
-<li><a href="https://win-able.techidaily.com/obs-on-windows-10-and-11-troubleshooting-crashes-updated-solutions/"><u>OBS on Windows 10 & 11: Troubleshooting Crashes - Updated Solutions</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/video-annotations-mastery-cutting-with-precision-and-style/"><u>Video Annotations Mastery Cutting with Precision & Style</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-illuminating-origins-a-comprehensible-guide-to-inverted-images-in-instagram/"><u>[New] In 2024, Illuminating Origins A Comprehensible Guide to Inverted Images in Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-beyond-tube-the-premier-spots-for-online-video-sharing/"><u>[Updated] In 2024, Beyond Tube The Premier Spots for Online Video Sharing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-beat-weavers-treasury-high-res-dj-visual-samples/"><u>[Updated] The Beat Weaver's Treasury High-Res DJ Visual Samples</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-10-best-memes-right-now-include-image-gifvideo/"><u>2024 Approved 10 Best Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-iphoneipad-masterclass-crafting-engaging-interview-and-exploration-podcasts/"><u>2024 Approved IPhone/iPad Masterclass Crafting Engaging Interview and Exploration Podcasts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-zero-cost-image-booster-online-plus-mobile-app-for-2024/"><u>Best Zero-Cost Image Booster Online + Mobile App for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/dive-into-vibrant-visuals-gopro-studio-color-correction/"><u>Dive Into Vibrant Visuals GoPro Studio Color Correction</u></a></li>
+<li><a href="https://extra-information.techidaily.com/gopro-expertise-essential-techniques/"><u>GoPro Expertise Essential Techniques</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-add-emojis-to-videos-the-ultimate-guide/"><u>How to Add Emojis to Videos The Ultimate Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-video-meme-with-4-best-meme-video-makers/"><u>How to Make a Video Meme with 4 Best Meme Video Makers</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-the-fix-when-your-witcher-3-wild-hunt-game-wont-start/"><u>Mastering the Fix: When Your Witcher 3: Wild Hunt Game Won't Start</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>New 2024 Approved 10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-best-solarmovie-alternatives-watch-movies-free-online/"><u>New 2024 Approved Best SolarMovie Alternatives-Watch Movies Free Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-solarmovie-alternatives-watch-movies-online-for-2024/"><u>Updated Best SolarMovie Alternatives-Watch Movies Online for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-20-wonderful-stop-motion-ideas-for-beginners-and-kids-filmora/"><u>Updated In 2024, 20 Wonderful Stop Motion Ideas for Beginners and Kids - Filmora</u></a></li>
 </ul></div>
 
