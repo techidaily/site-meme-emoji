@@ -1,7 +1,7 @@
 ---
 title: New 2024 Approved How to Make a Funny Meme on MacBook
-date: 2024-10-23T09:02:07.466Z
-updated: 2024-10-29T02:39:28.767Z
+date: 2024-10-31T22:05:13.940Z
+updated: 2024-11-04T05:00:33.740Z
 tags: 
   - ai
   - animation videos
@@ -62,13 +62,6 @@ Now that you have created your desired meme, save it on your Mac device. Then sh
 
 ![funny meme](https://images.wondershare.com/filmora/Mac-articles/funny-meme.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Steps of Creating Video or GIF Meme Using FilmoraX
 
 You can also use a video editor to create your Video or make meme in GIF. With FilmoraX, it is easy to do so. In case you want to make meme, but are new to this process, then FilmoraX is just the perfect tool for you. With the help of this meme maker, you can easily create a video, GIF, and image memes.
@@ -210,6 +203,19 @@ When you are done making the change, you have to click on the ‘Export’ butto
 
 ![export file on filmora](https://images.wondershare.com/filmora/Mac-articles/export-file-on-filmorax.jpg)
 
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Ingredients to Make an Effective Meme
 
 Memes keep gaining far-reaching traction. Businesses can join in on creating memes that will be suitable for their brand. However, while creating a meme, a business or an individual needs to keep a few things in mind.
@@ -237,13 +243,6 @@ Memes can be of different types but what matters the most is they make the viewe
 Learn More: [10 Best Meme Maker App or Website You Need to Know>>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -310,6 +309,19 @@ The first thing that you have to do is download and install FilmoraX on Mac in c
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2. Drag and Drop the Video
 
 Now that you have the meme maker, drag and drop on the video that you want. This will import the video to the meme maker.
@@ -353,6 +365,13 @@ Memes can be of different types but what matters the most is they make the viewe
 Learn More: [10 Best Meme Maker App or Website You Need to Know>>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -1471,13 +1490,6 @@ Let's see how to make memoji talk on Android phones-
 
 ![Launch Face Cam App](https://images.wondershare.com/filmora/article-images/launch-face-cam-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2.Now, make a custom memoji that looks like you. Select the hairstyle, face shape, eye color, accessories, etc. Tap the Tickicon to proceed.
 
 ![Custom Memoji Setting](https://images.wondershare.com/filmora/article-images/custom-memoji-setting.jpg)
@@ -1673,13 +1685,6 @@ Here's a guide on how to make memoji talk in 5 easy steps:
 1.Open imessages. Go to New Message or open an existing conversation. If you don't see the app tray above the keyboard, click on the App storeicon to reveal the hidden apps.
 
 ![Go To New Message](https://images.wondershare.com/filmora/article-images/go-to-new-message.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2.Now, in the app tray, click on the three-headed icon to see your memoji. If you record right there, it will just be a basic memoji head limited to a 30-second video. But, since we want more than that, click on the camera icon.
 
@@ -2245,13 +2250,6 @@ Copy the image
 
 ![](https://images.wondershare.com/filmora/article-images/roll-safe-think-about-it-upload.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  A new page will load after the meme is generated, and you just have to click on the Download button and save it to your computer.
 
  Those of you who use Filmora Online Meme Maker from their Smartphones can share their Roll Safe-Think About It memes directly from the platform. Sharing memes on social media is still not an option for Mac and PC users.
@@ -2285,6 +2283,13 @@ Follow @Ollie Mattison
 _Can't lose_ _if you don't play_ is a great illustration of what Roll Safe is all about. If you don't try something you can't fail at it, right? The assumption seems entirely legitimate, except it's not, and that's the catch.
 
 ![](https://images.wondershare.com/filmora/article-images/roll-safe-think-about-it-upload-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  A similar logic can be applied to romance, as there is zero chance to get cheated on if you weren't in a relationship, to begin with. The only trouble is that if you adopt this way of thinking, you'll never be in a relationship.
 
@@ -2442,6 +2447,13 @@ _Can't lose_ _if you don't play_ is a great illustration of what Roll Safe is al
 
 ![](https://images.wondershare.com/filmora/article-images/roll-safe-think-about-it-upload-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  We all complain about financial troubles in one way or the other, and Roll Safe-Think About It offers a pretty funny way to do that. Once again, a seemingly valid point that only looks good in theory is the punch-line of the meme. There are so many different variations of this meme on the Internet, at the moment, but nearly all of them employ faulty logic to create the comical effect.
 
 ## How to Make the Roll Safe-Think About It Meme
@@ -2461,13 +2473,6 @@ _Can't lose_ _if you don't play_ is a great illustration of what Roll Safe is al
 Copy the image
 
 ![](https://images.wondershare.com/filmora/article-images/roll-safe-think-about-it.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Copy the image
 
@@ -2552,10 +2557,10 @@ The Elements Tab contains different categories such as **Shapes, Badges or Pets.
 ![Add Emoji to Video in Filmora9](https://images.wondershare.com/filmora/article-images/emoji-animated-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ###### Export the Project
@@ -2813,13 +2818,6 @@ The way we communicate has changed so much in the first two decades of the 21st 
 
 ## How to Add Animated Emojis to Videos in Flimora? \[Windows & Mac\][
 ![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Gamers, YouTubers and all other Mac and PC users who’d like to add a smiley or any other emoji to a video should try processing their footage with the Filmora [video editor](https://tools.techidaily.com/wondershare/filmora/download/). Performing basic video editing tasks like cutting or trimming the footage, choosing a soundtrack for a video or adding an emoji to a single shot or an entire sequence can all be completed in just a couple of clicks. Here’s how **you can add an emoji to a video clip in Filmora**.
 
@@ -3107,6 +3105,13 @@ The funniest subreddits on /r/AdviceAnimals showed a Penguin with head and half 
 
 ![celaction2d](https://images.wondershare.com/filmora/article-images/AdviceAnimals.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. /r/MemeEconomy
 
 r/MemeEconomy is a quirky and funniest subreddit where real-world commodities are discussed through memes. There's no real money involved, but when a meme starts becoming popular, people opt to buy, and when emaciated, you sell.
@@ -3114,6 +3119,13 @@ r/MemeEconomy is a quirky and funniest subreddit where real-world commodities ar
 For instance, the frustration of a father is making him invest. The memes show a man sitting on the wall looking down and making his face, thinking when your son starts Fortnite dancing in public. You should have made sandwiches instead of making him.
 
 ![memeeconomy](https://images.wondershare.com/filmora/article-images/MemeEconomy.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. /r/ComedyCemetery
 
@@ -3287,24 +3299,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-laugh-out-loud-select-funny-photo-enhancers-online/"><u>[New] Laugh Out Loud Select Funny Photo Enhancers Online</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-is-watching-facebook-on-the-television-set-a-future-possibility-for-2024/"><u>[Updated] Is Watching Facebook on the Television Set a Future Possibility for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-authoritative-guide-to-generating-srt-files-with-expert-tips/"><u>2024 Approved The Authoritative Guide to Generating SRT Files with Expert Tips</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/elevate-website-analytics-using-cookiebot-a-smart-approach-for-businesses/"><u>Elevate Website Analytics Using Cookiebot: A Smart Approach for Businesses</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/enhancing-presentations-incorporating-snap-features-on-meet-for-2024/"><u>Enhancing Presentations Incorporating Snap Features on Meet for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-photo-collage-on-maciphone-using-iphoto/"><u>How to Make a Photo Collage on Mac/iPhone Using iPhoto?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-make-your-own-emoji-in-2-ways-step-by-step-guide/"><u>How to Make Your Own Emoji in 2 Ways Step-By Step Guide</u></a></li>
-<li><a href="https://video-capture.techidaily.com/how-to-utilize-snap-camera-effectively-for-real-time-collaboration-in-meet-for-2024/"><u>How to Utilize Snap Camera Effectively for Real-Time Collaboration in Meet for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/hp-envy-driver-setup-for-windows-11-upgrade/"><u>HP Envy Driver Setup for Windows 11 Upgrade</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-funny-meme-on-macbook/"><u>In 2024, How to Make a Funny Meme on MacBook</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-best-ios-and-android-apps-you-can-use-to-create-animoji-and-memoji-videos-for-2024/"><u>New Best iOS and Android Apps You Can Use to Create Animoji and Memoji Videos for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-an-adorable-video-for-your-babys-first-year/"><u>New How to Make an Adorable Video for Your Babys First Year</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-video-for-your-babys-first-year/"><u>New In 2024, How to Make a Video for Your Babys First Year</u></a></li>
-<li><a href="https://common-error.techidaily.com/overcoming-the-challenge-of-windows-11-prolonged-shutdown-times/"><u>Overcoming the Challenge of Windows 11 Prolonged Shutdown Times</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-steps-for-creating-collab-videos-with-youtubers-for-2024/"><u>The Ultimate Steps for Creating Collab Videos with YouTubers for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-top-10-free-emoji-websites-to-download-emojis-online/"><u>Updated 2024 Approved Top 10 Free Emoji Websites to Download Emojis Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-add-emojis-to-videos-on-youtubefacebooksnapchat-2023-guide/"><u>Updated Add Emojis to Videos on YouTube/Facebook/Snapchat 2023 Guide</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-your-own-emoji-in-2-ways-step-by-step-guide-for-2024/"><u>Updated How to Make Your Own Emoji in 2 Ways Step-By Step Guide for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-uncomplicated-multisnap-storytelling-on-snapchat/"><u>[Updated] 2024 Approved Uncomplicated Multisnap Storytelling on Snapchat</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-art-of-editing-decoded-a-deep-dive-into-magix-vpx/"><u>[Updated] The Art of Editing Decoded A Deep Dive Into Magix VPX</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-trending-memes-right-now-include-image-gifvideo/"><u>10 Trending Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-bringing-your-outdoor-experiences-home-gopro-livestreams-on-facebookperiscope/"><u>2024 Approved Bringing Your Outdoor Experiences Home GoPro Livestreams on Facebook/Periscope</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-streamline-your-online-experience-insights-into-ffxp/"><u>2024 Approved Streamline Your Online Experience Insights Into FFXP</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-lava-blaze-curve-5g-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Lava Blaze Curve 5G? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/easy-troubleshooting-techniques-to-correct-microsofts-0x800f0831-issue-using-windows-update-features/"><u>Easy Troubleshooting Techniques to Correct Microsoft's 0X800F0831 Issue Using Windows Update Features</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-imovie-photo-slideshow-with-music-in-2024/"><u>How to Make a iMovie Photo Slideshow with Music, In 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-video-for-your-babys-first-year/"><u>In 2024, How to Make a Video for Your Babys First Year</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-add-emojisstickers-to-videos-on-pcmacmobileonline/"><u>New 2024 Approved How Add Emojis/Stickers to Videos on PC/Mac/Mobile/Online</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-guide-to-converting-and-sharing-h-videos-on-igtv-for-2024/"><u>The Ultimate Guide to Converting and Sharing H-Videos on IGTV for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>Updated In 2024, How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-top-5-best-websites-to-add-emojis-to-photo-online/"><u>Updated Top 5 Best Websites to Add Emojis to Photo Online</u></a></li>
 </ul></div>
 
