@@ -1,7 +1,7 @@
 ---
 title: New How to Make a Video Meme with 4 Best Meme Video Makers for 2024
-date: 2024-10-29T18:04:32.322Z
-updated: 2024-11-04T02:37:32.179Z
+date: 2024-11-11T02:33:25.500Z
+updated: 2024-11-13T05:57:12.293Z
 tags: 
   - ai
   - animation videos
@@ -211,13 +211,6 @@ You can also create a more vivid video meme with Filmora [meme maker](https://to
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Read more: [Easy Steps to Create a Meme \[Photo & Video Memes\]](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to create a video meme with Filmora online meme maker
 
@@ -736,13 +729,6 @@ If you are a working professional and want to lighten the mood of your Slack wor
 
 **Related:** [Best Free Apps to Get Emojis on iPhone and Android](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 So, there you go. We have finally reached the end of this guide. We hope you have found this post interesting and will face no hassle using the Bitmoji keyboard on different devices. Get the Bitmoji app if you haven’t downloaded it yet and make your conversations fun and enjoyable!
@@ -1199,13 +1185,6 @@ Check your wardrobe and get all the toys out from there. Set them as a story and
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora video editor](https://images.wondershare.com/filmora/filmora13/side-brand-filmora13.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -1932,19 +1911,6 @@ Another section on the landing page of the website contains some of the most pop
 
 The bottom area of the landing page has all the emojis along with their names and/or the supported devices. All the names in the section are hyperlinked that open a new page when clicked, and show all the details such as examples, usage, and origin related to that particular emoji.
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3. Emoji Dictionary
 
 <https://emojidictionary.emojifoundation.com/>
@@ -2460,6 +2426,13 @@ Even though there countless SolarMovie like websites on the internet, it can be 
 One of the best SolarMovie alternative sites includes Popcornflix. It is a free HD streaming site through which users can watch movie online without having to register or subscribe. The range of movies available on this SolarMovie alternative is very extensive. Moreover, the movies are categorized as New Arrivals, Horror, Drama, Asian Action, to name a few. The categorization allows easy browsing and searching for the perfect movie. This SolarMovie alternative boasts a category of Popcornflix original movies as well that are exclusively available on this site. A search bar option further eases the task of finding a particular movie.
 
 ![popcornflix watch movie](https://images.wondershare.com/filmora/article-images/1-popcornflix-movie.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Tubi TV
 
@@ -2985,13 +2958,6 @@ For instance, the frustration of a father is making him invest. The memes show a
 
 ![memeeconomy](https://images.wondershare.com/filmora/article-images/MemeEconomy.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3. /r/ComedyCemetery
 
 /r/ComedyCemetery is one of the funniest subreddit where the memes are shared by people and mocked them to try out their humor. To start with, users usually share internet culture pieces.
@@ -3154,13 +3120,6 @@ Are you a memes lover? Reddit is the best hub for funny memes. However, all of t
 
 So, in this article, we have come up with 10 funniest subreddits to make you laugh. You need not worry further that you are unable to find the memes.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 10 Funniest Subreddits to Find Memes
 
 ### 1. /r/AdviceAnimals
@@ -3186,6 +3145,13 @@ For instance, the frustration of a father is making him invest. The memes show a
 You won't find any macro images or animal advice memes, ironical jokes allowed, poor titles and reposts, no harassment, or meta-posts. So, the simple yet funniest memes show a poem with various minion expressions, "Roses are red, violets are blue. The face like yours belongs to the zoo. Don't be said. I'll be there too. Not in the cage but laughing at you." Dedicating this song to a friend can create a laugh riot.
 
 ![comedycemetery](https://images.wondershare.com/filmora/article-images/ComedyCemetery-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. /r/memes
 
@@ -3236,6 +3202,13 @@ Although there's no particular age specification to join, the target users are t
 ![teenagers](https://images.wondershare.com/filmora/article-images/teenagers.JPG)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -3959,6 +3932,13 @@ Related: [How to Animate Pictures in Canva](https://tools.techidaily.com/wonders
 
 ![add emoji to photo online pizap](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pizap.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 PiZap is a photo editing tool that lets you add emojis too. To start using, you will have to log in or sign up. You can use your Facebook, Twitter, or Google account to sign up. It provides you with various graphics, fonts, and other photo editing features to make the image look better than before. The basic tool comes for free and has 232 emojis currently.
 
 **Key Features**
@@ -4661,6 +4641,13 @@ Incorporated with 12 titles, 60 elements, 4 overlays, and 6 transitions, 3D Soci
 
 The Cartoon Emoji Pack is an amalgamation of a wide range of cartoon emojis to express yourself as best as you can. With the right choice of emoji, one can communicate themselves whilst using a total of 25 elements.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6. Reactions Stickers Pack
 
 With a speech and thought bubble, Reaction Sticker Pack presents all sorts of reaction emojis and smileys. In addition to this, the template offers 11 titles, 4 overlays, 40 elements, and 2 transitions. Get ready to express your reactions in the funniest way.
@@ -4866,13 +4853,6 @@ Import the media files to the video track so that they can be manipulated. Now, 
 On the top left section of the window, navigate to the "Elements" tab. From there, pick out the "Emoji" category and browse a wide range of emojis. Drag and drop the emojis to your video. You can relocate and resize the emoji based on the video dimensions.
 
 ![adding the emoji in the video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 5: Exporting the Video
 
@@ -5073,108 +5053,12 @@ In July 2009, Shemrock YouTube channel created best memes for this video by usin
 
 ![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
 
-### 4\. Who Killed Hannibal?
-
-It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
-
-It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
-
-![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
-
-### 5\. Walmart Yodel Boy
-
-The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
-
-![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
-
-### 6\. Is this a pigeon?
-
-A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
-
-![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
-
-### 7\. LeBron James's NBA Finals Reaction
-
-This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
-
-The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
-
-![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
-
-### 8\. Tired Spongebob
-
-Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
-
-![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
-
-### 9\. Tide Pods
-
-Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
-
-Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
-
-![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
-
-### 10\. Green M&M Bambi Copypasta
-
-While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
-
-The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
-
-![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
-
-Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 2: Recommended Tool to Make Memes
-
-The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
-
-From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
-
-When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
-
-* [**Part1: 10 Best Memes In 2024**](#part1)
-* [**Part2: Recommended Tool to Make Memes**](#part2)
-
-## Part 1: 10 Best Memes In 2024
-
-### 1\. Steven Crowder's "Change My Mind" Campus Sign
-
-The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
-
-The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
-
-![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
-
-### 2\. Gru's Plan
-
-When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
-
-The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
-
-![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
-
-### 3\. American Chopper Argument
-
-In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
-
-In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
-
-![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Who Killed Hannibal?
 
@@ -5209,193 +5093,309 @@ The reaction from James became the best memes of this year. As soon as the game 
 Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
 
 ![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
-
-### 9\. Tide Pods
-
-Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
-
-Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
-
-![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
-
-### 10\. Green M&M Bambi Copypasta
-
-While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
-
-The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
-
-![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
-
-Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 2: Recommended Tool to Make Memes
-
-The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
-
-From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
-
-When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
-
-* [**Part1: 10 Best Memes In 2024**](#part1)
-* [**Part2: Recommended Tool to Make Memes**](#part2)
-
-## Part 1: 10 Best Memes In 2024
-
-### 1\. Steven Crowder's "Change My Mind" Campus Sign
-
-The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
-
-The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
-
-![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
-
-### 2\. Gru's Plan
-
-When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
-
-The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
-
-![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
-
-### 3\. American Chopper Argument
-
-In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
-
-In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
-
-![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
-
-### 4\. Who Killed Hannibal?
-
-It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
-
-It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
-
-![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
-
-### 5\. Walmart Yodel Boy
-
-The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
-
-![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
-
-### 6\. Is this a pigeon?
-
-A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
-
-![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
-
-### 7\. LeBron James's NBA Finals Reaction
-
-This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
-
-The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
-
-![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
-
-### 8\. Tired Spongebob
-
-Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
-
-![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
-
-### 9\. Tide Pods
-
-Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
-
-Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
-
-![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
-
-### 10\. Green M&M Bambi Copypasta
-
-While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
-
-The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
-
-![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
-
-Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 2: Recommended Tool to Make Memes
-
-The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
-
-From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
-
-When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
-
-* [**Part1: 10 Best Memes In 2024**](#part1)
-* [**Part2: Recommended Tool to Make Memes**](#part2)
-
-## Part 1: 10 Best Memes In 2024
-
-### 1\. Steven Crowder's "Change My Mind" Campus Sign
-
-The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
-
-The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
-
-![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
-
-### 2\. Gru's Plan
-
-When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
-
-The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
-
-![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
-
-### 3\. American Chopper Argument
-
-In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
-
-In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
-
-![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
-
-### 4\. Who Killed Hannibal?
-
-It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
-
-It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
-
-![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### 9\. Tide Pods
+
+Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
+
+Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
+
+![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
+
+### 10\. Green M&M Bambi Copypasta
+
+While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
+
+The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
+
+![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
+
+Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: Recommended Tool to Make Memes
+
+The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
+
+From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
+
+When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
+
+* [**Part1: 10 Best Memes In 2024**](#part1)
+* [**Part2: Recommended Tool to Make Memes**](#part2)
+
+## Part 1: 10 Best Memes In 2024
+
+### 1\. Steven Crowder's "Change My Mind" Campus Sign
+
+The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
+
+The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
+
+![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
+
+### 2\. Gru's Plan
+
+When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
+
+The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
+
+![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
+
+### 3\. American Chopper Argument
+
+In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
+
+In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
+
+![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
+
+### 4\. Who Killed Hannibal?
+
+It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
+
+It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
+
+![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
+
+### 5\. Walmart Yodel Boy
+
+The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
+
+![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
+
+### 6\. Is this a pigeon?
+
+A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
+
+![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
+
+### 7\. LeBron James's NBA Finals Reaction
+
+This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
+
+The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
+
+![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
+
+### 8\. Tired Spongebob
+
+Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
+
+![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
+
+### 9\. Tide Pods
+
+Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
+
+Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
+
+![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 10\. Green M&M Bambi Copypasta
+
+While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
+
+The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
+
+![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
+
+Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: Recommended Tool to Make Memes
+
+The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
+
+From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
+
+When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
+
+* [**Part1: 10 Best Memes In 2024**](#part1)
+* [**Part2: Recommended Tool to Make Memes**](#part2)
+
+## Part 1: 10 Best Memes In 2024
+
+### 1\. Steven Crowder's "Change My Mind" Campus Sign
+
+The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
+
+The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
+
+![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
+
+### 2\. Gru's Plan
+
+When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
+
+The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
+
+![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
+
+### 3\. American Chopper Argument
+
+In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
+
+In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
+
+![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
+
+### 4\. Who Killed Hannibal?
+
+It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
+
+It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
+
+![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
+
+### 5\. Walmart Yodel Boy
+
+The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
+
+![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
+
+### 6\. Is this a pigeon?
+
+A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
+
+![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
+
+### 7\. LeBron James's NBA Finals Reaction
+
+This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
+
+The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
+
+![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
+
+### 8\. Tired Spongebob
+
+Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
+
+![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
+
+### 9\. Tide Pods
+
+Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
+
+Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
+
+![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
+
+### 10\. Green M&M Bambi Copypasta
+
+While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
+
+The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
+
+![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
+
+Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: Recommended Tool to Make Memes
+
+The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
+
+From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
+
+When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
+
+* [**Part1: 10 Best Memes In 2024**](#part1)
+* [**Part2: Recommended Tool to Make Memes**](#part2)
+
+## Part 1: 10 Best Memes In 2024
+
+### 1\. Steven Crowder's "Change My Mind" Campus Sign
+
+The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
+
+The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
+
+![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
+
+### 2\. Gru's Plan
+
+When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
+
+The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
+
+![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
+
+### 3\. American Chopper Argument
+
+In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
+
+In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
+
+![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
+
+### 4\. Who Killed Hannibal?
+
+It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
+
+It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
+
+![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
 
 ### 5\. Walmart Yodel Boy
 
@@ -5471,18 +5471,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-expert-tips-for-capturing-sims-sessions/"><u>[New] 2024 Approved Expert Tips for Capturing Sims Sessions</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-behind-the-scenes-the-top-7-studio-programs-for-animators/"><u>[Updated] Behind the Scenes The Top 7 Studio Programs for Animators</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-engineering-eye-catching-teaser-tales/"><u>2024 Approved Engineering Eye-Catching Teaser Tales</u></a></li>
-<li><a href="https://games-able.techidaily.com/discover-the-superiority-of-xbox-game-pass-ultimate/"><u>Discover the Superiority of Xbox Game Pass Ultimate</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-6-popular-animated-emoji-video-effects/"><u>In 2024, 6 Popular Animated Emoji Video Effects</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Samsung Galaxy Z Flip 5? | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-ultimate-guide-to-best-mac-video-frames-limit-156-chars/"><u>In 2024, Ultimate Guide to Best Mac Video Frames (Limit 156 Chars)</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/is-this-a-pigeon-meme-generator-for-2024/"><u>Is This a Pigeon Meme Generator for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-10-best-work-memes-to-have-fun-in-work-days/"><u>New 2024 Approved 10 Best Work Memes to Have Fun in Work Days</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-best-emoji-removers-to-remove-emojis-from-pictures/"><u>New In 2024, Best Emoji Removers to Remove Emojis From Pictures</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-motorola-moto-g-5g-2023-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Motorola Moto G 5G (2023) without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-free-10-websites-to-watch-cartoon-online-in-hd/"><u>Updated FREE 10 Websites to Watch Cartoon Online in HD</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-burn-photos-to-dvd-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>Updated In 2024, Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-get-the-scoop-on-vn-video-editor-for-pc/"><u>In 2024, Get the Scoop on VN Video Editor for PC</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-storytelling-mastery-top-video-marketing-tactics-explored/"><u>In 2024, Instagram Storytelling Mastery Top Video Marketing Tactics Explored</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-honor-play-7t-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Honor Play 7T | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-photo-collage-using-iphoto/"><u>New How to Make a Photo Collage Using iPhoto?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-triggered-meme/"><u>New In 2024, How to Make a Triggered Meme?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-top-10-storyboarding-software-freeandpaid/"><u>New Top 10 Storyboarding Software Free&Paid</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722973619334-official-hp-deskjet-ink-advantage-printer-driver-v517-for-windows-get-it-here/"><u>Official HP Deskjet Ink Advantage Printer Driver v5.17 for Windows – Get It Here</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-ultimate-guide-to-implementing-gpt-3-within-openais-interactive-environment/"><u>The Ultimate Guide to Implementing GPT-3 Within OpenAI’s Interactive Environment</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/top-15-seamless-instagram-downloaders-uncovered-for-2024/"><u>Top 15 Seamless Instagram Downloaders Uncovered for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/top-5-best-websites-to-add-emojis-to-photo-online-for-2024/"><u>Top 5 Best Websites to Add Emojis to Photo Online for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-10-best-work-memes-to-have-fun-in-work-days/"><u>Updated 10 Best Work Memes to Have Fun in Work Days</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-7-free-apps-to-get-emojis-on-android-and-iphone/"><u>Updated 2024 Approved 7 Free Apps to Get Emojis on Android and iPhone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>Updated 2024 Approved How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-new-in-youtube-money-regulations/"><u>What's New in YouTube Money Regulations</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Tecno Spark 10 Pro | Dr.fone</u></a></li>
 </ul></div>
 
