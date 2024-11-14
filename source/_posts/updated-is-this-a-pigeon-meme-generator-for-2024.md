@@ -1,7 +1,7 @@
 ---
 title: Updated Is This a Pigeon Meme Generator for 2024
-date: 2024-11-06T03:46:08.606Z
-updated: 2024-11-12T23:15:48.484Z
+date: 2024-11-07T03:09:55.938Z
+updated: 2024-11-14T03:31:45.617Z
 tags: 
   - ai
   - animation videos
@@ -204,6 +204,13 @@ Copy the image
  If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
 
 ![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. Adding the Text to the Meme
 
@@ -599,6 +606,13 @@ Follow @Shanoon Cox
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -641,13 +655,6 @@ Along with this, it is constantly growing and unique media with no fear of attri
 
 Animated kiss emoji, animated dancing emoji, and laughing emoji, this emoji pack has covered your basics. With 24 elements, Animated Emoji Pack provides an easy way to express yourself and say it out loud using the language of emojis.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. Emoji Stickers Pack
 
 If you are on the verge of a nervous breakdown and require a stickers pack with 32 elements that include a crying emoji, this pack has to be your answer. In addition to this, this effect is 100% compatible with Wondershare Filmora 9.6 and above.
@@ -667,6 +674,13 @@ The Cartoon Emoji Pack is an amalgamation of a wide range of cartoon emojis to e
 ### 6. Reactions Stickers Pack
 
 With a speech and thought bubble, Reaction Sticker Pack presents all sorts of reaction emojis and smileys. In addition to this, the template offers 11 titles, 4 overlays, 40 elements, and 2 transitions. Get ready to express your reactions in the funniest way.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: 8 Ideas for Making Funny Videos with Animated Emoji
 
@@ -1253,282 +1267,107 @@ Related: [How to Animate Pictures in Canva](https://tools.techidaily.com/wonders
 
 ![add emoji to photo online pizap](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pizap.jpg)
 
-PiZap is a photo editing tool that lets you add emojis too. To start using, you will have to log in or sign up. You can use your Facebook, Twitter, or Google account to sign up. It provides you with various graphics, fonts, and other photo editing features to make the image look better than before. The basic tool comes for free and has 232 emojis currently.
-
-**Key Features**
-
-* The basic tool comes for free.
-* There are numerous emojis to choose from.
-* The image quality doesn't lose its original quality.
-* Using the tool is easy, and the interface is intuitive.
-
-**Steps to Follow to Use PiZap**
-
-**Step 1:** Visit [www.pizap.com](http://www.pizap.com) and click on the try for free option.
-
-**Step 2:** Click on the edit photo option, and upload an image.
-
-**Step 3:** From the left-side toolbar, click on the Graphics option. Scroll a bit, and you will see the emoji section.
-
-**Step 4:** Click on any of the emojis you like to add to the photo. You can adjust the emojis as you want.
-
-### #5: Pixelied
-
-![add emoji to photo online pixelied](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pixelied.jpg)
-
-The last website that we have is Pixelied. The free tool will let you edit your image and add emojis, which will be enough if you don't want many features. Using the tool is easy, and the emojis Pixelied has are great. They are different than general emojis and look better! Plus, the tool provides 300+ fantastic emojis.
-
-**Key Features**
-
-* The tool has an excellent collection of emojis.
-* Adding emojis is extremely easy.
-* It is free to use and doesn't require any photo editing experience.
-* The tool also offers various photo editing features.
-
-**How to Use Pixelied?**
-
-**Step 1:** Visit pixelied.com and click on the Upload Your Image option.
-
-**Step 2:** On the left, you will find tons of icons. Use the search bar and type emojis.
-
-**Step 3:** Browse through the emojis and click on one that you like. You can use multiple emojis, too, if you want. To save, click on the download option.
-
-## Part 2: How to Add Emojis to Photo on Wondershare Filmora
-
-[Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) provides tons of emojis that you can add for free, so you can add them to photos directly. What’s more, you can also upload your own emoji and use it in Filmora. All you need to do is download the tool on your Windows or Mac computer and start using it to add an emoji. There are two ways to go about it:
-
-### **Use Emojis from Elements**
-
-![add emoji to photo filmora](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-filmora.jpg)
-
-**Step 1:** Launch Wondershare Filmora and click on create a new project.
-
-**Step 2:** Click on the **Elements** option on the top and use the search bar to search for emojis.
-
-**Step 3:** Click on any of the emojis that you like and adjust them.
-
-**Step 4:** To save the photo with emojis, just click the camera icon to [take a screenshot](https://tools.techidaily.com/wondershare/filmora/download/).
-
-The video below shows the animated emojis that you can try in Filmora, take a look and have fun.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-### **Upload Your Own Emoji**
-
-**Step 1:** Launch Wondershare Filmora and add both the emoji and photo.
-
-**Step 2:** Drag both of them into the timeline.
-
-**Step 3:** Use the viewer panel to adjust the size of the emoji.
-
-![add your own emoji to photo](https://images.wondershare.com/filmora/article-images/add-your-own-emoji-to-photo.jpg)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-Besides adding emojis to photos or videos, you can also [add stickers to videos](https://tools.techidaily.com/wondershare/filmora/download/) in Filmora to have fun.
-
-## Conclusion
-
-And that's how you can **add** an **emoji to** a **photo online** easily. You can try all five websites to add emojis to your photos, and if you want, you can download Wondershare Filmora to further edit the image. So, try these tools and make your photo look fun and fantastic!
-
-02 [How to Add Emojis to Photo on Wondershare Filmora](#part2)
-
-## Part 1: Top 5 Websites to Add Emojis to Photo Online
-
-### #1: Kapwing
-
-![add emoji to photo online kapwing](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-kapwing.jpg)
-
-One of the best websites is Kapwing, which lets you add emojis to any photo you want. Kapwing is an easy-to-use online tool, which means you will not have to download any tool. But to start using it, you will have to sign up. You can do that by using your Google ID. When it comes to the number of emojis it has, it boasts more than 250 different emojis. It lets you add custom emojis; let's say you have a pack of custom emojis with you that you want to use; you can do that effortlessly.
-
-**Key Features**
-
-* It's an online tool and free to use.
-* You need to sign up to save your work.
-* It has more than 250 emojis to choose from.
-* Kapwing is easy to use.
-
-**Steps to Follow to Use Kapwing**
-
-**Step 1:** Visit the official website of Kapwing. You will see the Start Editing option; please click on that.
-
-**Step 2:** You will see the workspace with an option that says "click to upload." Click on it.
-
-**Step 3:** Now, upload a photo that you want to add the emoji too. The image will be uploaded.
-
-**Step 4:** To add an emoji, look towards the left menu, and you will see the Add Media option. Click on that.
-
-**Step 5:** You will see the upload, projects, and emojis options. Click on the emojis option.
-
-**Step 6:** Emojis will appear. Click on one, and it will be uploaded to the main photo. You can drag, shrink, zoom, or rotate the emoji used. You can add as many emojis you want.
-
-Related: [How to make a slo-mo video on Kapwing](https://tools.techidaily.com/wondershare/filmora/download/)
-
-### #2: Image Online.Co
-
-![add emoji to photo emoji image online](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-emoji-image-online.jpg)
-
-The next good online tool that you can try is Image Online.Co. It's a pretty basic tool that lets you upload a photo and add an emoji the right way. It has more than 100 emojis, which is not a lot. But features all the popular emojis that will suit all kinds of images. And it allows you to add your custom emojis, which is why people prefer to use Image Online.Co. Using it is very easy, and the interface of the online tool is easy to understand.
-
-**Key Features**
-
-* It is a 100% free online tool that won't ask you to sign up or log in.
-* The tool has 100+ emojis to choose from.
-* The interface is easy to understand.
-* The tool is easy to use.
-
-**Steps to Follow to Use Image Online.Co**
-
-**Step 1:** Visit <https://emoji.imageonline.co/>, which is their official website.
-
-**Step 2:** Click on the Select Photo option, else directly drop an image from your local folder.
-
-**Step 3:** If you want, you can add a custom emoji that you already have.
-
-**Step 4:** Add an emoji from the right menu and rotate or zoom in or zoom out.
-
-### #3: Canva
-
-![canva online add emoji to photo](https://images.wondershare.com/filmora/article-images/canva-online-add-emoji-to-photo.jpg)
-
-Canva is arguably one of the best ways to make your photos look better. This tool has tons of features, and the best part is that you can customize a picture with an emoji using one of their templates. It has 250+ emojis and lets you add your customized emoji. And to start using Canva, you will have to sign up.
-
-**Key Features**
-
-* Canva has more than 250 emojis.
-* It lets you edit your photos to enhance their quality.
-* One-month free trial.
-* You can choose from different templates.
-
-**Steps to Follow to Use Canva**
-
-**Step 1:** First, visit <https://www.canva.com/> and sign up using your Facebook account or Gmail.
-
-**Step 2:** Choose the kind of work you would like to do, and you will be taken to the photo editing page.
-
-**Step 3:** Upload an image and click on the more option.
-
-**Step 4:** Click on the emoji option and choose an emoji to add to the image. To save, click on the download option.
-
-Related: [How to Animate Pictures in Canva](https://tools.techidaily.com/wondershare/filmora/download/)
-
-### #4: PiZap
-
-![add emoji to photo online pizap](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pizap.jpg)
-
-PiZap is a photo editing tool that lets you add emojis too. To start using, you will have to log in or sign up. You can use your Facebook, Twitter, or Google account to sign up. It provides you with various graphics, fonts, and other photo editing features to make the image look better than before. The basic tool comes for free and has 232 emojis currently.
-
-**Key Features**
-
-* The basic tool comes for free.
-* There are numerous emojis to choose from.
-* The image quality doesn't lose its original quality.
-* Using the tool is easy, and the interface is intuitive.
-
-**Steps to Follow to Use PiZap**
-
-**Step 1:** Visit [www.pizap.com](http://www.pizap.com) and click on the try for free option.
-
-**Step 2:** Click on the edit photo option, and upload an image.
-
-**Step 3:** From the left-side toolbar, click on the Graphics option. Scroll a bit, and you will see the emoji section.
-
-**Step 4:** Click on any of the emojis you like to add to the photo. You can adjust the emojis as you want.
-
-### #5: Pixelied
-
-![add emoji to photo online pixelied](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pixelied.jpg)
-
-The last website that we have is Pixelied. The free tool will let you edit your image and add emojis, which will be enough if you don't want many features. Using the tool is easy, and the emojis Pixelied has are great. They are different than general emojis and look better! Plus, the tool provides 300+ fantastic emojis.
-
-**Key Features**
-
-* The tool has an excellent collection of emojis.
-* Adding emojis is extremely easy.
-* It is free to use and doesn't require any photo editing experience.
-* The tool also offers various photo editing features.
-
-**How to Use Pixelied?**
-
-**Step 1:** Visit pixelied.com and click on the Upload Your Image option.
-
-**Step 2:** On the left, you will find tons of icons. Use the search bar and type emojis.
-
-**Step 3:** Browse through the emojis and click on one that you like. You can use multiple emojis, too, if you want. To save, click on the download option.
-
-## Part 2: How to Add Emojis to Photo on Wondershare Filmora
-
-[Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) provides tons of emojis that you can add for free, so you can add them to photos directly. What’s more, you can also upload your own emoji and use it in Filmora. All you need to do is download the tool on your Windows or Mac computer and start using it to add an emoji. There are two ways to go about it:
-
-### **Use Emojis from Elements**
-
-![add emoji to photo filmora](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-filmora.jpg)
-
-**Step 1:** Launch Wondershare Filmora and click on create a new project.
-
-**Step 2:** Click on the **Elements** option on the top and use the search bar to search for emojis.
-
-**Step 3:** Click on any of the emojis that you like and adjust them.
-
-**Step 4:** To save the photo with emojis, just click the camera icon to [take a screenshot](https://tools.techidaily.com/wondershare/filmora/download/).
-
-The video below shows the animated emojis that you can try in Filmora, take a look and have fun.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-### **Upload Your Own Emoji**
-
-**Step 1:** Launch Wondershare Filmora and add both the emoji and photo.
-
-**Step 2:** Drag both of them into the timeline.
-
-**Step 3:** Use the viewer panel to adjust the size of the emoji.
-
-![add your own emoji to photo](https://images.wondershare.com/filmora/article-images/add-your-own-emoji-to-photo.jpg)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-Besides adding emojis to photos or videos, you can also [add stickers to videos](https://tools.techidaily.com/wondershare/filmora/download/) in Filmora to have fun.
-
-## Conclusion
-
-And that's how you can **add** an **emoji to** a **photo online** easily. You can try all five websites to add emojis to your photos, and if you want, you can download Wondershare Filmora to further edit the image. So, try these tools and make your photo look fun and fantastic!
-
-02 [How to Add Emojis to Photo on Wondershare Filmora](#part2)
-
-## Part 1: Top 5 Websites to Add Emojis to Photo Online
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+PiZap is a photo editing tool that lets you add emojis too. To start using, you will have to log in or sign up. You can use your Facebook, Twitter, or Google account to sign up. It provides you with various graphics, fonts, and other photo editing features to make the image look better than before. The basic tool comes for free and has 232 emojis currently.
+
+**Key Features**
+
+* The basic tool comes for free.
+* There are numerous emojis to choose from.
+* The image quality doesn't lose its original quality.
+* Using the tool is easy, and the interface is intuitive.
+
+**Steps to Follow to Use PiZap**
+
+**Step 1:** Visit [www.pizap.com](http://www.pizap.com) and click on the try for free option.
+
+**Step 2:** Click on the edit photo option, and upload an image.
+
+**Step 3:** From the left-side toolbar, click on the Graphics option. Scroll a bit, and you will see the emoji section.
+
+**Step 4:** Click on any of the emojis you like to add to the photo. You can adjust the emojis as you want.
+
+### #5: Pixelied
+
+![add emoji to photo online pixelied](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pixelied.jpg)
+
+The last website that we have is Pixelied. The free tool will let you edit your image and add emojis, which will be enough if you don't want many features. Using the tool is easy, and the emojis Pixelied has are great. They are different than general emojis and look better! Plus, the tool provides 300+ fantastic emojis.
+
+**Key Features**
+
+* The tool has an excellent collection of emojis.
+* Adding emojis is extremely easy.
+* It is free to use and doesn't require any photo editing experience.
+* The tool also offers various photo editing features.
+
+**How to Use Pixelied?**
+
+**Step 1:** Visit pixelied.com and click on the Upload Your Image option.
+
+**Step 2:** On the left, you will find tons of icons. Use the search bar and type emojis.
+
+**Step 3:** Browse through the emojis and click on one that you like. You can use multiple emojis, too, if you want. To save, click on the download option.
+
+## Part 2: How to Add Emojis to Photo on Wondershare Filmora
+
+[Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) provides tons of emojis that you can add for free, so you can add them to photos directly. What’s more, you can also upload your own emoji and use it in Filmora. All you need to do is download the tool on your Windows or Mac computer and start using it to add an emoji. There are two ways to go about it:
+
+### **Use Emojis from Elements**
+
+![add emoji to photo filmora](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-filmora.jpg)
+
+**Step 1:** Launch Wondershare Filmora and click on create a new project.
+
+**Step 2:** Click on the **Elements** option on the top and use the search bar to search for emojis.
+
+**Step 3:** Click on any of the emojis that you like and adjust them.
+
+**Step 4:** To save the photo with emojis, just click the camera icon to [take a screenshot](https://tools.techidaily.com/wondershare/filmora/download/).
+
+The video below shows the animated emojis that you can try in Filmora, take a look and have fun.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+### **Upload Your Own Emoji**
+
+**Step 1:** Launch Wondershare Filmora and add both the emoji and photo.
+
+**Step 2:** Drag both of them into the timeline.
+
+**Step 3:** Use the viewer panel to adjust the size of the emoji.
+
+![add your own emoji to photo](https://images.wondershare.com/filmora/article-images/add-your-own-emoji-to-photo.jpg)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Besides adding emojis to photos or videos, you can also [add stickers to videos](https://tools.techidaily.com/wondershare/filmora/download/) in Filmora to have fun.
+
+## Conclusion
+
+And that's how you can **add** an **emoji to** a **photo online** easily. You can try all five websites to add emojis to your photos, and if you want, you can download Wondershare Filmora to further edit the image. So, try these tools and make your photo look fun and fantastic!
+
+02 [How to Add Emojis to Photo on Wondershare Filmora](#part2)
+
+## Part 1: Top 5 Websites to Add Emojis to Photo Online
+
 ### #1: Kapwing
 
 ![add emoji to photo online kapwing](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-kapwing.jpg)
@@ -1808,12 +1647,194 @@ PiZap is a photo editing tool that lets you add emojis too. To start using, you 
 
 ![add emoji to photo online pixelied](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pixelied.jpg)
 
+The last website that we have is Pixelied. The free tool will let you edit your image and add emojis, which will be enough if you don't want many features. Using the tool is easy, and the emojis Pixelied has are great. They are different than general emojis and look better! Plus, the tool provides 300+ fantastic emojis.
+
+**Key Features**
+
+* The tool has an excellent collection of emojis.
+* Adding emojis is extremely easy.
+* It is free to use and doesn't require any photo editing experience.
+* The tool also offers various photo editing features.
+
+**How to Use Pixelied?**
+
+**Step 1:** Visit pixelied.com and click on the Upload Your Image option.
+
+**Step 2:** On the left, you will find tons of icons. Use the search bar and type emojis.
+
+**Step 3:** Browse through the emojis and click on one that you like. You can use multiple emojis, too, if you want. To save, click on the download option.
+
+## Part 2: How to Add Emojis to Photo on Wondershare Filmora
+
+[Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/) provides tons of emojis that you can add for free, so you can add them to photos directly. What’s more, you can also upload your own emoji and use it in Filmora. All you need to do is download the tool on your Windows or Mac computer and start using it to add an emoji. There are two ways to go about it:
+
+### **Use Emojis from Elements**
+
+![add emoji to photo filmora](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-filmora.jpg)
+
+**Step 1:** Launch Wondershare Filmora and click on create a new project.
+
+**Step 2:** Click on the **Elements** option on the top and use the search bar to search for emojis.
+
+**Step 3:** Click on any of the emojis that you like and adjust them.
+
+**Step 4:** To save the photo with emojis, just click the camera icon to [take a screenshot](https://tools.techidaily.com/wondershare/filmora/download/).
+
+The video below shows the animated emojis that you can try in Filmora, take a look and have fun.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+### **Upload Your Own Emoji**
+
+**Step 1:** Launch Wondershare Filmora and add both the emoji and photo.
+
+**Step 2:** Drag both of them into the timeline.
+
+**Step 3:** Use the viewer panel to adjust the size of the emoji.
+
+![add your own emoji to photo](https://images.wondershare.com/filmora/article-images/add-your-own-emoji-to-photo.jpg)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+Besides adding emojis to photos or videos, you can also [add stickers to videos](https://tools.techidaily.com/wondershare/filmora/download/) in Filmora to have fun.
+
+## Conclusion
+
+And that's how you can **add** an **emoji to** a **photo online** easily. You can try all five websites to add emojis to your photos, and if you want, you can download Wondershare Filmora to further edit the image. So, try these tools and make your photo look fun and fantastic!
+
+02 [How to Add Emojis to Photo on Wondershare Filmora](#part2)
+
+## Part 1: Top 5 Websites to Add Emojis to Photo Online
+
+### #1: Kapwing
+
+![add emoji to photo online kapwing](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-kapwing.jpg)
+
+One of the best websites is Kapwing, which lets you add emojis to any photo you want. Kapwing is an easy-to-use online tool, which means you will not have to download any tool. But to start using it, you will have to sign up. You can do that by using your Google ID. When it comes to the number of emojis it has, it boasts more than 250 different emojis. It lets you add custom emojis; let's say you have a pack of custom emojis with you that you want to use; you can do that effortlessly.
+
+**Key Features**
+
+* It's an online tool and free to use.
+* You need to sign up to save your work.
+* It has more than 250 emojis to choose from.
+* Kapwing is easy to use.
+
+**Steps to Follow to Use Kapwing**
+
+**Step 1:** Visit the official website of Kapwing. You will see the Start Editing option; please click on that.
+
+**Step 2:** You will see the workspace with an option that says "click to upload." Click on it.
+
+**Step 3:** Now, upload a photo that you want to add the emoji too. The image will be uploaded.
+
+**Step 4:** To add an emoji, look towards the left menu, and you will see the Add Media option. Click on that.
+
+**Step 5:** You will see the upload, projects, and emojis options. Click on the emojis option.
+
+**Step 6:** Emojis will appear. Click on one, and it will be uploaded to the main photo. You can drag, shrink, zoom, or rotate the emoji used. You can add as many emojis you want.
+
+Related: [How to make a slo-mo video on Kapwing](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### #2: Image Online.Co
+
+![add emoji to photo emoji image online](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-emoji-image-online.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+The next good online tool that you can try is Image Online.Co. It's a pretty basic tool that lets you upload a photo and add an emoji the right way. It has more than 100 emojis, which is not a lot. But features all the popular emojis that will suit all kinds of images. And it allows you to add your custom emojis, which is why people prefer to use Image Online.Co. Using it is very easy, and the interface of the online tool is easy to understand.
+
+**Key Features**
+
+* It is a 100% free online tool that won't ask you to sign up or log in.
+* The tool has 100+ emojis to choose from.
+* The interface is easy to understand.
+* The tool is easy to use.
+
+**Steps to Follow to Use Image Online.Co**
+
+**Step 1:** Visit <https://emoji.imageonline.co/>, which is their official website.
+
+**Step 2:** Click on the Select Photo option, else directly drop an image from your local folder.
+
+**Step 3:** If you want, you can add a custom emoji that you already have.
+
+**Step 4:** Add an emoji from the right menu and rotate or zoom in or zoom out.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### #3: Canva
+
+![canva online add emoji to photo](https://images.wondershare.com/filmora/article-images/canva-online-add-emoji-to-photo.jpg)
+
+Canva is arguably one of the best ways to make your photos look better. This tool has tons of features, and the best part is that you can customize a picture with an emoji using one of their templates. It has 250+ emojis and lets you add your customized emoji. And to start using Canva, you will have to sign up.
+
+**Key Features**
+
+* Canva has more than 250 emojis.
+* It lets you edit your photos to enhance their quality.
+* One-month free trial.
+* You can choose from different templates.
+
+**Steps to Follow to Use Canva**
+
+**Step 1:** First, visit <https://www.canva.com/> and sign up using your Facebook account or Gmail.
+
+**Step 2:** Choose the kind of work you would like to do, and you will be taken to the photo editing page.
+
+**Step 3:** Upload an image and click on the more option.
+
+**Step 4:** Click on the emoji option and choose an emoji to add to the image. To save, click on the download option.
+
+Related: [How to Animate Pictures in Canva](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### #4: PiZap
+
+![add emoji to photo online pizap](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pizap.jpg)
+
+PiZap is a photo editing tool that lets you add emojis too. To start using, you will have to log in or sign up. You can use your Facebook, Twitter, or Google account to sign up. It provides you with various graphics, fonts, and other photo editing features to make the image look better than before. The basic tool comes for free and has 232 emojis currently.
+
+**Key Features**
+
+* The basic tool comes for free.
+* There are numerous emojis to choose from.
+* The image quality doesn't lose its original quality.
+* Using the tool is easy, and the interface is intuitive.
+
+**Steps to Follow to Use PiZap**
+
+**Step 1:** Visit [www.pizap.com](http://www.pizap.com) and click on the try for free option.
+
+**Step 2:** Click on the edit photo option, and upload an image.
+
+**Step 3:** From the left-side toolbar, click on the Graphics option. Scroll a bit, and you will see the emoji section.
+
+**Step 4:** Click on any of the emojis you like to add to the photo. You can adjust the emojis as you want.
+
+### #5: Pixelied
+
+![add emoji to photo online pixelied](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pixelied.jpg)
 
 The last website that we have is Pixelied. The free tool will let you edit your image and add emojis, which will be enough if you don't want many features. Using the tool is easy, and the emojis Pixelied has are great. They are different than general emojis and look better! Plus, the tool provides 300+ fantastic emojis.
 
@@ -2008,13 +2029,6 @@ Be it any video on any social media platform or your local device, with this tho
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -2039,13 +2053,6 @@ Performing basic video editing tasks like cutting or trimming the footage, choos
 
 Filmora is free to download. Import your videos after you launch the software, you then can add any animated emojis into wherever you want. Have a try now! Emojis inside are so Cute ![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Add Emojis to YouTube Videos?
 
 You can now add emojis to any of the YouTube videos using an online free tool called Kapwing.
@@ -2059,13 +2066,6 @@ Below are the basic steps about how to add emojis to YouTube videos anywhere usi
 **Step 3:** One of the ways to insert emoji using Kapwing is to directly upload an emoji having a transparent background. In the toolbar, click on “upload” and paste its URL there. The image will be placed onto the targeted video as an overlay by importing it. Another way to add emoji is to click “add text” where you will have options to insert emojis.
 
 ![how to add emojis to youtube videos](https://images.wondershare.com/filmora/article-images/add-emojis-to-video-on-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 4:** You can now play around with editing options in Kapwing to adjust accordingly.
 
@@ -2481,6 +2481,13 @@ Install the software and import your digital photos to the storyboard by clickin
 
 ![make a slideshow with music](https://images.wondershare.com/images/wedding/wedding-dvd-slideshow-add-files.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2\. Add music to your photo slideshow
 
 Go to the "Personalize" tab. Click "Music" toolbar to add background music or just drag the music to the background track. In the timeline, you can drag the slider to make the music best suit the photos and videos. If you need to edit the music, double click the clip and in the pop up window, trim music and adjust music volume as you like.
@@ -2585,13 +2592,6 @@ Install the software and import your digital photos to the storyboard by clickin
 
 ![make a slideshow with music](https://images.wondershare.com/images/wedding/wedding-dvd-slideshow-add-files.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2\. Add music to your photo slideshow
 
 Go to the "Personalize" tab. Click "Music" toolbar to add background music or just drag the music to the background track. In the timeline, you can drag the slider to make the music best suit the photos and videos. If you need to edit the music, double click the clip and in the pop up window, trim music and adjust music volume as you like.
@@ -2673,6 +2673,13 @@ You can choose background music or sound effect from the inbuilt audio library i
 Finally, it’s time to save and export the music slideshow as you see fit. You have several options, you can save it on the computer in different formats, or you can share it to YouTube or Vimeo directly, or you can burn it to DVD.
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Why choose Filmora to create music slideshow?
 
@@ -2867,13 +2874,6 @@ Let me show you how to add Slack emoji in a few quick steps:
 1.Download and open Slack on your desktop or smartphone.
 
 ![Open And Launch Slack](https://images.wondershare.com/filmora/article-images/open-and-launch-slack.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2.To add a Slack emoji, click on the Smiley face icon in the bottom right corner of the message box
 
@@ -3233,17 +3233,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/raft-the-perfect-thumbnail-top-9-budget-friendly-tools-for-2024/"><u>[New] Craft the Perfect Thumbnail Top 9 Budget-Friendly Tools for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/uided-approach-to-saving-exact-youtube-segments-for-2024/"><u>[New] Guided Approach to Saving Exact YouTube Segments for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-essential-guide-to-aiseesofts-screencasting-features-for-2024/"><u>[Updated] Essential Guide to Aiseesoft's Screencasting Features for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-superior-strategies-converting-visual-content-on-pinterest-to-audio/"><u>[Updated] In 2024, Superior Strategies Converting Visual Content on Pinterest To Audio</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-a-funny-meme-on-macbook/"><u>2024 Approved How to Make a Funny Meme on MacBook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-step-by-step-guide-to-hilarious-memes/"><u>2024 Approved Step-by-Step Guide to Hilarious Memes</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/an-eye-for-the-extraordinary-aminys-ufo-analysis/"><u>An Eye for the Extraordinary: Aminy's UFO Analysis</u></a></li>
-<li><a href="https://change-location.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-10-most-popular-minion-memes-that-moms-are-crazy-about/"><u>New 2024 Approved 10 Most Popular Minion Memes that Moms Are Crazy About</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-video-meme-with-4-best-meme-video-makers-for-2024/"><u>New How to Make a Video Meme with 4 Best Meme Video Makers for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/troubleshooting-apple-watchs-cellular-connection-solutions-and-tips/"><u>Troubleshooting Apple Watch's Cellular Connection: Solutions and Tips</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-generating-the-nut-button-meme-for-2024/"><u>Updated Generating the Nut Button Meme for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unlocking-efficiency-the-top-5-video-shortener-tools/"><u>[Updated] In 2024, Unlocking Efficiency The Top 5 Video Shortener Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-leveraging-social-media-insights-in-market-research/"><u>[Updated] Leveraging Social Media Insights in Market Research</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-vanguard-visualization-top-devices-for-4k-video-editing-maestros/"><u>[Updated] Vanguard Visualization Top Devices for 4K Video Editing Maestros</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-best-meme-makers-online-free-to-use-for-2024/"><u>10 Best Meme Makers Online (Free to Use) for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/high-end-psd-lighting-tweaks-for-2024/"><u>High-End PSD Lighting Tweaks for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/hitting-the-high-score-in-ps4-game-capture-mastery/"><u>Hitting the High Score in PS4 Game Capture Mastery</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-record-your-memorable-honeymoon-video/"><u>In 2024, How to Record Your Memorable Honeymoon Video</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-honor-magic-vs-2-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Honor Magic Vs 2 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-oppo-reno-11f-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Oppo Reno 11F 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-making-triggered-memes-with-filmora-video-editor/"><u>New 2024 Approved Making Triggered Memes with Filmora Video Editor</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-7-free-apps-to-get-emojis-on-android-and-iphone-for-2024/"><u>New 7 Free Apps to Get Emojis on Android and iPhone for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-top-12-best-meme-makers-online-for-free-for-2024/"><u>New Top 12 Best Meme Makers Online for FREE for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself-for-2024/"><u>Updated How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/windows-11-enhances-convenience-seamlessly-connect-and-control-your-smartphone-directly-from-the-start-menu/"><u>Windows 11 Enhances Convenience: Seamlessly Connect and Control Your Smartphone Directly From the Start Menu</u></a></li>
 </ul></div>
 

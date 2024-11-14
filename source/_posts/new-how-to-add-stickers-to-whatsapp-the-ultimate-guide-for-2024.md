@@ -1,7 +1,7 @@
 ---
 title: New How to Add Stickers to WhatsApp-The Ultimate Guide for 2024
-date: 2024-11-01T02:11:02.813Z
-updated: 2024-11-03T20:56:25.421Z
+date: 2024-11-08T16:38:01.235Z
+updated: 2024-11-14T03:44:58.037Z
 tags: 
   - ai
   - animation videos
@@ -98,6 +98,13 @@ If you wish you get more exciting stickers to better express yourself-
 
 ![Display Whatsapp Sticker](https://images.wondershare.com/filmora/article-images/display-whatsapp-sticker.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Other features:
 
 * Clock sign- This sign has all the stickers you recently used
@@ -338,16 +345,16 @@ Sticker Make for Whatsapp is one such app. It is free and requires no registrati
 
 ![Download Sticker Make App](https://images.wondershare.com/filmora/article-images/download-sticker-make-app.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2\. Choose any image from your gallery. Crop it to the size and shape you wish to include. Use the Freehand tool or click Automatically to let the app crop a face itself.
 
 ![Use Freehand Tool](https://images.wondershare.com/filmora/article-images/use-freehand-tool.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. Click Next and now erase the background or make careful cropping.
 
@@ -389,6 +396,13 @@ If you wish you get more exciting stickers to better express yourself-
 
 ![Click Square Shape](https://images.wondershare.com/filmora/article-images/click-square-shape.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Tap on the + sign on the upper right corner of your keyboard.
 * Here you choose to download any number of sticker packs or click Get More Stickers from Google Play.
 
@@ -406,13 +420,6 @@ Other features:
 * Heart- In this, there are several categories. Whatsapp automatically arranges all your stickers in these categories as happy, sad, romantic, etc.
 
 ![Sticker Category](https://images.wondershare.com/filmora/article-images/sticker-category.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Send Stickers on WhatsApp
 
@@ -543,13 +550,6 @@ If you wish you get more exciting stickers to better express yourself-
 
 ![Click Square Shape](https://images.wondershare.com/filmora/article-images/click-square-shape.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Tap on the + sign on the upper right corner of your keyboard.
 * Here you choose to download any number of sticker packs or click Get More Stickers from Google Play.
 
@@ -603,13 +603,6 @@ Let’s get right to it:
 3\. Double-click on the sticker in the timeline to adjust the additional parameters. In **Video**, you can adjust the size or rotation of the sticker. Tap **Color** to adjust the tint, temperature, or saturation of the sticker. You can also add 3D motion to the sticker in the **Motion**.
 
 ![Adjust Sticker](https://images.wondershare.com/filmora/article-images/adjust-sticker-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4\. And in the viewer panel, click on the sticker and drag it to adjust the size or change the location.
 
@@ -678,6 +671,13 @@ After launching iMovie, click the Project button and then click Create New. Sele
 Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
 
 ![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 3. Arrange Media in Timeline and Adjust
 
@@ -1099,338 +1099,338 @@ Although emojis are present in some form or the other since the mid-‘90s, they
 
 With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
 
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
 
 * From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
 
@@ -1567,13 +1567,6 @@ Follow @Ollie Mattison
  \="" style="width: 100%; height: 278.438px;";
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Adjust saturation** \- You should try to use the app in order to adjust the saturation as this can lead to some very bad results if you’re not careful. Find the proper saturation levels and opt for them right away.
 
@@ -1727,6 +1720,13 @@ Copy the image
  The Edit Your Image window will pop up on the screen if you decide to upload the template from a compute, so you can just drag one of the handles to crop it. If you want, you can rotate or flip the picture, before you hit the OK button.
 
 ![](https://images.wondershare.com/filmora/article-images/crop-sponge-bob-meme.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 2 – Adding Text to the Meme
 
@@ -1966,6 +1966,13 @@ Follow @Ollie Mattison
 
 ![Burn photos to dvd](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2. Customize Photo Slideshow Transitions
 
  Generally speaking, transition effects will be automatically inserted between every two photos/videos when you import the photos. But you can customize them by clicking the Personalize tab, then drag and drop a transition from the list to the thumbnail between two slides.
@@ -2022,6 +2029,13 @@ Follow @Ollie Mattison
  Scanning printed photos to computer is not an easy job. It needs patience and some tips and tricks. As you may know, some companies provide photo scanning service. For the Step 4, you can also adjust digital photos in your selected **photo DVD maker**. Anyway, you need to get your digital photos ready before you **burn photos to DVD** with transitions and music.
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -2062,13 +2076,6 @@ Follow @Shanoon Cox
 
 ![Burn photos to dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 3. Choose DVD Menu
 
  Now switch to Create tab to author a DVD menu from template and burn to DVD disc quickly:
@@ -2117,13 +2124,6 @@ Follow @Shanoon Cox
  Scanning printed photos to computer is not an easy job. It needs patience and some tips and tricks. As you may know, some companies provide photo scanning service. For the Step 4, you can also adjust digital photos in your selected **photo DVD maker**. Anyway, you need to get your digital photos ready before you **burn photos to DVD** with transitions and music.
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -2327,21 +2327,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-making-memorable-impressions-with-fb-slideshow-features/"><u>[New] 2024 Approved Making Memorable Impressions with FB Slideshow Features</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-9-must-play-screen-free-apps-for-offline-android-enthusiasts/"><u>[New] 9 Must-Play Screen-Free Apps for Offline Android Enthusiasts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-art-of-filter-selection-on-instagram-for-2024/"><u>[New] Mastering the Art of Filter Selection on Instagram for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-simplescreensaver-easy-app-for-windows-10-for-2024/"><u>[Updated] SimpleScreenSaver Easy App for Windows 10 for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/effortlessly-merge-your-memories-photos-from-iphone-to-snapchat/"><u>Effortlessly Merge Your Memories Photos From iPhone to Snapchat</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/elevate-gaming-performance-with-the-latest-dell-g3-driver-update/"><u>Elevate Gaming Performance with the Latest Dell G3 Driver Update</u></a></li>
-<li><a href="https://win-latest.techidaily.com/freiheit-von-kosten-erfolgreich-defekte-profils-anpassen-unter-windows-7-11/"><u>Freiheit Von Kosten: Erfolgreich Defekte Profils Anpassen Unter Windows 7-11</u></a></li>
-<li><a href="https://games-able.techidaily.com/friendly-fire-top-cross-device-games-to-bond-over/"><u>Friendly Fire? Top Cross-Device Games to Bond Over</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-add-stickers-to-whatsapp-the-ultimate-guide-for-2024/"><u>How to Add Stickers to WhatsApp-The Ultimate Guide for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-use-emojis-on-windows-10-and-windows-11-for-2024/"><u>How to Use Emojis on Windows 10 and Windows 11 for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-record-and-edit-an-animoji-or-memoji-karaoke-music-video/"><u>In 2024, Record and Edit an Animoji or Memoji Karaoke Music Video</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-top-10-new-recording-solutions-that-excel-beyond-fbx-limits/"><u>In 2024, Top 10 New Recording Solutions That Excel Beyond FBX Limits</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-triggered-meme-in-2024/"><u>New How to Make a Triggered Meme, In 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-is-this-a-pigeon-meme-generator-for-2024/"><u>New Is This a Pigeon Meme Generator for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-bitmoji-to-keyboard-complete-guide-for-2024/"><u>Updated How to Add Bitmoji to Keyboard? Complete Guide for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-photo-collage-using-iphoto/"><u>Updated How to Make a Photo Collage Using iPhoto?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-internet-jesters-arsenal/"><u>[New] 2024 Approved Internet Jester's Arsenal</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-advancing-photo-quality-on-snapchat-via-zoom/"><u>[New] Advancing Photo Quality on Snapchat via Zoom</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-live-action-anytime-anywhere-our-ultimate-12-stream-service/"><u>[Updated] Live Action Anytime, Anywhere - Our Ultimate 12-Stream Service</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-best-free-websites-to-watch-cartoons-online/"><u>10 Best Free Websites to Watch Cartoons Online</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-list-for-choosing-your-camera-and-gear/"><u>2024 Approved The Ultimate List for Choosing Your Camera & Gear</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/abbyy-one-global-network-of-new-business-partners-with-advanced-transactional-capabilities/"><u>Abbyy One - Global Network of New Business Partners with Advanced Transactional Capabilities</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/add-emojis-to-videos-on-youtubefacebooksnapchat-step-by-step-guide-for-2024/"><u>Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/ascending-with-aerial-artistry-9-top-editors-for-diverse-levels-for-2024/"><u>Ascending with Aerial Artistry 9 Top Editors For Diverse Levels for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-poco-x5-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/functionality-evaluation-the-battery-variant-of-the-popular-google-wireless-nest-doorbell/"><u>Functionality Evaluation: The Battery Variant of the Popular Google Wireless Nest Doorbell</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/icloud-unlocker-download-unlock-icloud-lock-for-your-iphone-6s-plus-by-drfone-ios/"><u>iCloud Unlocker Download Unlock iCloud Lock for your iPhone 6s Plus</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-imovie-photo-slideshow-with-music-for-2024/"><u>New How to Make a iMovie Photo Slideshow with Music for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-record-and-edit-an-animoji-or-memoji-karaoke-music-video/"><u>New How to Record and Edit an Animoji or Memoji Karaoke Music Video?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-memoji-talk-make-memoji-video-on-your-own/"><u>New In 2024, How to Make Memoji Talk-Make Memoji Video On Your Own</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-10-most-popular-minion-memes-that-moms-are-crazy-about-for-2024/"><u>Updated 10 Most Popular Minion Memes that Moms Are Crazy About for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-add-bitmoji-to-keyboard-complete-guide/"><u>Updated 2024 Approved How to Add Bitmoji to Keyboard? Complete Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-an-adorable-video-for-your-babys-first-year/"><u>Updated How to Make an Adorable Video for Your Babys First Year</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-what-is-emoji-in-2024/"><u>Updated What Is Emoji, In 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/voice-controlled-navigating-of-advanced-ai-systems-chatgpt/"><u>Voice-Controlled Navigating of Advanced AI Systems (ChatGPT)</u></a></li>
 </ul></div>
 

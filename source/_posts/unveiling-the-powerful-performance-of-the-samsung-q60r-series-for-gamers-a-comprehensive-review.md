@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Powerful Performance of the Samsung Q60R Series for Gamers - A Comprehensive Review
-date: 2024-11-09T05:53:35.922Z
-updated: 2024-11-12T23:39:16.538Z
+date: 2024-11-10T02:29:16.403Z
+updated: 2024-11-14T01:31:59.816Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Powerful Performance of the Samsung Q60R Series for Gamers - A Comprehensive Review
@@ -46,10 +46,10 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/wlG_GrSmQPVex-VRt3ap4hsTP-s=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
@@ -77,13 +77,6 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
@@ -105,6 +98,13 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -145,16 +145,10 @@ Lifewire / Jeremy Laukkonen
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Storage: Disappointingly shallow, so bring your USB drive**
@@ -172,10 +166,10 @@ Lifewire / Jeremy Laukkonen
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
@@ -191,13 +185,6 @@ Lifewire / Jeremy Laukkonen
  When connected via Ethernet, the Series S reported 880Mbps down and 65Mbps up on the network status screen. That’s right on the money in terms of what I see directly at my Eero router. Actual download speeds topped out at 500Mbps and typically hung out between 270 and 320Mbps.
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software and User Interface: Familiar and cozy**
 
@@ -233,6 +220,13 @@ Lifewire / Jeremy Laukkonen
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Xbox Series S vs. PS5 Digital**
 
  This comparison is a bit of an unfair fight because Microsoft and Sony took entirely different approaches when designing their lower-priced console options. Microsoft cut back on hardware to offer an incredibly low price point, while Sony removed the optical drive. The result is that the PS5 Digital blows the Xbox Series S out of the water in terms of graphics and performance, but they aren’t even in the same time zone in terms of price.
@@ -247,6 +241,13 @@ Lifewire / Jeremy Laukkonen
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 [Xbox Series X Review](https://www.lifewire.com/microsoft-xbox-series-x-review-one-power-packed-4k-console-5088039)
@@ -256,13 +257,6 @@ Lifewire / Jeremy Laukkonen
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
 
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -296,19 +290,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-navigating-earnings-skyward-youtube-analytics-and-advertising-guide/"><u>[New] Navigating Earnings Skyward YouTube Analytics & Advertising Guide</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-the-role-and-design-of-instagram-story-segments/"><u>[Updated] In 2024, The Role and Design of Instagram Story Segments</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/10-free-online-sticker-makers-to-make-your-own-stickers/"><u>10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-step-up-your-stream-simultaneous-views-on-one-screen/"><u>2024 Approved Step Up Your Stream Simultaneous Views on One Screen</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/guide-addressing-and-fixing-the-detected-audio-configuration-problem-in-itunes/"><u>Guide: Addressing and Fixing the Detected Audio Configuration Problem in iTunes</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-12-pro-max-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 12 Pro Max Without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-motorola-defy-2-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Motorola Defy 2 to Outlook | Dr.fone</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/hyper-v-setup-on-windows-server-2019-three-simple-methods-explored/"><u>Hyper-V Setup on Windows Server 2019: Three Simple Methods Explored</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-distracted-boyfriend-meme-generator/"><u>In 2024, Distracted Boyfriend Meme Generator</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-release-nvidia-quadro-rtx-8000-drivers-tailored-for-windows-1087-systems/"><u>Latest Release: Nvidia Quadro RTX 8000 Drivers Tailored for Windows 10/8/7 Systems</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-10-best-work-memes-to-have-fun-in-work-days/"><u>New In 2024, 10 Best Work Memes to Have Fun in Work Days</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-10-best-work-memes-to-have-fun-in-work-days-for-2024/"><u>Updated 10 Best Work Memes to Have Fun in Work Days for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-10-emoji-makers-to-create-your-own-emojis-pconlineandroidiphone/"><u>Updated In 2024, Best 10 Emoji Makers to Create Your Own Emojis PC/Online/Android/iPhone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-top-12-best-meme-makers-online-for-free/"><u>Updated In 2024, Top 12 Best Meme Makers Online for FREE</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-whatsapp-expertise-essential-tips-and-tricks-for-proficiency/"><u>[Updated] WhatsApp Expertise Essential Tips and Tricks for Proficiency</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-sifting-through-media-options-vlc-versus-mx/"><u>2024 Approved Sifting Through Media Options VLC Versus MX</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/6-popular-animated-emoji-video-effects-for-2024/"><u>6 Popular Animated Emoji Video Effects for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/beat-the-crimson-glitch-fixing-common-windows-10-display-issues/"><u>Beat the Crimson Glitch: Fixing Common Windows 10 Display Issues</u></a></li>
+<li><a href="https://some-skills.techidaily.com/expert-data-sanitization-software-stellar-file-eraser-5-with-preset-windows-configurations-and-efficient-scheduling-options/"><u>Expert Data Sanitization Software: Stellar File Eraser 5 with Preset Windows Configurations and Efficient Scheduling Options</u></a></li>
+<li><a href="https://network-issues.techidaily.com/how-to-fix-a-youtube-video-that-wont-play-a-step-by-step-guide/"><u>How to Fix a YouTube Video That Won't Play: A Step-by-Step Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-windows-updates-hanging-endlessly-at-100/"><u>How to Fix Windows Updates Hanging Endlessly at 100%</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/maximizing-productivity-with-your-logitech-mx-master-a-complete-software-guide/"><u>Maximizing Productivity with Your Logitech MX Master - A Complete Software Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-wonderful-video-slideshow-with-your-travel-photos/"><u>New How to Make a Wonderful Video Slideshow with Your Travel Photos</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-best-photo-slideshow-maker-how-to-make-a-photo-slideshow-2023-update/"><u>New In 2024, Best Photo Slideshow Maker How to Make a Photo Slideshow 2023 Update</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>New In 2024, How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revolutionize-remote-employment-six-innovative-ways-to-integrate-chatgpt-into-your-freelance-career/"><u>Revolutionize Remote Employment: Six Innovative Ways to Integrate ChatGPT Into Your Freelance Career</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/unmute-yourself-from-frustration-resolving-sound-issues-during-pc-based-zoom-sessions/"><u>Unmute Yourself From Frustration: Resolving Sound Issues During PC-Based Zoom Sessions</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-a-imovie-photo-slideshow-with-music-imovie-tutorial/"><u>Updated 2024 Approved How to Make a iMovie Photo Slideshow with Music? IMovie Tutorial</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-generating-the-nut-button-meme/"><u>Updated Generating the Nut Button Meme</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-use-emojis-on-windows-10-and-windows-11-in-2024/"><u>Updated How to Use Emojis on Windows 10 and Windows 11, In 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-use-emojis-on-windows-10-and-windows-11/"><u>Updated In 2024, How to Use Emojis on Windows 10 and Windows 11?</u></a></li>
 </ul></div>
 
