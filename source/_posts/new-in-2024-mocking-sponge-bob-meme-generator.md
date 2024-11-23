@@ -1,7 +1,7 @@
 ---
 title: New In 2024, Mocking Sponge Bob Meme Generator
-date: 2024-11-11T22:13:08.086Z
-updated: 2024-11-13T23:05:01.589Z
+date: 2024-11-18T21:39:12.217Z
+updated: 2024-11-23T22:25:52.719Z
 tags: 
   - ai
   - animation videos
@@ -494,6 +494,10 @@ The following will introduce how to use the iPhoto collage maker on Mac or iPhon
 * **[Part 1: How to Make a Photo Collage in iPhoto?](#part1)**
 * **[Part 2: What Replaces iPhoto on Mac/iPhone?](#part2)**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Make a Photo Collage in iPhoto?
 
 Here are the quick steps to create a photo collage with iPhoto.
@@ -662,6 +666,10 @@ So, in this article, we have come up with 10 funniest subreddits to make you lau
 
 ## 10 Funniest Subreddits to Find Memes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. /r/AdviceAnimals
 
 On 7th December 2010, the /r/AdviceAnimals subreddit was created. It is simple and straight to understand. Advice Animals was firstly a memes category that showed memes like a business cat wearing a coat and tie or socially awkward penguin lacking confidence with some message or awful advice placed over the image.
@@ -711,19 +719,6 @@ For instance, when the star war movie is about to start at 7.45 and at 7.40 you 
 /r/terriblefacebookmemes is one of the funniest subreddits as it is a mixture of terribly shitty memes with various suggestions of granny-types. With around 216k subscribers, /r/terriblefacebookmemes is funny yet, relates to some old-fashioned ideas. For instance, a man thinking if the sun is said to be in space, why space doesn't have light and the earth instead has it?
 
 ![terriblefacebookmemes](https://images.wondershare.com/filmora/article-images/terriblefacebookmemes.JPG)
-
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8. /r/PewdiepieSubmissions
 
@@ -997,6 +992,10 @@ Here's how to create an awesome custom Slack emoji-
 
 ![Slack Custom Settings](https://images.wondershare.com/filmora/article-images/slack-custom-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2.A new window will pop open. In the **Emoji** tab, click on **Add Custom Emoji.**
 
 ![Add Custom Slack Emoji](https://images.wondershare.com/filmora/article-images/add-custom-slack-emoji.jpg)
@@ -1012,6 +1011,10 @@ Here's how to create an awesome custom Slack emoji-
 5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
 
 ![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus Tip-Edit Emoji and Add Emoji to Your Video
 
@@ -1076,6 +1079,10 @@ Let me show you how to add Slack emoji in a few quick steps:
 4.Click on the Hand icon in the bottom right corner to choose the default skin tone for all your emojis. Finally, to add Slack emoji to your message, just tap on it. Add as many Slack emoji as you like just by tapping on them.
 
 ![Tap And Send Slack Emoji](https://images.wondershare.com/filmora/article-images/tap-and-send-slack-emoji.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Custom Slack Emoji
 
@@ -1193,13 +1200,6 @@ Here's how to create an awesome custom Slack emoji-
 
 ![Name Slack Emoji](https://images.wondershare.com/filmora/article-images/name-slack-emoji.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
 
 ![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
@@ -1288,13 +1288,6 @@ Here's how to create an awesome custom Slack emoji-
 
 ![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 4.Then, give your emoji a name so you can easily find the custom Slack emoji while chatting. Click **Save** to finish.
 
 ![Name Slack Emoji](https://images.wondershare.com/filmora/article-images/name-slack-emoji.jpg)
@@ -1312,13 +1305,6 @@ Wondershare Filmora is a powerful video editor with a highly intuitive interface
 If you wish to edit or add custom Slack emoji to your video, you can import the image to Filmora and then drag it to the track above the video in the timeline. You can then add animations or motion tracking to adjust the custom Slack emoji. Cool transitions and color adjustments can also be made to make the video more appealing and unique. Special effects or catchy captions are just a tap away to help you create stunning videos
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -1474,6 +1460,10 @@ Since you have learned how to create a Bimoji, it’s time to learn the steps to
 
 ![iphone keyboard option](https://images.wondershare.com/filmora/article-images/iphone-keyboard-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** When the Keyboard page opens, click on the option that says Keyboards and then click on Add New Keyboard.
 
 **Step 4:** You will see the Third Party Keyboards option. There, you need to click on Bitmoji.
@@ -1498,6 +1488,10 @@ Bitmoji is available for Android users as well. Before you begin to use it, go t
 
 You are all done. Now, use the Bitmoji keyboard to chat with your family members and friends and make everything fun and exciting.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Install and Use Bitmoji on Windows and Mac?
 
 If you want to use Bitmoji on Windows and Mac, you will have to use the Google Chrome browser. If you already have the Google Chrome browser, carry on with the steps explained below; otherwise, get the browser before starting.
@@ -1511,13 +1505,6 @@ If you want to use Bitmoji on Windows and Mac, you will have to use the Google C
 ![add bitmoji to gmail](https://images.wondershare.com/filmora/article-images/add-bitmoji-to-gmail.jpg)
 
 After you are done following the three easy steps, you will see Bitmoji is installed. To start using it, move the cursor to the upper corner of the browser and click on the Bitmoji icon. Next, you will see the Bitmojis. Choose any Bitmoji, copy it, and paste it on Gmail or instant messaging applications.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: Where can You Use Bitmoji?
 
@@ -1786,102 +1773,9 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 
 ![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
 
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: What’s New in Emojis in Windows 11
 
@@ -1971,98 +1865,192 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 * From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
 
 ![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
 
 ## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
 
@@ -2196,13 +2184,6 @@ Follow the steps below for either platform:
 
 ![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
 
@@ -2333,380 +2314,377 @@ As an owner of a Discord channel, it is easy for you to add emoji to Discord. Fo
 * Select "Save Changes" to save the name with the emoji.
 
 ![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
-
-## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
-
-You can add custom emoji on Discord, but only if you are a server owner or administrator. Use the Discord server settings on either the desktop versions for Windows or Mac or the Discord Website.
-
-Follow the steps below for either platform:
-
-* Access your Discord server to begin and press the arrow pointing down in the channel list with the server name—Press "Server Settings" in the menu
-
-![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/discord-server-settings.jpg)
-
-* As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
-
-![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
-
-* Select "Upload Emoji" to insert a custom emoji, either standard or animated
-* With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
-
-![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
-
-* For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
-* A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
-* Enjoy your emoji in chats as soon as you upload them to the Discord server!
-
-Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
-
-## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
-
-How cool is it that you can add custom emoji to your smartphone as well? Whether you have an iPhone or an Android, you can use the same menu as Windows and Mac to upload emoji.
-
-Discord's interface is similar across all devices, so the following steps work on Android and Apple.
-
-* Begin by opening the app on your device to access the server. Press the hamburger menu located at the top left in an open server and channel.
-
-![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/open-discord-channel-settings.jpg)
-
-* As the channel and server list opens for Discord, you can see a three-dot menu right next to the channel list with the server name. Tap on it to proceed.
-* To get to your server settings, press "Settings" in the Discord server menu that shows up.
-* Under the "Server Settings" menu, select "Emoji" to access the custom emoji settings.
-* As the "Emoji" menu opens, you can see an emoji requirement list
-* Press "Upload Emoji" to upload any emoji that aligns with these requirements
-* Press the custom emoji file, tap "Crop" if it needs cropping, and then use the "Upload" option
-* After you upload the emoji file, replace the alias tag by tapping on it. This will redirect you to that specific emoji's settings
-* Type the name you want using the "Alias" box to create the tag used to insert emoji in messages
-* Save this new tag with the "Save" icon placed in the bottom right
-* Any changes you make to the custom emoji's alias are applied to it instantly for your use.
-
-Emoji bring fun to the conversations you have with friends, and it is very easy to add them to your server as well. These show up in the emoji pop-up list once you add them. The chat message bar contains the emoji icon from where you can access them.
-
-It is essential to name your emoji with only alphanumeric characters and underscores using at least two characters.
-
-The Discord emoji size is 32x32 pixels, so even if you upload up to 128x128 pixel size emojis, they will be resized to the default dimensions. Furthermore, emoji file sizes are at most 256kb.
-
-If you want to use custom emojis, you can't do so without a Nitro subscription because it is only functional on the server they are uploaded to. Even if you find a way to access the emoji from some other server, only its text code will be visible.
-
-If you attempt to use the Emoji Picker to pick an emoji, you'll get the following message:
-
-## Bonus: How to Manage Emoji in Discord Server?
-
-You can't remove or add emoji specific to a server on your own as a member. You need the server owner to toggle the permission of Manager Emoji in your domain.
-
-On the other hand, as a server owner, you can give others this role with the following steps.
-
-* **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
-* **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
-
-## FAQs About Discord Emojis
-
-### 1\. Why Do I See Grey Emoji In The Emoji Menu?
-
-Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
-
-![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
-
-### 2\. How Can I Get More Custom Emoji On The Server?
-
-You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
-
-### 3\. What Is The Discord Emoji Size?
-
-Discord allows you to upload an emoji of up to 128x128 pixels, but it will resize it to 32x32 since that is its standard size.
-
-**Conclusion**
-
-Emojis make any chat fun, and where gaming is involved, they help you communicate better with your friends.
-
-Discord has thousands of custom emojis that you can easily add to your server through your computer, whether it is your chat or the channel name. Follow our guide for a seamless process to add emoji to Discord and make your gaming experience better!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-Who doesn't like emoticons? They are fun, easy to use, and, best of all, highly expressive of your emotions that you cannot convey over messages otherwise.
-
-A 2019 survey shows 70% of [mobile users](https://www.statista.com/statistics/1068073/frequency-emoji-usage-mobile-phone-texts-social-media-mexico/) used emoji in texting or on social media daily. This shows the popularity of emoji in our world today.
-
-Similarly, as a Discord user, you must have come across thousands of emoji in it. These are images uploaded on the server and called custom emojis that this gaming community can use for effective communication with friends and other players.
-
-With the emoji and [gaming industry](https://www.statista.com/statistics/246892/value-of-the-video-game-market-in-the-us/) growing, it is safe to say that discord emoji's popularity and use will only increase.
-
-Read ahead to see how you can add emojis on Discord if you want to have fun chats with your friends too.
-
-* [**Part 1: Adding and Sending Emoji To Chat On Discord?**](#part1)
-* [**Part 2: Adding Emojis To Discord Channel Name Or Nickname?**](#part2)
-* [**Part 3: Adding Custom Emojis To Discord Server On Windows/Mac?**](#part3)
-* [**Part 4: Adding Custom Emojis To Discord Server On iPhone And Android?**](#part4)
-* [**Part 5: Managing Emojis in Discord Server**](#part5)
-
----
-
-## Part 1: How to Add and Send Emoji To Chat On Discord?
-
-One of the best things about Discord's emoji feature is that there are two ways to add them. You can either access emoji on the Discord account or upload them yourself.
-
-![Send emojis on Discord Chat](https://images.wondershare.com/filmora/article-images/send-emoji-discord-chat.jpg)
-
-You can access the emoji menu for all Discord platforms by pressing the grey smiley face next to the message box. This will be on the right of the box for desktops, and for mobile apps, it will be on the left.
-
-Discord-exclusive and standard emoji are present in the emoji menu, along with a part that keeps track of your most-used emoji.
-
-On the other hand, you can also add custom emoticons to your Discord server if you have permission to do so.
-
-Once you add and access the emoji on your device, select the one you want to send to your friends and press enter to send.
-
-## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
-
-![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
-
-As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
-
-* Use the emoji list to find the one you want to use in your channel name.
-* Select the emoji "browser" column and copy it either with the mouse or "Ctrl + C" on the keyboard.
-* Access your Discord server, right-click the channel where the emoji will be and use the dropdown menu to select the "Edit Channel."
-* In the "Channel Name" box, past the selected emoji using "Ctrl + V" from the keyboard.
-* Select "Save Changes" to save the name with the emoji.
-
-![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
-
-## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
-
-You can add custom emoji on Discord, but only if you are a server owner or administrator. Use the Discord server settings on either the desktop versions for Windows or Mac or the Discord Website.
-
-Follow the steps below for either platform:
-
-* Access your Discord server to begin and press the arrow pointing down in the channel list with the server name—Press "Server Settings" in the menu
-
-![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/discord-server-settings.jpg)
-
-* As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
-
-![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
-
-* Select "Upload Emoji" to insert a custom emoji, either standard or animated
-* With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
-
-![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
-
-* For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
-* A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
-* Enjoy your emoji in chats as soon as you upload them to the Discord server!
-
-Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
-
-## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
-
-How cool is it that you can add custom emoji to your smartphone as well? Whether you have an iPhone or an Android, you can use the same menu as Windows and Mac to upload emoji.
-
-Discord's interface is similar across all devices, so the following steps work on Android and Apple.
-
-* Begin by opening the app on your device to access the server. Press the hamburger menu located at the top left in an open server and channel.
-
-![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/open-discord-channel-settings.jpg)
-
-* As the channel and server list opens for Discord, you can see a three-dot menu right next to the channel list with the server name. Tap on it to proceed.
-* To get to your server settings, press "Settings" in the Discord server menu that shows up.
-* Under the "Server Settings" menu, select "Emoji" to access the custom emoji settings.
-* As the "Emoji" menu opens, you can see an emoji requirement list
-* Press "Upload Emoji" to upload any emoji that aligns with these requirements
-* Press the custom emoji file, tap "Crop" if it needs cropping, and then use the "Upload" option
-* After you upload the emoji file, replace the alias tag by tapping on it. This will redirect you to that specific emoji's settings
-* Type the name you want using the "Alias" box to create the tag used to insert emoji in messages
-* Save this new tag with the "Save" icon placed in the bottom right
-* Any changes you make to the custom emoji's alias are applied to it instantly for your use.
-
-Emoji bring fun to the conversations you have with friends, and it is very easy to add them to your server as well. These show up in the emoji pop-up list once you add them. The chat message bar contains the emoji icon from where you can access them.
-
-It is essential to name your emoji with only alphanumeric characters and underscores using at least two characters.
-
-The Discord emoji size is 32x32 pixels, so even if you upload up to 128x128 pixel size emojis, they will be resized to the default dimensions. Furthermore, emoji file sizes are at most 256kb.
-
-If you want to use custom emojis, you can't do so without a Nitro subscription because it is only functional on the server they are uploaded to. Even if you find a way to access the emoji from some other server, only its text code will be visible.
-
-If you attempt to use the Emoji Picker to pick an emoji, you'll get the following message:
-
-## Bonus: How to Manage Emoji in Discord Server?
-
-You can't remove or add emoji specific to a server on your own as a member. You need the server owner to toggle the permission of Manager Emoji in your domain.
-
-On the other hand, as a server owner, you can give others this role with the following steps.
-
-* **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
-* **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
-
-## FAQs About Discord Emojis
-
-### 1\. Why Do I See Grey Emoji In The Emoji Menu?
-
-Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
-
-![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
-
-### 2\. How Can I Get More Custom Emoji On The Server?
-
-You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
-
-### 3\. What Is The Discord Emoji Size?
-
-Discord allows you to upload an emoji of up to 128x128 pixels, but it will resize it to 32x32 since that is its standard size.
-
-**Conclusion**
-
-Emojis make any chat fun, and where gaming is involved, they help you communicate better with your friends.
-
-Discord has thousands of custom emojis that you can easily add to your server through your computer, whether it is your chat or the channel name. Follow our guide for a seamless process to add emoji to Discord and make your gaming experience better!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-Who doesn't like emoticons? They are fun, easy to use, and, best of all, highly expressive of your emotions that you cannot convey over messages otherwise.
-
-A 2019 survey shows 70% of [mobile users](https://www.statista.com/statistics/1068073/frequency-emoji-usage-mobile-phone-texts-social-media-mexico/) used emoji in texting or on social media daily. This shows the popularity of emoji in our world today.
-
-Similarly, as a Discord user, you must have come across thousands of emoji in it. These are images uploaded on the server and called custom emojis that this gaming community can use for effective communication with friends and other players.
-
-With the emoji and [gaming industry](https://www.statista.com/statistics/246892/value-of-the-video-game-market-in-the-us/) growing, it is safe to say that discord emoji's popularity and use will only increase.
-
-Read ahead to see how you can add emojis on Discord if you want to have fun chats with your friends too.
-
-* [**Part 1: Adding and Sending Emoji To Chat On Discord?**](#part1)
-* [**Part 2: Adding Emojis To Discord Channel Name Or Nickname?**](#part2)
-* [**Part 3: Adding Custom Emojis To Discord Server On Windows/Mac?**](#part3)
-* [**Part 4: Adding Custom Emojis To Discord Server On iPhone And Android?**](#part4)
-* [**Part 5: Managing Emojis in Discord Server**](#part5)
-
----
-
-## Part 1: How to Add and Send Emoji To Chat On Discord?
-
-One of the best things about Discord's emoji feature is that there are two ways to add them. You can either access emoji on the Discord account or upload them yourself.
-
-![Send emojis on Discord Chat](https://images.wondershare.com/filmora/article-images/send-emoji-discord-chat.jpg)
-
-You can access the emoji menu for all Discord platforms by pressing the grey smiley face next to the message box. This will be on the right of the box for desktops, and for mobile apps, it will be on the left.
-
-Discord-exclusive and standard emoji are present in the emoji menu, along with a part that keeps track of your most-used emoji.
-
-On the other hand, you can also add custom emoticons to your Discord server if you have permission to do so.
-
-Once you add and access the emoji on your device, select the one you want to send to your friends and press enter to send.
-
-## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
-
-![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
-
-As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
-
-* Use the emoji list to find the one you want to use in your channel name.
-* Select the emoji "browser" column and copy it either with the mouse or "Ctrl + C" on the keyboard.
-* Access your Discord server, right-click the channel where the emoji will be and use the dropdown menu to select the "Edit Channel."
-* In the "Channel Name" box, past the selected emoji using "Ctrl + V" from the keyboard.
-* Select "Save Changes" to save the name with the emoji.
-
-![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
-
-## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
-
-You can add custom emoji on Discord, but only if you are a server owner or administrator. Use the Discord server settings on either the desktop versions for Windows or Mac or the Discord Website.
-
-Follow the steps below for either platform:
-
-* Access your Discord server to begin and press the arrow pointing down in the channel list with the server name—Press "Server Settings" in the menu
-
-![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/discord-server-settings.jpg)
-
-* As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
-
-![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
-
-* Select "Upload Emoji" to insert a custom emoji, either standard or animated
-* With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
-
-![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
-
-* For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
-* A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
-* Enjoy your emoji in chats as soon as you upload them to the Discord server!
-
-Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
-
-## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
-
-How cool is it that you can add custom emoji to your smartphone as well? Whether you have an iPhone or an Android, you can use the same menu as Windows and Mac to upload emoji.
-
-Discord's interface is similar across all devices, so the following steps work on Android and Apple.
-
-* Begin by opening the app on your device to access the server. Press the hamburger menu located at the top left in an open server and channel.
-
-![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/open-discord-channel-settings.jpg)
-
-* As the channel and server list opens for Discord, you can see a three-dot menu right next to the channel list with the server name. Tap on it to proceed.
-* To get to your server settings, press "Settings" in the Discord server menu that shows up.
-* Under the "Server Settings" menu, select "Emoji" to access the custom emoji settings.
-* As the "Emoji" menu opens, you can see an emoji requirement list
-* Press "Upload Emoji" to upload any emoji that aligns with these requirements
-* Press the custom emoji file, tap "Crop" if it needs cropping, and then use the "Upload" option
-* After you upload the emoji file, replace the alias tag by tapping on it. This will redirect you to that specific emoji's settings
-* Type the name you want using the "Alias" box to create the tag used to insert emoji in messages
-* Save this new tag with the "Save" icon placed in the bottom right
-* Any changes you make to the custom emoji's alias are applied to it instantly for your use.
-
-Emoji bring fun to the conversations you have with friends, and it is very easy to add them to your server as well. These show up in the emoji pop-up list once you add them. The chat message bar contains the emoji icon from where you can access them.
-
-It is essential to name your emoji with only alphanumeric characters and underscores using at least two characters.
-
-The Discord emoji size is 32x32 pixels, so even if you upload up to 128x128 pixel size emojis, they will be resized to the default dimensions. Furthermore, emoji file sizes are at most 256kb.
-
-If you want to use custom emojis, you can't do so without a Nitro subscription because it is only functional on the server they are uploaded to. Even if you find a way to access the emoji from some other server, only its text code will be visible.
-
-If you attempt to use the Emoji Picker to pick an emoji, you'll get the following message:
-
-## Bonus: How to Manage Emoji in Discord Server?
-
-You can't remove or add emoji specific to a server on your own as a member. You need the server owner to toggle the permission of Manager Emoji in your domain.
-
-On the other hand, as a server owner, you can give others this role with the following steps.
-
-* **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
-* **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
-
-## FAQs About Discord Emojis
-
-### 1\. Why Do I See Grey Emoji In The Emoji Menu?
-
-Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
-
-![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
-
-### 2\. How Can I Get More Custom Emoji On The Server?
-
-You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
+
+You can add custom emoji on Discord, but only if you are a server owner or administrator. Use the Discord server settings on either the desktop versions for Windows or Mac or the Discord Website.
+
+Follow the steps below for either platform:
+
+* Access your Discord server to begin and press the arrow pointing down in the channel list with the server name—Press "Server Settings" in the menu
+
+![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/discord-server-settings.jpg)
+
+* As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
+
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+
+* Select "Upload Emoji" to insert a custom emoji, either standard or animated
+* With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
+
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+
+* For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
+* A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
+* Enjoy your emoji in chats as soon as you upload them to the Discord server!
+
+Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
+
+## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
+
+How cool is it that you can add custom emoji to your smartphone as well? Whether you have an iPhone or an Android, you can use the same menu as Windows and Mac to upload emoji.
+
+Discord's interface is similar across all devices, so the following steps work on Android and Apple.
+
+* Begin by opening the app on your device to access the server. Press the hamburger menu located at the top left in an open server and channel.
+
+![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/open-discord-channel-settings.jpg)
+
+* As the channel and server list opens for Discord, you can see a three-dot menu right next to the channel list with the server name. Tap on it to proceed.
+* To get to your server settings, press "Settings" in the Discord server menu that shows up.
+* Under the "Server Settings" menu, select "Emoji" to access the custom emoji settings.
+* As the "Emoji" menu opens, you can see an emoji requirement list
+* Press "Upload Emoji" to upload any emoji that aligns with these requirements
+* Press the custom emoji file, tap "Crop" if it needs cropping, and then use the "Upload" option
+* After you upload the emoji file, replace the alias tag by tapping on it. This will redirect you to that specific emoji's settings
+* Type the name you want using the "Alias" box to create the tag used to insert emoji in messages
+* Save this new tag with the "Save" icon placed in the bottom right
+* Any changes you make to the custom emoji's alias are applied to it instantly for your use.
+
+Emoji bring fun to the conversations you have with friends, and it is very easy to add them to your server as well. These show up in the emoji pop-up list once you add them. The chat message bar contains the emoji icon from where you can access them.
+
+It is essential to name your emoji with only alphanumeric characters and underscores using at least two characters.
+
+The Discord emoji size is 32x32 pixels, so even if you upload up to 128x128 pixel size emojis, they will be resized to the default dimensions. Furthermore, emoji file sizes are at most 256kb.
+
+If you want to use custom emojis, you can't do so without a Nitro subscription because it is only functional on the server they are uploaded to. Even if you find a way to access the emoji from some other server, only its text code will be visible.
+
+If you attempt to use the Emoji Picker to pick an emoji, you'll get the following message:
+
+## Bonus: How to Manage Emoji in Discord Server?
+
+You can't remove or add emoji specific to a server on your own as a member. You need the server owner to toggle the permission of Manager Emoji in your domain.
+
+On the other hand, as a server owner, you can give others this role with the following steps.
+
+* **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
+* **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
+
+## FAQs About Discord Emojis
+
+### 1\. Why Do I See Grey Emoji In The Emoji Menu?
+
+Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
+
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+
+### 2\. How Can I Get More Custom Emoji On The Server?
+
+You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
+
+### 3\. What Is The Discord Emoji Size?
+
+Discord allows you to upload an emoji of up to 128x128 pixels, but it will resize it to 32x32 since that is its standard size.
+
+**Conclusion**
+
+Emojis make any chat fun, and where gaming is involved, they help you communicate better with your friends.
+
+Discord has thousands of custom emojis that you can easily add to your server through your computer, whether it is your chat or the channel name. Follow our guide for a seamless process to add emoji to Discord and make your gaming experience better!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Who doesn't like emoticons? They are fun, easy to use, and, best of all, highly expressive of your emotions that you cannot convey over messages otherwise.
+
+A 2019 survey shows 70% of [mobile users](https://www.statista.com/statistics/1068073/frequency-emoji-usage-mobile-phone-texts-social-media-mexico/) used emoji in texting or on social media daily. This shows the popularity of emoji in our world today.
+
+Similarly, as a Discord user, you must have come across thousands of emoji in it. These are images uploaded on the server and called custom emojis that this gaming community can use for effective communication with friends and other players.
+
+With the emoji and [gaming industry](https://www.statista.com/statistics/246892/value-of-the-video-game-market-in-the-us/) growing, it is safe to say that discord emoji's popularity and use will only increase.
+
+Read ahead to see how you can add emojis on Discord if you want to have fun chats with your friends too.
+
+* [**Part 1: Adding and Sending Emoji To Chat On Discord?**](#part1)
+* [**Part 2: Adding Emojis To Discord Channel Name Or Nickname?**](#part2)
+* [**Part 3: Adding Custom Emojis To Discord Server On Windows/Mac?**](#part3)
+* [**Part 4: Adding Custom Emojis To Discord Server On iPhone And Android?**](#part4)
+* [**Part 5: Managing Emojis in Discord Server**](#part5)
+
+---
+
+## Part 1: How to Add and Send Emoji To Chat On Discord?
+
+One of the best things about Discord's emoji feature is that there are two ways to add them. You can either access emoji on the Discord account or upload them yourself.
+
+![Send emojis on Discord Chat](https://images.wondershare.com/filmora/article-images/send-emoji-discord-chat.jpg)
+
+You can access the emoji menu for all Discord platforms by pressing the grey smiley face next to the message box. This will be on the right of the box for desktops, and for mobile apps, it will be on the left.
+
+Discord-exclusive and standard emoji are present in the emoji menu, along with a part that keeps track of your most-used emoji.
+
+On the other hand, you can also add custom emoticons to your Discord server if you have permission to do so.
+
+Once you add and access the emoji on your device, select the one you want to send to your friends and press enter to send.
+
+## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
+
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+
+As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
+
+* Use the emoji list to find the one you want to use in your channel name.
+* Select the emoji "browser" column and copy it either with the mouse or "Ctrl + C" on the keyboard.
+* Access your Discord server, right-click the channel where the emoji will be and use the dropdown menu to select the "Edit Channel."
+* In the "Channel Name" box, past the selected emoji using "Ctrl + V" from the keyboard.
+* Select "Save Changes" to save the name with the emoji.
+
+![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
+
+## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
+
+You can add custom emoji on Discord, but only if you are a server owner or administrator. Use the Discord server settings on either the desktop versions for Windows or Mac or the Discord Website.
+
+Follow the steps below for either platform:
+
+* Access your Discord server to begin and press the arrow pointing down in the channel list with the server name—Press "Server Settings" in the menu
+
+![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/discord-server-settings.jpg)
+
+* As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
+
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+
+* Select "Upload Emoji" to insert a custom emoji, either standard or animated
+* With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
+
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+
+* For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
+* A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
+* Enjoy your emoji in chats as soon as you upload them to the Discord server!
+
+Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
+
+## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
+
+How cool is it that you can add custom emoji to your smartphone as well? Whether you have an iPhone or an Android, you can use the same menu as Windows and Mac to upload emoji.
+
+Discord's interface is similar across all devices, so the following steps work on Android and Apple.
+
+* Begin by opening the app on your device to access the server. Press the hamburger menu located at the top left in an open server and channel.
+
+![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/open-discord-channel-settings.jpg)
+
+* As the channel and server list opens for Discord, you can see a three-dot menu right next to the channel list with the server name. Tap on it to proceed.
+* To get to your server settings, press "Settings" in the Discord server menu that shows up.
+* Under the "Server Settings" menu, select "Emoji" to access the custom emoji settings.
+* As the "Emoji" menu opens, you can see an emoji requirement list
+* Press "Upload Emoji" to upload any emoji that aligns with these requirements
+* Press the custom emoji file, tap "Crop" if it needs cropping, and then use the "Upload" option
+* After you upload the emoji file, replace the alias tag by tapping on it. This will redirect you to that specific emoji's settings
+* Type the name you want using the "Alias" box to create the tag used to insert emoji in messages
+* Save this new tag with the "Save" icon placed in the bottom right
+* Any changes you make to the custom emoji's alias are applied to it instantly for your use.
+
+Emoji bring fun to the conversations you have with friends, and it is very easy to add them to your server as well. These show up in the emoji pop-up list once you add them. The chat message bar contains the emoji icon from where you can access them.
+
+It is essential to name your emoji with only alphanumeric characters and underscores using at least two characters.
+
+The Discord emoji size is 32x32 pixels, so even if you upload up to 128x128 pixel size emojis, they will be resized to the default dimensions. Furthermore, emoji file sizes are at most 256kb.
+
+If you want to use custom emojis, you can't do so without a Nitro subscription because it is only functional on the server they are uploaded to. Even if you find a way to access the emoji from some other server, only its text code will be visible.
+
+If you attempt to use the Emoji Picker to pick an emoji, you'll get the following message:
+
+## Bonus: How to Manage Emoji in Discord Server?
+
+You can't remove or add emoji specific to a server on your own as a member. You need the server owner to toggle the permission of Manager Emoji in your domain.
+
+On the other hand, as a server owner, you can give others this role with the following steps.
+
+* **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
+* **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
+
+## FAQs About Discord Emojis
+
+### 1\. Why Do I See Grey Emoji In The Emoji Menu?
+
+Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
+
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+
+### 2\. How Can I Get More Custom Emoji On The Server?
+
+You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
+
+### 3\. What Is The Discord Emoji Size?
+
+Discord allows you to upload an emoji of up to 128x128 pixels, but it will resize it to 32x32 since that is its standard size.
+
+**Conclusion**
+
+Emojis make any chat fun, and where gaming is involved, they help you communicate better with your friends.
+
+Discord has thousands of custom emojis that you can easily add to your server through your computer, whether it is your chat or the channel name. Follow our guide for a seamless process to add emoji to Discord and make your gaming experience better!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Who doesn't like emoticons? They are fun, easy to use, and, best of all, highly expressive of your emotions that you cannot convey over messages otherwise.
+
+A 2019 survey shows 70% of [mobile users](https://www.statista.com/statistics/1068073/frequency-emoji-usage-mobile-phone-texts-social-media-mexico/) used emoji in texting or on social media daily. This shows the popularity of emoji in our world today.
+
+Similarly, as a Discord user, you must have come across thousands of emoji in it. These are images uploaded on the server and called custom emojis that this gaming community can use for effective communication with friends and other players.
+
+With the emoji and [gaming industry](https://www.statista.com/statistics/246892/value-of-the-video-game-market-in-the-us/) growing, it is safe to say that discord emoji's popularity and use will only increase.
+
+Read ahead to see how you can add emojis on Discord if you want to have fun chats with your friends too.
+
+* [**Part 1: Adding and Sending Emoji To Chat On Discord?**](#part1)
+* [**Part 2: Adding Emojis To Discord Channel Name Or Nickname?**](#part2)
+* [**Part 3: Adding Custom Emojis To Discord Server On Windows/Mac?**](#part3)
+* [**Part 4: Adding Custom Emojis To Discord Server On iPhone And Android?**](#part4)
+* [**Part 5: Managing Emojis in Discord Server**](#part5)
+
+---
+
+## Part 1: How to Add and Send Emoji To Chat On Discord?
+
+One of the best things about Discord's emoji feature is that there are two ways to add them. You can either access emoji on the Discord account or upload them yourself.
+
+![Send emojis on Discord Chat](https://images.wondershare.com/filmora/article-images/send-emoji-discord-chat.jpg)
+
+You can access the emoji menu for all Discord platforms by pressing the grey smiley face next to the message box. This will be on the right of the box for desktops, and for mobile apps, it will be on the left.
+
+Discord-exclusive and standard emoji are present in the emoji menu, along with a part that keeps track of your most-used emoji.
+
+On the other hand, you can also add custom emoticons to your Discord server if you have permission to do so.
+
+Once you add and access the emoji on your device, select the one you want to send to your friends and press enter to send.
+
+## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
+
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+
+As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
+
+* Use the emoji list to find the one you want to use in your channel name.
+* Select the emoji "browser" column and copy it either with the mouse or "Ctrl + C" on the keyboard.
+* Access your Discord server, right-click the channel where the emoji will be and use the dropdown menu to select the "Edit Channel."
+* In the "Channel Name" box, past the selected emoji using "Ctrl + V" from the keyboard.
+* Select "Save Changes" to save the name with the emoji.
+
+![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
+
+## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
+
+You can add custom emoji on Discord, but only if you are a server owner or administrator. Use the Discord server settings on either the desktop versions for Windows or Mac or the Discord Website.
+
+Follow the steps below for either platform:
+
+* Access your Discord server to begin and press the arrow pointing down in the channel list with the server name—Press "Server Settings" in the menu
+
+![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/discord-server-settings.jpg)
+
+* As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
+
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+
+* Select "Upload Emoji" to insert a custom emoji, either standard or animated
+* With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
+
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+
+* For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
+* A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
+* Enjoy your emoji in chats as soon as you upload them to the Discord server!
+
+Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
+
+## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
+
+How cool is it that you can add custom emoji to your smartphone as well? Whether you have an iPhone or an Android, you can use the same menu as Windows and Mac to upload emoji.
+
+Discord's interface is similar across all devices, so the following steps work on Android and Apple.
+
+* Begin by opening the app on your device to access the server. Press the hamburger menu located at the top left in an open server and channel.
+
+![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/open-discord-channel-settings.jpg)
+
+* As the channel and server list opens for Discord, you can see a three-dot menu right next to the channel list with the server name. Tap on it to proceed.
+* To get to your server settings, press "Settings" in the Discord server menu that shows up.
+* Under the "Server Settings" menu, select "Emoji" to access the custom emoji settings.
+* As the "Emoji" menu opens, you can see an emoji requirement list
+* Press "Upload Emoji" to upload any emoji that aligns with these requirements
+* Press the custom emoji file, tap "Crop" if it needs cropping, and then use the "Upload" option
+* After you upload the emoji file, replace the alias tag by tapping on it. This will redirect you to that specific emoji's settings
+* Type the name you want using the "Alias" box to create the tag used to insert emoji in messages
+* Save this new tag with the "Save" icon placed in the bottom right
+* Any changes you make to the custom emoji's alias are applied to it instantly for your use.
+
+Emoji bring fun to the conversations you have with friends, and it is very easy to add them to your server as well. These show up in the emoji pop-up list once you add them. The chat message bar contains the emoji icon from where you can access them.
+
+It is essential to name your emoji with only alphanumeric characters and underscores using at least two characters.
+
+The Discord emoji size is 32x32 pixels, so even if you upload up to 128x128 pixel size emojis, they will be resized to the default dimensions. Furthermore, emoji file sizes are at most 256kb.
+
+If you want to use custom emojis, you can't do so without a Nitro subscription because it is only functional on the server they are uploaded to. Even if you find a way to access the emoji from some other server, only its text code will be visible.
+
+If you attempt to use the Emoji Picker to pick an emoji, you'll get the following message:
+
+## Bonus: How to Manage Emoji in Discord Server?
+
+You can't remove or add emoji specific to a server on your own as a member. You need the server owner to toggle the permission of Manager Emoji in your domain.
+
+On the other hand, as a server owner, you can give others this role with the following steps.
+
+* **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
+* **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
+
+## FAQs About Discord Emojis
+
+### 1\. Why Do I See Grey Emoji In The Emoji Menu?
+
+Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
+
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+
+### 2\. How Can I Get More Custom Emoji On The Server?
+
+You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
 
 ### 3\. What Is The Discord Emoji Size?
 
@@ -2742,19 +2720,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-masterclass-in-instagram-designing-eye-catching-cover-images/"><u>[New] 2024 Approved Masterclass in Instagram Designing Eye-Catching Cover Images</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-obs-mastered-functioning-camera-now/"><u>[New] 2024 Approved OBS Mastered Functioning Camera Now</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-tailor-youtube-thumbnails-for-maximum-impact-for-2024/"><u>[Updated] How to Tailor YouTube Thumbnails for Maximum Impact for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/boost-your-ryzen-9s-power-achieve-6ghz-overclock-for-enhanced-multi-core-efficiency-plus27-in-geekbench/"><u>Boost Your Ryzen 9'S Power: Achieve 6GHz Overclock for Enhanced Multi-Core Efficiency (+27% in GeekBench)</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/find-and-install-dell-latitude-e6420-drivers-in-no-time-with-these-tricks/"><u>Find and Install Dell Latitude E6420 Drivers in No Time with These Tricks</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-a-hit-list-youtubes-way-for-fans/"><u>In 2024, Crafting a Hit-List Youtube's Way for Fans</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-reviving-the-gone-retrieving-former-reddit-discussions/"><u>In 2024, Reviving the Gone Retrieving Former Reddit Discussions</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-nubia-red-magic-9-pro-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Nubia Red Magic 9 Pro Users</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-10-best-work-memes-to-have-fun-in-work-days/"><u>New In 2024, 10 Best Work Memes to Have Fun in Work Days</u></a></li>
-<li><a href="https://blog-min.techidaily.com/troubleshooting-common-problems-when-your-dvd-player-wont-connect-to-the-tv-solutions-explored/"><u>Troubleshooting Common Problems When Your DVD Player Won't Connect to the TV: Solutions Explored</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-10-best-work-memes-to-have-fun-in-work-days-for-2024/"><u>Updated 10 Best Work Memes to Have Fun in Work Days for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-10-emoji-makers-to-create-your-own-emojis-pconlineandroidiphone/"><u>Updated In 2024, Best 10 Emoji Makers to Create Your Own Emojis PC/Online/Android/iPhone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-photo-slideshow-maker-how-to-make-a-photo-slideshow-2023-update/"><u>Updated In 2024, Best Photo Slideshow Maker How to Make a Photo Slideshow 2023 Update</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-top-12-best-meme-makers-online-for-free/"><u>Updated In 2024, Top 12 Best Meme Makers Online for FREE</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-enhance-your-projects-with-free-green-screens-from-these-online-hubs-for-2024/"><u>[New] Enhance Your Projects with Free Green Screens From These Online Hubs for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-soundtweetify-quick-audible-maker-for-2024/"><u>[New] SoundTweetify Quick Audible Maker for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-essential-listing-best-free-vector-art-pages-online/"><u>[Updated] 2024 Approved Essential Listing Best Free Vector Art Pages Online</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-mastering-the-art-of-expression-the-best-and-secret-tiktok-emojis-for-2024/"><u>[Updated] Mastering the Art of Expression The Best & Secret TikTok Emojis for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-a-triggered-meme/"><u>2024 Approved How to Make a Triggered Meme?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dive-deep-into-durability-gopro-hero5-vs-hero5-session/"><u>Dive Deep Into Durability GoPro Hero5 vs Hero5 Session</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>How to Burn Photos to DVD with Transitions and Music</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-flv-photo-slideshow-with-music-for-2024/"><u>How to Make a FLV Photo Slideshow with Music for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-memorable-honeymoon-video/"><u>In 2024, How to Make a Memorable Honeymoon Video</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>In 2024, How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-lush-backgrounds-a-compendium-of-free-screen-free-downloadables/"><u>In 2024, Lush Backgrounds A Compendium of Free Screen-Free Downloadables</u></a></li>
+<li><a href="https://facebook.techidaily.com/speak-stylized-not-bulk-essential-smart-words-for-effective-communication/"><u>Speak Stylized, Not Bulk: Essential SMART Words for Effective Communication</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamlining-your-workflow-with-zooms-pre-meeting-protocol-for-2024/"><u>Streamlining Your Workflow with Zoom's Pre-Meeting Protocol for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/tech-for-gamers-deciding-between-xna-updates/"><u>Tech for Gamers: Deciding Between XNA Updates</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-10-popular-cartoon-characters-that-should-top-your-list/"><u>Updated 10 Popular Cartoon Characters That Should Top Your List</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-solarmovie-alternatives-watch-movies-online/"><u>Updated 2024 Approved Best SolarMovie Alternatives-Watch Movies Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-top-10-best-free-manga-sites-to-read-online/"><u>Updated In 2024, Top 10 Best Free Manga Sites to Read Online</u></a></li>
 </ul></div>
 

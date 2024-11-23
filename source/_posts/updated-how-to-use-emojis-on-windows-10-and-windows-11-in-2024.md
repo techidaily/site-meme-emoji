@@ -1,7 +1,7 @@
 ---
 title: Updated How to Use Emojis on Windows 10 and Windows 11, In 2024
-date: 2024-11-10T19:56:10.491Z
-updated: 2024-11-14T03:33:10.987Z
+date: 2024-11-22T21:26:00.280Z
+updated: 2024-11-23T18:51:01.415Z
 tags: 
   - ai
   - animation videos
@@ -211,6 +211,10 @@ If the built-in emoji library doesn’t contain your favorite expressions, you c
 
 ![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
@@ -243,13 +247,6 @@ Nevertheless, it would be a good idea to learn how to launch the emojis keyboard
 * Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
 
 ![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
 
@@ -851,19 +848,6 @@ Follow @Ollie Mattison
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -1415,13 +1399,6 @@ Memes have become a central part of many online conversations. They pop up a lot
 
 With memes taking over popular culture, you may want to make a meme for yourself. By using a meme maker, you can do just that! Here is a look at the top 10+ best meme maker online options that you can use for free.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 10+ Best Meme Makers Online
 
 ### 1. Filmora Free Meme Generator
@@ -1594,6 +1571,10 @@ Follow @Ollie Mattison
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best 10 Emoji Makers to Create Your Own Emojis [PC/Online/Android/iPhone]
 
@@ -2515,6 +2496,10 @@ As the name indicates, [Disney Emoji Maker](https://lol.disney.com/games/disney-
 
 ![elite emoji maker](https://images.wondershare.com/filmora/article-images/7-elite-emoji-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Price:**
 
 * Free
@@ -2673,13 +2658,6 @@ Follow @Shanoon Cox
 
 **Step 4**: Tap on the ‘Save’ or ‘Share’ button, once you are done editing the meme. You can find the meme on your ‘Photos’ app.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to make memes on Android with Memedroid
 
  If you are wondering how to make memes on Android, then take the [Memedroid](https://play.google.com/store/apps/details?id=com.novagecko.memedroid&hl=en) app into consideration. You can create photos and GIF memes, jokes, avatars, graphics etc. with this app. There are numerous memes uploaded everyday on the app and you get the chance to let people vote for your meme too.
@@ -2802,13 +2780,6 @@ Follow @Ollie Mattison
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -2837,6 +2808,10 @@ Follow @Ollie Mattison
 
 ![browse memes](https://images.wondershare.com/filmora/article-images/Meme-Generator-browse-memes.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: Use the example text or hit the ‘Text’ bar to add or edit your caption. Press the icons over the top-right corner for customizing your meme photo and caption options.
 
 ![edit memes Generator](https://images.wondershare.com/filmora/article-images/edit-meme-Meme-Generator.JPG)
@@ -2860,19 +2835,6 @@ Follow @Ollie Mattison
 **Step 3**： Add tags and accept the ‘Terms of Service’ followed by ‘Send’ button. Wait a while, to get you meme ready for your audience.
 
 ![save memes Memedroid](https://images.wondershare.com/filmora/article-images/save-meme-Memedroid.JPG)
-
-<!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Recommended - Making memes with Filmora meme maker online
 
@@ -2915,6 +2877,10 @@ Follow @Ollie Mattison
 * [**Part1: How to make memes on iPhone with Meme Generator**](#part1)
 * [**Part2: How to make memes on Android with Memedroid**](#part2)
 * [**Part3: Recommended - Making memes with Filmora meme maker online**](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to make memes on iPhone with Meme Generator
 
@@ -3190,11 +3156,19 @@ Now, you are all set to get the best emoji websites to download emojis and save 
 
 ![emojipedia website](https://images.wondershare.com/filmora/article-images/emojipedia-website5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6. Copy and Paste Emoji
 
 [**Copy and Paste Emoji**](https://www.copyandpasteemoji.com/) is an emoji website where you will get a huge collection of emojis to use on your chat windows that would certainly amaze your friends and loved ones. As the name suggests, you can copy and paste emojis to your social media channels from this website. This website has a huge collection of emojis and all the images are listed on the main page so that it’s easy to navigate and you can copy-paste the emojis on all the devices as this website is supported by Windows, iOS, Android, and macOS.
 
 ![copy and paste emoji website](https://images.wondershare.com/filmora/article-images/copy-and-paste-emoji-website6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7. Emojiterra
 
@@ -3219,13 +3193,6 @@ Now, you are all set to get the best emoji websites to download emojis and save 
 [**Joypixels**](https://www.joypixels.com/) is another great website that recently got rebranded in the emoji industry. Like the other websites listed this website also allows you to copy and paste cool emojis but there is one better feature that makes it stand apart and that is the chrome extension. You can download the jo pixel chrome extension and the rest is history. Now, if you are surfing social media sites from your browser then you don’t need to wait and worry, the chrome extension has all the features to serve your purpose.
 
 ![joypixels emoji website](https://images.wondershare.com/filmora/article-images/joypixels-emoji-website10.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Add Emojis to Your Video with Wondershare Filmora
 
@@ -3254,6 +3221,14 @@ Wondershare Filmora is a powerful [video editing tool](https://tools.techidaily.
 6\. Once done, click the **Export** button to export the video to your local device, or you can upload it to YouTube directly.
 
 ![export the emoji video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus tip: Create an Animation Video with Anireel
 
@@ -3391,6 +3366,10 @@ Wondershare Filmora is a powerful [video editing tool](https://tools.techidaily.
 
 ![export the emoji video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus tip: Create an Animation Video with Anireel
 
 [**Anireel**](https://tools.techidaily.com/wondershare/anireel/download/) provides a faster and smoother animated video creation experience with customizable elements to bring anyone’s imagination to life. All you have to do is choose your script, input the content, and Anireel will instantly match your script to rich animation explainer scenes, convert the text into voice-over, and generate a vivid, complete animation video.
@@ -3398,13 +3377,6 @@ Wondershare Filmora is a powerful [video editing tool](https://tools.techidaily.
 ![anireel animation software](https://images.wondershare.com/filmora/article-images/2022/07/anireel.jpg)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -3570,20 +3542,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-harness-the-power-of-storyremix-elevate-video-quality-for-windows-11-users-for-2024/"><u>[Updated] Harness the Power of StoryRemix Elevate Video Quality for Windows 11 Users for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-unveiling-the-tricks-for-flawless-file-imports-on-windows-10/"><u>[Updated] Unveiling the Tricks for Flawless File Imports on Windows 10</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-android-screen-capture-made-easy-free/"><u>2024 Approved Android Screen Capture Made Easy, Free</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-optimal-display-technologies-srgb-over-rgb/"><u>2024 Approved Optimal Display Technologies Srgb over Rgb</u></a></li>
-<li><a href="https://network-issues.techidaily.com/device-failure-43-overcome/"><u>Device Failure 43 Overcome</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/free-10-websites-to-watch-cartoon-online-in-hd-for-2024/"><u>FREE 10 Websites to Watch Cartoon Online in HD for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-meme-step-by-step-for-2024/"><u>How to Make a Meme (Step by Step) for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-from-your-iphone-15-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password From your iPhone 15</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-perfect-every-shot-get-10plus-lut-packs-many-free/"><u>In 2024, Perfect Every Shot Get 10+ LUT Packs, Many Free</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-best-emoji-removers-to-remove-emojis-from-pictures/"><u>New Best Emoji Removers to Remove Emojis From Pictures</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/ritocchi-grafici-raf-ottimizzati-con-movavi-usufruisci-ora-del-servizio-veloce-ed-economico/"><u>Ritocchi Grafici RAF Ottimizzati Con Movavi - Usufruisci Ora Del Servizio Veloce Ed Economico!</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-burn-photos-to-dvd-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>Updated 2024 Approved Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-edit-memoji-on-android-and-iphone-for-2024/"><u>Updated How to Edit Memoji on Android and iPhone for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-imovie-photo-slideshow-with-music/"><u>Updated How to Make a iMovie Photo Slideshow with Music?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-emoji-removers-to-remove-emojis-from-pictures-onlinepcmobile/"><u>Updated In 2024, Best Emoji Removers to Remove Emojis From Pictures Online/PC/Mobile</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-content-creators-preferences-vimeo-or-youtube/"><u>[Updated] Content Creators' Preferences Vimeo or YouTube?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-tricks-for-swift-vimeo-watch-for-2024/"><u>[Updated] Tricks for Swift Vimeo Watch for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-trending-memes-right-now-include-image-gifvideo/"><u>10 Trending Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-best-photo-slideshow-maker-how-to-make-a-photo-slideshow-2023-update/"><u>2024 Approved Best Photo Slideshow Maker How to Make a Photo Slideshow 2023 Update</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/complete-guide-to-understanding-obs-screen-capture-for-2024/"><u>Complete Guide to Understanding OBS Screen Capture for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-guide-to-kmplayer-on-macos-top-video-player-for-enjoying-ultra-hd-content/"><u>Comprehensive Guide to KMPlayer on macOS: Top Video Player for Enjoying Ultra HD Content</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/conversion-libre-de-fichiers-vob-a-avi-en-ligne-avec-movavi-guide-complet/"><u>Conversion Libre De Fichiers VOB À AVI en Ligne Avec Movavi: Guide Complet</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-strategies-for-diagnosing-and-fixing-post-problems/"><u>Effective Strategies for Diagnosing and Fixing POST Problems</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/get-your-windows-10-bluetooth-back-on-track-with-our-step-by-step-guide/"><u>Get Your Windows 10 Bluetooth Back on Track with Our Step-by-Step Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-imovie-photo-slideshow-with-music-imovie-tutorial/"><u>In 2024, How to Make a iMovie Photo Slideshow with Music? IMovie Tutorial</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-audio-transitions-in-premiere-pro-for-2024/"><u>Mastering Audio Transitions in Premiere Pro for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/mocking-sponge-bob-meme-generator-for-2024/"><u>Mocking Sponge Bob Meme Generator for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-add-emojisstickers-to-videos-on-pcmacmobileonline/"><u>New 2024 Approved How Add Emojis/Stickers to Videos on PC/Mac/Mobile/Online</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-insights-dive-into-the-latest-hardware-reviews/"><u>Tom's Tech Insights: Dive Into the Latest Hardware Reviews</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>Updated In 2024, How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-top-5-best-websites-to-add-emojis-to-photo-online/"><u>Updated Top 5 Best Websites to Add Emojis to Photo Online</u></a></li>
 </ul></div>
 
