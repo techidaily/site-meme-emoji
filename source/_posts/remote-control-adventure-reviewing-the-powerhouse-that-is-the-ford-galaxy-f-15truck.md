@@ -1,7 +1,7 @@
 ---
 title: "Remote Control Adventure: Reviewing the Powerhouse That Is the Ford Galaxy F-15ˈtruck"
-date: 2024-11-19T16:56:37.155Z
-updated: 2024-11-23T23:04:51.136Z
+date: 2024-11-28T03:58:49.647Z
+updated: 2024-12-01T16:52:50.105Z
 categories:
   - BestProducts
 description: "This Article Describes Remote Control Adventure: Reviewing the Powerhouse That Is the Ford Galaxy F-15ˈtruck"
@@ -36,10 +36,6 @@ Lifewire / Kelsey Simon
 
 3.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/8XGs9qzQ6hLIBySEKXEvBMfEkq4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
@@ -66,10 +62,6 @@ Lifewire / Kelsey Simon
 
  The Elder Scrolls V: Skyrim is an action role-playing game focused on single-player immersion in a fantasy world. It was originally released in 2011 and has most recently been ported over to the Switch. We took a close look at this game on its newest platform, playing it on the go to test the handheld gameplay experience, along with the plot and graphics.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Simple for all users**
 
  As with other games on the Nintendo Switch, you’ll need to insert the cartridge into your device. Skyrim does take a while to launch, so be patient as it loads up. There shouldn’t be any special downloads required, like with other games, and as soon as things load you’ll be able to play.
@@ -79,7 +71,7 @@ Lifewire / Kelsey Simon
  Lifewire / Kelsey Simon
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
@@ -102,10 +94,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Gameplay: Not as smooth as on other platforms**
 
  The first real interactive thing you do with the game is to create your character, and true to other Elder Scrolls games, you can change your character’s appearance in the most minute way. Pick your race, gender, hairstyle, eye color, and even tweak the height of your cheekbones and brows if you want. This is the first sign of just how encompassing and involved the role-playing aspects of Skyrim are.
@@ -123,6 +111,10 @@ Lifewire / Kelsey Simon
  Check out our article on[Skyrim hacks and cheats](https://www.liveabout.com/skyrim-hacks-and-cheats-4159422) .
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -143,7 +135,7 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
@@ -153,6 +145,10 @@ Lifewire / Kelsey Simon
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -166,6 +162,10 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
@@ -173,7 +173,7 @@ Lifewire / Kelsey Simon
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -198,22 +198,16 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/-comprehensive-guide-to-use-youtube-movie-maker/"><u>[New] A Comprehensive Guide to Use YouTube Movie Maker</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/diting-pro-tips-for-aspiring-sports-video-makers/"><u>[New] Editing Pro Tips for Aspiring Sports Video Makers</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-fbs-frontier-making-and-sending-immersive-360-videos/"><u>[New] In 2024, FB's Frontier Making and Sending Immersive 360 Videos</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-top-10-games-just-like-stardew-valley-for-2024/"><u>[Updated] Top 10 Games Just Like Stardew Valley for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-non-rooting-methods-to-record-android-sounds/"><u>2024 Approved Non-Rooting Methods to Record Android Sounds</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-iphone-15-icloud-activation-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing iPhone 15 iCloud Activation Lock</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-top-6-animated-emoji-video-effects/"><u>In 2024, Top 6 Animated Emoji Video Effects</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-unlock-the-full-potential-of-your-gadgets-to-record-youtube-live/"><u>In 2024, Unlock the Full Potential of Your Gadgets to Record YouTube Live</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/mocking-sponge-bob-meme-generator/"><u>Mocking Sponge Bob Meme Generator</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-a-video-meme-with-4-best-meme-video-makers/"><u>New 2024 Approved How to Make a Video Meme with 4 Best Meme Video Makers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-wonderful-video-slideshow-with-your-travel-photos/"><u>New How to Make a Wonderful Video Slideshow with Your Travel Photos</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-battlefield-2042-a-comprehensive-guide-for-stabilizing-your-pc-gameplay/"><u>Troubleshooting Battlefield 2042: A Comprehensive Guide for Stabilizing Your PC Gameplay</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/unending-chats-strategies-for-continuous-snapstreaks-for-2024/"><u>Unending Chats - Strategies for Continuous Snapstreaks for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-generating-the-nut-button-meme/"><u>Updated 2024 Approved Generating the Nut Button Meme</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-a-imovie-photo-slideshow-with-music-imovie-tutorial/"><u>Updated 2024 Approved How to Make a iMovie Photo Slideshow with Music? IMovie Tutorial</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-generating-the-nut-button-meme/"><u>Updated Generating the Nut Button Meme</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-use-emojis-on-windows-10-and-windows-11-in-2024/"><u>Updated How to Use Emojis on Windows 10 and Windows 11, In 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-from-youtube-to-webm-unveiling-the-premium-converters/"><u>[New] In 2024, From YouTube to WebM Unveiling the Premium Converters</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-expert-tips-for-photo-hdr-mastery-in-photoshop/"><u>[Updated] In 2024, Expert Tips for Photo-HDR Mastery in Photoshop</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-2022s-pinnacle-moments-in-snowboarding-x/"><u>2024 Approved 2022'S Pinnacle Moments in Snowboarding X</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-top-strategies-for-integrating-facebook-live-into-your-site/"><u>2024 Approved Top Strategies for Integrating Facebook Live Into Your Site</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Motorola Moto G 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-quick-quirks-lasting-impact-fast-track-to-fame-with-9gag-memes/"><u>In 2024, Quick Quirks, Lasting Impact Fast Track to Fame with 9GAG Memes</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-10-most-popular-minion-memes-that-moms-are-crazy-about-for-2024/"><u>New 10 Most Popular Minion Memes that Moms Are Crazy About for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oppo-a1x-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo A1x 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-10-most-popular-minion-memes-that-moms-are-crazy-about/"><u>Updated 10 Most Popular Minion Memes that Moms Are Crazy About</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-8-best-meme-maker-app-to-create-memes-with-your-own-picture/"><u>Updated 2024 Approved 8 Best Meme Maker App to Create Memes with Your Own Picture</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-25-cute-memes-to-make-you-feel-better-for-2024/"><u>Updated 25 Cute Memes to Make You Feel Better for 2024</u></a></li>
 </ul></div>
 

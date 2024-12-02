@@ -1,7 +1,7 @@
 ---
 title: Updated What Is Emoji and What Does It Mean for 2024
-date: 2024-11-21T18:53:58.538Z
-updated: 2024-11-23T20:56:03.627Z
+date: 2024-11-28T17:41:04.988Z
+updated: 2024-12-02T01:19:03.665Z
 tags: 
   - ai
   - animation videos
@@ -223,10 +223,6 @@ In addition to displaying the top emojis right on the landing page, the portal a
 The landing page of EmojiMeanings is populated with all the categories where each holds several relevant emojis, thus making it easier for the users to find and learn their meaning. The home page also has complete information about what emojis are, how they are different from emoticons, and what does the term ‘smiley’ actually mean.
 
 When you click a category, a new page opens up with three major columns titled as ‘Emoji’, ‘Meaning’, and ‘Unicode’ that show an emoji itself, explain what it means, and what Unicode is used to form it respectively. All the emojis on EmojiMeanings are usually compatible with WhatsApp and Facebook.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5. HotEmoji
 
@@ -609,10 +605,6 @@ For the lucky lot of you, let me walk you through how to make an emoji of yourse
 
 ![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5.Nose & Lips- After selecting your eye color, shape, and brows, choose a nose shape and a lipstick color and intensity.
 
 ![Select Eye Color](https://images.wondershare.com/filmora/article-images/select-eye-color.jpg)
@@ -756,6 +748,10 @@ If you want to make an emoji of yourself that is more fun and personalized, from
 
 ![Add Emoji Freckles](https://images.wondershare.com/filmora/article-images/add-emoji-freckles.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3.Next up is the hairstyle. There is a range of hairstyles from straight to wavy. Pick one you like best. You can choose the eye shape, color, brow, nose, lips, and finally, add some funky or formal eyewear to complete the look. Press Save.
 
 4.After you make an emoji of yourself, you can further fine-tune it by adding detailed features and accessories using coins. Choose a stylish dress for your avatar from the Clothes tab or add a fun background.
@@ -831,6 +827,10 @@ In this article, we will show you how to amaze your friends by teaching you to m
 * [Part 1: Make an Emoji of Yourself on iPhone](#part1)
 * [Part 2: Make an Emoji of Yourself on Android](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Make an Emoji of Yourself on iPhone
 
 iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
@@ -859,13 +859,13 @@ For the lucky lot of you, let me walk you through how to make an emoji of yourse
 
 ![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5.Nose & Lips- After selecting your eye color, shape, and brows, choose a nose shape and a lipstick color and intensity.
 
 ![Select Eye Color](https://images.wondershare.com/filmora/article-images/select-eye-color.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 6.Eyewear/Headwear-Add glasses, adjust tint shade, color, and choose a hat, cap, or turban as you like. Finally, click **Done** to save the emoji.
 
@@ -923,10 +923,6 @@ Now you can make an emoji of yourself even on an Android phone with the Mirror e
 
 ![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Conclusion-Ready to Emoji Yourself?
 
 With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
@@ -940,6 +936,10 @@ Go on and make an emoji of yourself. Show your friends how awesome and unique yo
 Good luck ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -1342,6 +1342,10 @@ On the other hand, as a server owner, you can give others this role with the fol
 * **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
 * **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## FAQs About Discord Emojis
 
 ### 1\. Why Do I See Grey Emoji In The Emoji Menu?
@@ -1511,10 +1515,6 @@ Discord has thousands of custom emojis that you can easily add to your server th
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -1584,10 +1584,6 @@ Follow the steps below for either platform:
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
 ![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Select "Upload Emoji" to insert a custom emoji, either standard or animated
 * With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
@@ -1682,6 +1678,10 @@ Follow @Richard Bennett
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Liza Brown
 
  Mar 27, 2024• Proven solutions
@@ -1789,7 +1789,7 @@ Alongside using basic editing features like cutting, trimming or arranging video
 ![how to add emojis to videos android java](https://images.wondershare.com/filmora/article-images/wevideo-interface.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -1958,6 +1958,10 @@ Below are the basic steps about how to add emojis to YouTube videos anywhere usi
 
 ![how to add emojis to youtube videos](https://images.wondershare.com/filmora/article-images/add-emojis-to-video-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4:** You can now play around with editing options in Kapwing to adjust accordingly.
 
 ## How to Use Emojis on YouTube?
@@ -2064,6 +2068,10 @@ Performing basic video editing tasks like cutting or trimming the footage, choos
 
 Filmora is free to download. Import your videos after you launch the software, you then can add any animated emojis into wherever you want. Have a try now! Emojis inside are so Cute ![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Emojis to YouTube Videos?
 
 You can now add emojis to any of the YouTube videos using an online free tool called Kapwing.
@@ -2123,6 +2131,10 @@ If you are wondering about how to add emojis to Facebook videos then, unfortunat
 **Step 3:** Click on that emoji. This overlays that emoji onto that video clip. You can scale the emoji up and down and drag it anywhere on the video.
 
 ![how to add emojis to videos on imovie](https://images.wondershare.com/filmora/article-images/add-emojis-to-video-by-imovie.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image from YouSubtitles
 
@@ -2409,10 +2421,6 @@ Wondershare Filmora is a very good application for those that want a unique, fun
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -2521,10 +2529,6 @@ With that said, in the following sections, you will learn **how to use emojis on
 04 [Part 4: What’s New in Emojis in Windows 11](#part4)
 
 05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: The History of Emojis in Windows
 
@@ -2675,10 +2679,6 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 * Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
 
 ![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: What’s New in Emojis in Windows 11
 
@@ -2926,21 +2926,20 @@ Also, if the built-in emoji keyboard doesn’t have your favorite expressions an
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-get-hd-quality-quickly-enable-av1-in-youtube-settings-for-2024/"><u>[New] Get HD Quality Quickly Enable AV1 in YouTube Settings for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-understanding-magixs-acid-pro-and-its-market-rivals/"><u>[New] Understanding Magix's ACID Pro and Its Market Rivals</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-introduction-to-vlogging-tools-for-getting-started/"><u>[Updated] In 2024, Introduction to Vlogging Tools for Getting Started</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-iphones-best-camera-recording-aid/"><u>[Updated] IPhone's Best Camera Recording Aid</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-from-novice-to-pro-a-tactical-guide-to-snapchat-marketing/"><u>2024 Approved From Novice to Pro A Tactical Guide to Snapchat Marketing</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/best-solarmovie-alternatives-watch-movies-free-online-for-2024/"><u>Best SolarMovie Alternatives-Watch Movies Free Online for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210851254-9781401974510-cosmic-care/"><u>Cosmic Care | Free Book</u></a></li>
-<li><a href="https://games-able.techidaily.com/cutting-off-steam-membership-services/"><u>Cutting Off Steam Membership Services</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-make-memes-with-white-background-step-by-step/"><u>How to Make Memes with White Background Step by Step</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-resolve-failed-feature-update-installations-for-windows-11-version-1607/"><u>How to Resolve Failed Feature Update Installations for Windows 11 Version 1607</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-bitmoji-to-keyboard-for-2024/"><u>New How to Add Bitmoji to Keyboard for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-top-12-best-meme-makers-online-for-free/"><u>New In 2024, Top 12 Best Meme Makers Online for FREE</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-4-methods-of-ai-tool-governance-by-the-state/"><u>Top 4 Methods of AI Tool Governance by the State</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-10-funniest-subreddits-to-find-hilarious-memes-picked/"><u>Updated 2024 Approved 10 Funniest Subreddits to Find Hilarious Memes (Picked)</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-6-popular-animated-emoji-video-effects/"><u>Updated 6 Popular Animated Emoji Video Effects</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-top-10-storyboarding-software-freeandpaid/"><u>Updated Top 10 Storyboarding Software Free&Paid</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-livechat-recorder-pro-hd/"><u>[New] 2024 Approved LiveChat Recorder Pro HD</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-luts-utilization-in-movie-color-grading/"><u>[Updated] Luts Utilization in Movie Color Grading</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-popular-cartoon-characters-that-should-top-your-list-2023-updated-for-2024/"><u>10 Popular Cartoon Characters That Should Top Your List 2023 Updated for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/free-online-mpg-to-mp3-converter-by-movavi-easy-and-reliable-file-format-transformation/"><u>Free Online MPG to MP3 Converter by Movavi: Easy and Reliable File Format Transformation</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/gemini-vs-chatgpt-can-googles-newest-ai-challenge-the-leader-in-conversation/"><u>Gemini Vs. ChatGPT: Can Google's Newest AI Challenge the Leader in Conversation?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-add-emojis-to-discord-on-desktop-computer-and-mobile/"><u>New 2024 Approved How to Add Emojis To Discord on Desktop Computer and Mobile</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/new-era-of-convenience-apples-latest-update-introduces-game-changing-home-app-feature-techinnovate/"><u>New Era of Convenience: Apple's Latest Update Introduces Game-Changing Home App Feature | TechInnovate</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-video-slideshow-with-your-travel-photos/"><u>New How to Make Video Slideshow with Your Travel Photos</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-use-emojis-on-windows/"><u>New In 2024, How to Use Emojis on Windows</u></a></li>
+<li><a href="https://program-issues.techidaily.com/quick-solutions-overcome-genshin-impacts-startup-issues/"><u>Quick Solutions: Overcome Genshin Impact's Startup Issues</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/single-frame-solution-separate-and-save-pics-from-video-in-windows-photos/"><u>Single-Frame Solution Separate and Save Pics From Video in Windows Photos</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-guide-solving-rapid-control-interruptions-with-ease/"><u>Troubleshooting Guide: Solving Rapid Control Interruptions with Ease</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-6-popular-animated-emoji-video-effects/"><u>Updated 2024 Approved 6 Popular Animated Emoji Video Effects</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-solarmovie-alternatives-watch-movies-free-online/"><u>Updated 2024 Approved Best SolarMovie Alternatives-Watch Movies Free Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-solarmovie-alternatives-watch-movies-free-online-for-2024/"><u>Updated Best SolarMovie Alternatives-Watch Movies Free Online for 2024</u></a></li>
 </ul></div>
 
