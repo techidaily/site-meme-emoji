@@ -1,7 +1,7 @@
 ---
 title: Updated Best 10 Free Manga Sites to Read Online for 2024
-date: 2024-11-24T21:39:40.455Z
-updated: 2024-12-01T20:44:16.042Z
+date: 2024-12-03T17:58:53.270Z
+updated: 2024-12-09T18:47:52.230Z
 tags: 
   - ai
   - animation videos
@@ -798,102 +798,6 @@ Follow @Shanoon Cox
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-#### Step 1. Add Photo or Video Files
-
- In Organize tab, simply click the "Add Files" button to open the browse window, find your files and import them into the program, you can drag and drop photos or videos to organize them on storyboard. Click the Expand button to get a larger viewer.
-
-![Burn photos to dvd](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
-
-#### Step 2. Customize Photo Slideshow Transitions
-
- Generally speaking, transition effects will be automatically inserted between every two photos/videos when you import the photos. But you can customize them by clicking the Personalize tab, then drag and drop a transition from the list to the thumbnail between two slides.
-
- You are also able to add background music here: click the Music button and choose a music file from your computer.
-
-![Burn photos to dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
-
-#### Step 3. Choose DVD Menu
-
- Now switch to Create tab to author a DVD menu from template and burn to DVD disc quickly:
-
-* On the right hand side of the screen, double click on desired menu template to apply a DVD menu template.
-* Click the Edit button under the preview windows to customize your DVD menu or right click on menu for more options.
-* You can also make a professional DVD menu using dynamic DVD menu templates.
-
- BTW, if you don't want a DVD menu, just check the "Disable DVD Menu" option.
-
-![burn photo dvd disc](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
-
-#### Step 4. Burn Photos to DVD Disc
-
- Now click the Preview button beneath the preview window to make sure the photo DVD slideshow is exactly what you want. Go back to Personalize tab to change if necessary. After that, click "Burn" button to start burning your DVD slideshow to DVD.
-
- You can also output photo slideshow to watch on Youtube, Mobile Phone, iPhone, PSP, etc. through options on the left. Below are the instructions to burn DVD for watch on TV:
-
-![DVD Slideshow burn to DVD](https://images.wondershare.com/filmora/article-images/dvd-slideshow-burn-to-dvd.jpg)
-
-* Insert a blank DVD disc, and do the following.
-* Click "Burn to DVD". Then specify the number of DVD copies. You can also choose to generate ISO Image files or DVD Folders.
-* Make sure the PAL or NTSC TV Standard settings is right. If you don't know which standard is used in your country, click the "Help" button. The wrong TV standard would cause playback incompatibility problem.
-* Then click "Start" to burn DVD slideshow. If you have checked Create DVD Folder and/or Create DVD Image File options, the corresponding files will also be created to the specified folder.
-
- Now sit back and relax, when burning complete, insert the created DVD disc into your DVD player to watch photo DVD slideshow on TV.
-
- Learn more: [User Guide of DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### Part 2: More Photo to DVD Tips
-
-#### More about NTSC/PAL TV Standard
-
- Nowadays, there are three video formats around the world. But each one is incompatible with others. For instance, NTSC is used in North America, Canada and Japan; while most of other regions PAL/SECAM. To apply TV Standard in [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/), go to "**Create**" -> **Option** tab and locate TV Standard option to select NTSC or PAL. If you are not sure which one to choose, please click "Help" button, select your country, then click "OK" , the program will choose the right TV standard for you.
-
-#### Burn Photos to DVD/CD as Data Disc
-
- If you only want to burn photo to DVD for backup and further use, you only need a burning photo to DVD software like ImgBurn (Free) or Nero (commercial). These software helps you burn all digital media files to DVD, of course you can burn photos to DVD for backup purpose. Notice that some **photo DVD maker** allows you burn slideshow as well as the original photos. This way, you turn photos to DVD slideshow with transition, and at the same time, backup photos to DVD for other uses.
-
-#### Scan Photos to DVD - Digitize Photos
-
- If you use traditional camera and have got loads of photos in album, you can scan photos to computer so that convert photo to digital format. Afterwards, you can get more from these digital photos, like **backup photos to DVD**, send to others as DVD gift, make a photo DVD show to play on TV, etc. All these could be done with your favorite photo DVD maker software. Now see how to transform your printed photos to digital first:
-
-**Select a good photo scanner** \-> **Prepare your photos to scan** \-> **Start photo scanning** \-> **Adjust scanned photos**
-
- Scanning printed photos to computer is not an easy job. It needs patience and some tips and tricks. As you may know, some companies provide photo scanning service. For the Step 4, you can also adjust digital photos in your selected **photo DVD maker**. Anyway, you need to get your digital photos ready before you **burn photos to DVD** with transitions and music.
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
-
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
-
-* [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
-* [Part 2: More Photo to DVD Tips](#part2)
-
-### Part 1: How to Burn Photos to DVD with Transition, Titles and Music
-
- Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) can help you quickly create and burn photos to DVD. Download the free trial version this photo DVD maker first.
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
 #### Step 1. Add Photo or Video Files
 
  In Organize tab, simply click the "Add Files" button to open the browse window, find your files and import them into the program, you can drag and drop photos or videos to organize them on storyboard. Click the Expand button to get a larger viewer.
@@ -1007,6 +911,98 @@ Follow @Shanoon Cox
  BTW, if you don't want a DVD menu, just check the "Disable DVD Menu" option.
 
 ![burn photo dvd disc](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
+
+#### Step 4. Burn Photos to DVD Disc
+
+ Now click the Preview button beneath the preview window to make sure the photo DVD slideshow is exactly what you want. Go back to Personalize tab to change if necessary. After that, click "Burn" button to start burning your DVD slideshow to DVD.
+
+ You can also output photo slideshow to watch on Youtube, Mobile Phone, iPhone, PSP, etc. through options on the left. Below are the instructions to burn DVD for watch on TV:
+
+![DVD Slideshow burn to DVD](https://images.wondershare.com/filmora/article-images/dvd-slideshow-burn-to-dvd.jpg)
+
+* Insert a blank DVD disc, and do the following.
+* Click "Burn to DVD". Then specify the number of DVD copies. You can also choose to generate ISO Image files or DVD Folders.
+* Make sure the PAL or NTSC TV Standard settings is right. If you don't know which standard is used in your country, click the "Help" button. The wrong TV standard would cause playback incompatibility problem.
+* Then click "Start" to burn DVD slideshow. If you have checked Create DVD Folder and/or Create DVD Image File options, the corresponding files will also be created to the specified folder.
+
+ Now sit back and relax, when burning complete, insert the created DVD disc into your DVD player to watch photo DVD slideshow on TV.
+
+ Learn more: [User Guide of DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)
+
+### Part 2: More Photo to DVD Tips
+
+#### More about NTSC/PAL TV Standard
+
+ Nowadays, there are three video formats around the world. But each one is incompatible with others. For instance, NTSC is used in North America, Canada and Japan; while most of other regions PAL/SECAM. To apply TV Standard in [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/), go to "**Create**" -> **Option** tab and locate TV Standard option to select NTSC or PAL. If you are not sure which one to choose, please click "Help" button, select your country, then click "OK" , the program will choose the right TV standard for you.
+
+#### Burn Photos to DVD/CD as Data Disc
+
+ If you only want to burn photo to DVD for backup and further use, you only need a burning photo to DVD software like ImgBurn (Free) or Nero (commercial). These software helps you burn all digital media files to DVD, of course you can burn photos to DVD for backup purpose. Notice that some **photo DVD maker** allows you burn slideshow as well as the original photos. This way, you turn photos to DVD slideshow with transition, and at the same time, backup photos to DVD for other uses.
+
+#### Scan Photos to DVD - Digitize Photos
+
+ If you use traditional camera and have got loads of photos in album, you can scan photos to computer so that convert photo to digital format. Afterwards, you can get more from these digital photos, like **backup photos to DVD**, send to others as DVD gift, make a photo DVD show to play on TV, etc. All these could be done with your favorite photo DVD maker software. Now see how to transform your printed photos to digital first:
+
+**Select a good photo scanner** \-> **Prepare your photos to scan** \-> **Start photo scanning** \-> **Adjust scanned photos**
+
+ Scanning printed photos to computer is not an easy job. It needs patience and some tips and tricks. As you may know, some companies provide photo scanning service. For the Step 4, you can also adjust digital photos in your selected **photo DVD maker**. Anyway, you need to get your digital photos ready before you **burn photos to DVD** with transitions and music.
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
+
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+
+* [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
+* [Part 2: More Photo to DVD Tips](#part2)
+
+### Part 1: How to Burn Photos to DVD with Transition, Titles and Music
+
+ Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) can help you quickly create and burn photos to DVD. Download the free trial version this photo DVD maker first.
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+#### Step 1. Add Photo or Video Files
+
+ In Organize tab, simply click the "Add Files" button to open the browse window, find your files and import them into the program, you can drag and drop photos or videos to organize them on storyboard. Click the Expand button to get a larger viewer.
+
+![Burn photos to dvd](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
+
+#### Step 2. Customize Photo Slideshow Transitions
+
+ Generally speaking, transition effects will be automatically inserted between every two photos/videos when you import the photos. But you can customize them by clicking the Personalize tab, then drag and drop a transition from the list to the thumbnail between two slides.
+
+ You are also able to add background music here: click the Music button and choose a music file from your computer.
+
+![Burn photos to dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
+
+#### Step 3. Choose DVD Menu
+
+ Now switch to Create tab to author a DVD menu from template and burn to DVD disc quickly:
+
+* On the right hand side of the screen, double click on desired menu template to apply a DVD menu template.
+* Click the Edit button under the preview windows to customize your DVD menu or right click on menu for more options.
+* You can also make a professional DVD menu using dynamic DVD menu templates.
+
+ BTW, if you don't want a DVD menu, just check the "Disable DVD Menu" option.
+
+![burn photo dvd disc](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 4. Burn Photos to DVD Disc
 
@@ -1100,10 +1096,6 @@ For the lucky lot of you, let me walk you through how to make an emoji of yourse
 
 ![Adjust Emoji Color](https://images.wondershare.com/filmora/article-images/adjust-emoji-color.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3.Hairstyle-Select the style that mimics the real you or goes for your dream hair-do.
 
 ![Emoji Hairstyle](https://images.wondershare.com/filmora/article-images/emoji-hairstyle.jpg)
@@ -1250,312 +1242,320 @@ If you want to make an emoji of yourself that is more fun and personalized, from
 1.Install and launch Avatoon app.
 
 ![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
-
-2.Now, choose the face shape that best matches your features and also select your face color. Add freckles(if you have any).
-
-![Add Emoji Freckles](https://images.wondershare.com/filmora/article-images/add-emoji-freckles.jpg)
-
-3.Next up is the hairstyle. There is a range of hairstyles from straight to wavy. Pick one you like best. You can choose the eye shape, color, brow, nose, lips, and finally, add some funky or formal eyewear to complete the look. Press Save.
-
-4.After you make an emoji of yourself, you can further fine-tune it by adding detailed features and accessories using coins. Choose a stylish dress for your avatar from the Clothes tab or add a fun background.
-
-5.Click on Photoboothto fit your emoji in a themed photo for an event or celebration.
-
-6.Click on Poses and select your pose and share directly to any social media platform or save to phone.
-
-## Part 2: Make an Emoji of Yourself on Android
-
-Now you can make an emoji of yourself even on an Android phone with the Mirror emoji app. Take your texting experience to the next level. Quickly make an emoji of yourself and wow your friends and family with the cute mini version of yourself.
-
-1.Install and launch Mirror. Now, to make an emoji of yourself for your current look, take a selfie or click the gallery icon to choose an existing image to emoji yourself.
-
-![Download Mirror Emoji App](https://images.wondershare.com/filmora/article-images/download-mirror-emoji-app.jpg)
-
-2.Click the left one to make an original avatar or the right one if you wish to make an emoji of yourself as an anime. Click Next.
-
-![Go To Next Step](https://images.wondershare.com/filmora/article-images/go-to-next-step.jpg)
-
-3.Now, customize your emoji. Add a hairstyle, choose your glasses, cap, headphones, turban, scarf, or even devil horns.
-
-![Customize Emoji Setting](https://images.wondershare.com/filmora/article-images/customize-emoji-setting.jpg)
-
-4.Customize your dress color to your liking. Then, click **Next**.
-
-![Choose Dress Color](https://images.wondershare.com/filmora/article-images/choose-dress-color.jpg)
-
-5.Once you make an emoji of yourself, Mirror will display a range of fun stickers for instant sharing.
-
-![Display Emoji Sticker](https://images.wondershare.com/filmora/article-images/display-emoji-sticker.jpg)
-
-6.Click on any sticker, choose a mood using the emojis displayed and click to share or save to the device.
-
-![Save Emoji Of Yourself](https://images.wondershare.com/filmora/article-images/save-emoji-of-yourself.jpg)
-
-7.In the Sticker backstab, choose a themed sticker set and click **Add to WhatsApp**.
-
-![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
-
-### Conclusion-Ready to Emoji Yourself?
-
-With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
-
-Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
-
-Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
-
-Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
-
-Good luck ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-The introduction of stickers and emojis have transformed the texting experience—no more boring texts. Just make an emoji of yourself in every mood and instantly express yourself in a better and funnier way.
-
-Whether you own an iPhone or an Android device, you can easily emoji yourself that exactly mimics your appearance and reaction. It’s time to up your chatting game and make exciting emojis.
-
-In this article, we will show you how to amaze your friends by teaching you to make an emoji of yourself in no time.
-
-* [Part 1: Make an Emoji of Yourself on iPhone](#part1)
-* [Part 2: Make an Emoji of Yourself on Android](#part2)
-
-## Part 1: Make an Emoji of Yourself on iPhone
-
-iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
-
-Here’s how you can make an emoji of yourself in 2 easy ways:
-
-#### Method 1-By the iPhone Message app
-
-iPhone has now introduced an in-built feature to let you make an emoji of yourself without having to download any other apps. However, you can only make an emoji of yourself in iOS 13 or later.
-
-For the lucky lot of you, let me walk you through how to make an emoji of yourself in a few simple steps:
-
-1.Open your iMessages. Go to a previous chat or tap the New Message Make sure your Appstore icon is toggled on to display the app tray. Hit the Animoji icon, represented by the monkey. Swipe to find the + plus sign for New Memoji to emoji yourself.
-
-![Open New Messages](https://images.wondershare.com/filmora/article-images/open-new-messages.jpg)
-
-2.Now you can make an emoji of yourself by adding even the smallest details. Start by selecting your skin color. You can even add freckles or adjust your skin color’s warmth or paleness with a slider.
-
-![Adjust Emoji Color](https://images.wondershare.com/filmora/article-images/adjust-emoji-color.jpg)
-
-3.Hairstyle-Select the style that mimics the real you or goes for your dream hair-do.
-
-![Emoji Hairstyle](https://images.wondershare.com/filmora/article-images/emoji-hairstyle.jpg)
-
-4.Head Shape-Select the age group from kids, adults, old, and your face cut by choosing the chin that best fits you.
-
-![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
-
-5.Nose & Lips- After selecting your eye color, shape, and brows, choose a nose shape and a lipstick color and intensity.
-
-![Select Eye Color](https://images.wondershare.com/filmora/article-images/select-eye-color.jpg)
-
-6.Eyewear/Headwear-Add glasses, adjust tint shade, color, and choose a hat, cap, or turban as you like. Finally, click **Done** to save the emoji.
-
-![Emoji Yourself](https://images.wondershare.com/filmora/article-images/emoji-yourself.jpg)
-
-#### Method 2-Using the Avatoon app
-
-If you want to make an emoji of yourself that is more fun and personalized, from your dress to your pose, Avatoon is your way to go. With more than 500 customizable options, Avatoon lets you make an emoji of yourself meticulously, allowing you add avid details that pave the way for a hilariously amazing texting experience
-
-1.Install and launch Avatoon app.
-
-![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
-
-2.Now, choose the face shape that best matches your features and also select your face color. Add freckles(if you have any).
-
-![Add Emoji Freckles](https://images.wondershare.com/filmora/article-images/add-emoji-freckles.jpg)
-
-3.Next up is the hairstyle. There is a range of hairstyles from straight to wavy. Pick one you like best. You can choose the eye shape, color, brow, nose, lips, and finally, add some funky or formal eyewear to complete the look. Press Save.
-
-4.After you make an emoji of yourself, you can further fine-tune it by adding detailed features and accessories using coins. Choose a stylish dress for your avatar from the Clothes tab or add a fun background.
-
-5.Click on Photoboothto fit your emoji in a themed photo for an event or celebration.
-
-6.Click on Poses and select your pose and share directly to any social media platform or save to phone.
-
-## Part 2: Make an Emoji of Yourself on Android
-
-Now you can make an emoji of yourself even on an Android phone with the Mirror emoji app. Take your texting experience to the next level. Quickly make an emoji of yourself and wow your friends and family with the cute mini version of yourself.
-
-1.Install and launch Mirror. Now, to make an emoji of yourself for your current look, take a selfie or click the gallery icon to choose an existing image to emoji yourself.
-
-![Download Mirror Emoji App](https://images.wondershare.com/filmora/article-images/download-mirror-emoji-app.jpg)
-
-2.Click the left one to make an original avatar or the right one if you wish to make an emoji of yourself as an anime. Click Next.
-
-![Go To Next Step](https://images.wondershare.com/filmora/article-images/go-to-next-step.jpg)
-
-3.Now, customize your emoji. Add a hairstyle, choose your glasses, cap, headphones, turban, scarf, or even devil horns.
-
-![Customize Emoji Setting](https://images.wondershare.com/filmora/article-images/customize-emoji-setting.jpg)
-
-4.Customize your dress color to your liking. Then, click **Next**.
-
-![Choose Dress Color](https://images.wondershare.com/filmora/article-images/choose-dress-color.jpg)
-
-5.Once you make an emoji of yourself, Mirror will display a range of fun stickers for instant sharing.
-
-![Display Emoji Sticker](https://images.wondershare.com/filmora/article-images/display-emoji-sticker.jpg)
-
-6.Click on any sticker, choose a mood using the emojis displayed and click to share or save to the device.
-
-![Save Emoji Of Yourself](https://images.wondershare.com/filmora/article-images/save-emoji-of-yourself.jpg)
-
-7.In the Sticker backstab, choose a themed sticker set and click **Add to WhatsApp**.
-
-![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
-
-### Conclusion-Ready to Emoji Yourself?
-
-With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
-
-Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
-
-Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
-
-Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
-
-Good luck ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-The introduction of stickers and emojis have transformed the texting experience—no more boring texts. Just make an emoji of yourself in every mood and instantly express yourself in a better and funnier way.
-
-Whether you own an iPhone or an Android device, you can easily emoji yourself that exactly mimics your appearance and reaction. It’s time to up your chatting game and make exciting emojis.
-
-In this article, we will show you how to amaze your friends by teaching you to make an emoji of yourself in no time.
-
-* [Part 1: Make an Emoji of Yourself on iPhone](#part1)
-* [Part 2: Make an Emoji of Yourself on Android](#part2)
-
-## Part 1: Make an Emoji of Yourself on iPhone
-
-iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
-
-Here’s how you can make an emoji of yourself in 2 easy ways:
-
-#### Method 1-By the iPhone Message app
-
-iPhone has now introduced an in-built feature to let you make an emoji of yourself without having to download any other apps. However, you can only make an emoji of yourself in iOS 13 or later.
-
-For the lucky lot of you, let me walk you through how to make an emoji of yourself in a few simple steps:
-
-1.Open your iMessages. Go to a previous chat or tap the New Message Make sure your Appstore icon is toggled on to display the app tray. Hit the Animoji icon, represented by the monkey. Swipe to find the + plus sign for New Memoji to emoji yourself.
-
-![Open New Messages](https://images.wondershare.com/filmora/article-images/open-new-messages.jpg)
-
-2.Now you can make an emoji of yourself by adding even the smallest details. Start by selecting your skin color. You can even add freckles or adjust your skin color’s warmth or paleness with a slider.
-
-![Adjust Emoji Color](https://images.wondershare.com/filmora/article-images/adjust-emoji-color.jpg)
-
-3.Hairstyle-Select the style that mimics the real you or goes for your dream hair-do.
-
-![Emoji Hairstyle](https://images.wondershare.com/filmora/article-images/emoji-hairstyle.jpg)
-
-4.Head Shape-Select the age group from kids, adults, old, and your face cut by choosing the chin that best fits you.
-
-![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
-
-5.Nose & Lips- After selecting your eye color, shape, and brows, choose a nose shape and a lipstick color and intensity.
-
-![Select Eye Color](https://images.wondershare.com/filmora/article-images/select-eye-color.jpg)
-
-6.Eyewear/Headwear-Add glasses, adjust tint shade, color, and choose a hat, cap, or turban as you like. Finally, click **Done** to save the emoji.
-
-![Emoji Yourself](https://images.wondershare.com/filmora/article-images/emoji-yourself.jpg)
-
-#### Method 2-Using the Avatoon app
-
-If you want to make an emoji of yourself that is more fun and personalized, from your dress to your pose, Avatoon is your way to go. With more than 500 customizable options, Avatoon lets you make an emoji of yourself meticulously, allowing you add avid details that pave the way for a hilariously amazing texting experience
-
-1.Install and launch Avatoon app.
-
-![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
-
-2.Now, choose the face shape that best matches your features and also select your face color. Add freckles(if you have any).
-
-![Add Emoji Freckles](https://images.wondershare.com/filmora/article-images/add-emoji-freckles.jpg)
-
-3.Next up is the hairstyle. There is a range of hairstyles from straight to wavy. Pick one you like best. You can choose the eye shape, color, brow, nose, lips, and finally, add some funky or formal eyewear to complete the look. Press Save.
-
-4.After you make an emoji of yourself, you can further fine-tune it by adding detailed features and accessories using coins. Choose a stylish dress for your avatar from the Clothes tab or add a fun background.
-
-5.Click on Photoboothto fit your emoji in a themed photo for an event or celebration.
-
-6.Click on Poses and select your pose and share directly to any social media platform or save to phone.
-
-## Part 2: Make an Emoji of Yourself on Android
-
-Now you can make an emoji of yourself even on an Android phone with the Mirror emoji app. Take your texting experience to the next level. Quickly make an emoji of yourself and wow your friends and family with the cute mini version of yourself.
-
-1.Install and launch Mirror. Now, to make an emoji of yourself for your current look, take a selfie or click the gallery icon to choose an existing image to emoji yourself.
-
-![Download Mirror Emoji App](https://images.wondershare.com/filmora/article-images/download-mirror-emoji-app.jpg)
-
-2.Click the left one to make an original avatar or the right one if you wish to make an emoji of yourself as an anime. Click Next.
-
-![Go To Next Step](https://images.wondershare.com/filmora/article-images/go-to-next-step.jpg)
-
-3.Now, customize your emoji. Add a hairstyle, choose your glasses, cap, headphones, turban, scarf, or even devil horns.
-
-![Customize Emoji Setting](https://images.wondershare.com/filmora/article-images/customize-emoji-setting.jpg)
-
-4.Customize your dress color to your liking. Then, click **Next**.
-
-![Choose Dress Color](https://images.wondershare.com/filmora/article-images/choose-dress-color.jpg)
-
-5.Once you make an emoji of yourself, Mirror will display a range of fun stickers for instant sharing.
-
-![Display Emoji Sticker](https://images.wondershare.com/filmora/article-images/display-emoji-sticker.jpg)
-
-6.Click on any sticker, choose a mood using the emojis displayed and click to share or save to the device.
-
-![Save Emoji Of Yourself](https://images.wondershare.com/filmora/article-images/save-emoji-of-yourself.jpg)
-
-7.In the Sticker backstab, choose a themed sticker set and click **Add to WhatsApp**.
-
-![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
-
-### Conclusion-Ready to Emoji Yourself?
-
-With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
-
-Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
-
-Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
-
-Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
-
-Good luck ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+2.Now, choose the face shape that best matches your features and also select your face color. Add freckles(if you have any).
+
+![Add Emoji Freckles](https://images.wondershare.com/filmora/article-images/add-emoji-freckles.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+3.Next up is the hairstyle. There is a range of hairstyles from straight to wavy. Pick one you like best. You can choose the eye shape, color, brow, nose, lips, and finally, add some funky or formal eyewear to complete the look. Press Save.
+
+4.After you make an emoji of yourself, you can further fine-tune it by adding detailed features and accessories using coins. Choose a stylish dress for your avatar from the Clothes tab or add a fun background.
+
+5.Click on Photoboothto fit your emoji in a themed photo for an event or celebration.
+
+6.Click on Poses and select your pose and share directly to any social media platform or save to phone.
+
+## Part 2: Make an Emoji of Yourself on Android
+
+Now you can make an emoji of yourself even on an Android phone with the Mirror emoji app. Take your texting experience to the next level. Quickly make an emoji of yourself and wow your friends and family with the cute mini version of yourself.
+
+1.Install and launch Mirror. Now, to make an emoji of yourself for your current look, take a selfie or click the gallery icon to choose an existing image to emoji yourself.
+
+![Download Mirror Emoji App](https://images.wondershare.com/filmora/article-images/download-mirror-emoji-app.jpg)
+
+2.Click the left one to make an original avatar or the right one if you wish to make an emoji of yourself as an anime. Click Next.
+
+![Go To Next Step](https://images.wondershare.com/filmora/article-images/go-to-next-step.jpg)
+
+3.Now, customize your emoji. Add a hairstyle, choose your glasses, cap, headphones, turban, scarf, or even devil horns.
+
+![Customize Emoji Setting](https://images.wondershare.com/filmora/article-images/customize-emoji-setting.jpg)
+
+4.Customize your dress color to your liking. Then, click **Next**.
+
+![Choose Dress Color](https://images.wondershare.com/filmora/article-images/choose-dress-color.jpg)
+
+5.Once you make an emoji of yourself, Mirror will display a range of fun stickers for instant sharing.
+
+![Display Emoji Sticker](https://images.wondershare.com/filmora/article-images/display-emoji-sticker.jpg)
+
+6.Click on any sticker, choose a mood using the emojis displayed and click to share or save to the device.
+
+![Save Emoji Of Yourself](https://images.wondershare.com/filmora/article-images/save-emoji-of-yourself.jpg)
+
+7.In the Sticker backstab, choose a themed sticker set and click **Add to WhatsApp**.
+
+![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
+
+### Conclusion-Ready to Emoji Yourself?
+
+With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
+
+Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
+
+Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
+
+Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
+
+Good luck ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The introduction of stickers and emojis have transformed the texting experience—no more boring texts. Just make an emoji of yourself in every mood and instantly express yourself in a better and funnier way.
+
+Whether you own an iPhone or an Android device, you can easily emoji yourself that exactly mimics your appearance and reaction. It’s time to up your chatting game and make exciting emojis.
+
+In this article, we will show you how to amaze your friends by teaching you to make an emoji of yourself in no time.
+
+* [Part 1: Make an Emoji of Yourself on iPhone](#part1)
+* [Part 2: Make an Emoji of Yourself on Android](#part2)
+
+## Part 1: Make an Emoji of Yourself on iPhone
+
+iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
+
+Here’s how you can make an emoji of yourself in 2 easy ways:
+
+#### Method 1-By the iPhone Message app
+
+iPhone has now introduced an in-built feature to let you make an emoji of yourself without having to download any other apps. However, you can only make an emoji of yourself in iOS 13 or later.
+
+For the lucky lot of you, let me walk you through how to make an emoji of yourself in a few simple steps:
+
+1.Open your iMessages. Go to a previous chat or tap the New Message Make sure your Appstore icon is toggled on to display the app tray. Hit the Animoji icon, represented by the monkey. Swipe to find the + plus sign for New Memoji to emoji yourself.
+
+![Open New Messages](https://images.wondershare.com/filmora/article-images/open-new-messages.jpg)
+
+2.Now you can make an emoji of yourself by adding even the smallest details. Start by selecting your skin color. You can even add freckles or adjust your skin color’s warmth or paleness with a slider.
+
+![Adjust Emoji Color](https://images.wondershare.com/filmora/article-images/adjust-emoji-color.jpg)
+
+3.Hairstyle-Select the style that mimics the real you or goes for your dream hair-do.
+
+![Emoji Hairstyle](https://images.wondershare.com/filmora/article-images/emoji-hairstyle.jpg)
+
+4.Head Shape-Select the age group from kids, adults, old, and your face cut by choosing the chin that best fits you.
+
+![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
+
+5.Nose & Lips- After selecting your eye color, shape, and brows, choose a nose shape and a lipstick color and intensity.
+
+![Select Eye Color](https://images.wondershare.com/filmora/article-images/select-eye-color.jpg)
+
+6.Eyewear/Headwear-Add glasses, adjust tint shade, color, and choose a hat, cap, or turban as you like. Finally, click **Done** to save the emoji.
+
+![Emoji Yourself](https://images.wondershare.com/filmora/article-images/emoji-yourself.jpg)
+
+#### Method 2-Using the Avatoon app
+
+If you want to make an emoji of yourself that is more fun and personalized, from your dress to your pose, Avatoon is your way to go. With more than 500 customizable options, Avatoon lets you make an emoji of yourself meticulously, allowing you add avid details that pave the way for a hilariously amazing texting experience
+
+1.Install and launch Avatoon app.
+
+![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
+
+2.Now, choose the face shape that best matches your features and also select your face color. Add freckles(if you have any).
+
+![Add Emoji Freckles](https://images.wondershare.com/filmora/article-images/add-emoji-freckles.jpg)
+
+3.Next up is the hairstyle. There is a range of hairstyles from straight to wavy. Pick one you like best. You can choose the eye shape, color, brow, nose, lips, and finally, add some funky or formal eyewear to complete the look. Press Save.
+
+4.After you make an emoji of yourself, you can further fine-tune it by adding detailed features and accessories using coins. Choose a stylish dress for your avatar from the Clothes tab or add a fun background.
+
+5.Click on Photoboothto fit your emoji in a themed photo for an event or celebration.
+
+6.Click on Poses and select your pose and share directly to any social media platform or save to phone.
+
+## Part 2: Make an Emoji of Yourself on Android
+
+Now you can make an emoji of yourself even on an Android phone with the Mirror emoji app. Take your texting experience to the next level. Quickly make an emoji of yourself and wow your friends and family with the cute mini version of yourself.
+
+1.Install and launch Mirror. Now, to make an emoji of yourself for your current look, take a selfie or click the gallery icon to choose an existing image to emoji yourself.
+
+![Download Mirror Emoji App](https://images.wondershare.com/filmora/article-images/download-mirror-emoji-app.jpg)
+
+2.Click the left one to make an original avatar or the right one if you wish to make an emoji of yourself as an anime. Click Next.
+
+![Go To Next Step](https://images.wondershare.com/filmora/article-images/go-to-next-step.jpg)
+
+3.Now, customize your emoji. Add a hairstyle, choose your glasses, cap, headphones, turban, scarf, or even devil horns.
+
+![Customize Emoji Setting](https://images.wondershare.com/filmora/article-images/customize-emoji-setting.jpg)
+
+4.Customize your dress color to your liking. Then, click **Next**.
+
+![Choose Dress Color](https://images.wondershare.com/filmora/article-images/choose-dress-color.jpg)
+
+5.Once you make an emoji of yourself, Mirror will display a range of fun stickers for instant sharing.
+
+![Display Emoji Sticker](https://images.wondershare.com/filmora/article-images/display-emoji-sticker.jpg)
+
+6.Click on any sticker, choose a mood using the emojis displayed and click to share or save to the device.
+
+![Save Emoji Of Yourself](https://images.wondershare.com/filmora/article-images/save-emoji-of-yourself.jpg)
+
+7.In the Sticker backstab, choose a themed sticker set and click **Add to WhatsApp**.
+
+![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
+
+### Conclusion-Ready to Emoji Yourself?
+
+With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
+
+Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
+
+Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
+
+Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
+
+Good luck ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The introduction of stickers and emojis have transformed the texting experience—no more boring texts. Just make an emoji of yourself in every mood and instantly express yourself in a better and funnier way.
+
+Whether you own an iPhone or an Android device, you can easily emoji yourself that exactly mimics your appearance and reaction. It’s time to up your chatting game and make exciting emojis.
+
+In this article, we will show you how to amaze your friends by teaching you to make an emoji of yourself in no time.
+
+* [Part 1: Make an Emoji of Yourself on iPhone](#part1)
+* [Part 2: Make an Emoji of Yourself on Android](#part2)
+
+## Part 1: Make an Emoji of Yourself on iPhone
+
+iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
+
+Here’s how you can make an emoji of yourself in 2 easy ways:
+
+#### Method 1-By the iPhone Message app
+
+iPhone has now introduced an in-built feature to let you make an emoji of yourself without having to download any other apps. However, you can only make an emoji of yourself in iOS 13 or later.
+
+For the lucky lot of you, let me walk you through how to make an emoji of yourself in a few simple steps:
+
+1.Open your iMessages. Go to a previous chat or tap the New Message Make sure your Appstore icon is toggled on to display the app tray. Hit the Animoji icon, represented by the monkey. Swipe to find the + plus sign for New Memoji to emoji yourself.
+
+![Open New Messages](https://images.wondershare.com/filmora/article-images/open-new-messages.jpg)
+
+2.Now you can make an emoji of yourself by adding even the smallest details. Start by selecting your skin color. You can even add freckles or adjust your skin color’s warmth or paleness with a slider.
+
+![Adjust Emoji Color](https://images.wondershare.com/filmora/article-images/adjust-emoji-color.jpg)
+
+3.Hairstyle-Select the style that mimics the real you or goes for your dream hair-do.
+
+![Emoji Hairstyle](https://images.wondershare.com/filmora/article-images/emoji-hairstyle.jpg)
+
+4.Head Shape-Select the age group from kids, adults, old, and your face cut by choosing the chin that best fits you.
+
+![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
+
+5.Nose & Lips- After selecting your eye color, shape, and brows, choose a nose shape and a lipstick color and intensity.
+
+![Select Eye Color](https://images.wondershare.com/filmora/article-images/select-eye-color.jpg)
+
+6.Eyewear/Headwear-Add glasses, adjust tint shade, color, and choose a hat, cap, or turban as you like. Finally, click **Done** to save the emoji.
+
+![Emoji Yourself](https://images.wondershare.com/filmora/article-images/emoji-yourself.jpg)
+
+#### Method 2-Using the Avatoon app
+
+If you want to make an emoji of yourself that is more fun and personalized, from your dress to your pose, Avatoon is your way to go. With more than 500 customizable options, Avatoon lets you make an emoji of yourself meticulously, allowing you add avid details that pave the way for a hilariously amazing texting experience
+
+1.Install and launch Avatoon app.
+
+![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
+
+2.Now, choose the face shape that best matches your features and also select your face color. Add freckles(if you have any).
+
+![Add Emoji Freckles](https://images.wondershare.com/filmora/article-images/add-emoji-freckles.jpg)
+
+3.Next up is the hairstyle. There is a range of hairstyles from straight to wavy. Pick one you like best. You can choose the eye shape, color, brow, nose, lips, and finally, add some funky or formal eyewear to complete the look. Press Save.
+
+4.After you make an emoji of yourself, you can further fine-tune it by adding detailed features and accessories using coins. Choose a stylish dress for your avatar from the Clothes tab or add a fun background.
+
+5.Click on Photoboothto fit your emoji in a themed photo for an event or celebration.
+
+6.Click on Poses and select your pose and share directly to any social media platform or save to phone.
+
+## Part 2: Make an Emoji of Yourself on Android
+
+Now you can make an emoji of yourself even on an Android phone with the Mirror emoji app. Take your texting experience to the next level. Quickly make an emoji of yourself and wow your friends and family with the cute mini version of yourself.
+
+1.Install and launch Mirror. Now, to make an emoji of yourself for your current look, take a selfie or click the gallery icon to choose an existing image to emoji yourself.
+
+![Download Mirror Emoji App](https://images.wondershare.com/filmora/article-images/download-mirror-emoji-app.jpg)
+
+2.Click the left one to make an original avatar or the right one if you wish to make an emoji of yourself as an anime. Click Next.
+
+![Go To Next Step](https://images.wondershare.com/filmora/article-images/go-to-next-step.jpg)
+
+3.Now, customize your emoji. Add a hairstyle, choose your glasses, cap, headphones, turban, scarf, or even devil horns.
+
+![Customize Emoji Setting](https://images.wondershare.com/filmora/article-images/customize-emoji-setting.jpg)
+
+4.Customize your dress color to your liking. Then, click **Next**.
+
+![Choose Dress Color](https://images.wondershare.com/filmora/article-images/choose-dress-color.jpg)
+
+5.Once you make an emoji of yourself, Mirror will display a range of fun stickers for instant sharing.
+
+![Display Emoji Sticker](https://images.wondershare.com/filmora/article-images/display-emoji-sticker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+6.Click on any sticker, choose a mood using the emojis displayed and click to share or save to the device.
+
+![Save Emoji Of Yourself](https://images.wondershare.com/filmora/article-images/save-emoji-of-yourself.jpg)
+
+7.In the Sticker backstab, choose a themed sticker set and click **Add to WhatsApp**.
+
+![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
+
+### Conclusion-Ready to Emoji Yourself?
+
+With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
+
+Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
+
+Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
+
+Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
+
+Good luck ![![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -1705,10 +1705,6 @@ Nevertheless, it would be a good idea to learn how to launch the emojis keyboard
 
 ![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
 
 As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
@@ -1722,115 +1718,6 @@ As for the shortcuts, depending on the type of expression you want to convey, th
 …and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
 
 **Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
 
@@ -1915,6 +1802,10 @@ Nevertheless, it would be a good idea to learn how to launch the emojis keyboard
 
 ![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
 
 As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
@@ -1940,6 +1831,10 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 * From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
 
 ![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
 
@@ -1978,6 +1873,111 @@ If the built-in emoji library doesn’t contain your favorite expressions, you c
 * Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
 
 ![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -2041,6 +2041,10 @@ Also, if the built-in emoji keyboard doesn’t have your favorite expressions an
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### About FLV Video (Flash Video)
 
  Flash Video (\*.FLV) is a container file format used to deliver video over the internet using Adobe Flash Player versions 6-10 (developed by Macromedia). Flash Video content may also be embedded within SWF files. FLV videos are widely used by international companies, including YouTube, Google Video, Yahoo! Video, metacafe, Reuters.com, and many other news providers. Flash Video could be watched on most operating systems, via the Adobe Flash Player and web browser plugin, or desired third-party FLV Players.
@@ -2134,6 +2138,10 @@ Follow @Shanoon Cox
  Select Flash Video format as the output and make advanced settings by clicking Settings button. Finally, click Burn and wail a while, you get your FLV video to sharing on YouTube, Facebook, MySpace, Mobile Phone. Alternatively, play FLV video on computer via stand-alone FLV player.
 
 ![create flv slideshow](https://images.wondershare.com/topic/photo-editing/create-flv-slideshow.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### FLV Slideshow Tips
 
@@ -2580,10 +2588,6 @@ Check your wardrobe and get all the toys out from there. Set them as a story and
 
 ![filmora](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-header.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora video editor](https://images.wondershare.com/filmora/filmora13/side-brand-filmora13.png)
@@ -2671,10 +2675,6 @@ There are movements and shoot arrangements, like a few more major elements you m
 To create stop motion animation, beginners and kids require different objects. Among them, few things are common like cameras, tripods, lights etc. In the case of kids, you can start practicing at home with available items like a big table to keep objects on them. But for beginners, can start from a small studio with various angle lights and camera arrangements.
 
 However, even for the beginner, the home could be the best option instead of a studio.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: 20 Best Stop Animation Ideas for Kids and Beginners
 
@@ -3065,17 +3065,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-from-stillness-to-stirring-tips-for-bouncing-text/"><u>[New] 2024 Approved From Stillness to Stirring Tips for Bouncing Text</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-setting-up-zoom-meetings-a-comprehensible-android-methodology/"><u>[Updated] Setting Up Zoom Meetings A Comprehensible Android Methodology</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-the-logic-of-imovies-trim-feature/"><u>[Updated] The Logic of iMovie's Trim Feature</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/add-emojis-to-videos-on-youtubefacebooksnapchat-step-by-step-guide-for-2024/"><u>Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/from-one-continent-to-another-on-your-nintendo-switch/"><u>From One Continent to Another on Your Nintendo Switch</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-final-cut-pro-x-on-steroids-top-plugins-to-boost-productivity/"><u>In 2024, Final Cut Pro X on Steroids Top Plugins to Boost Productivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/m1-surge-protector-robust-power-management-with-built-in-charging-capabilities-for-your-devices/"><u>M1 Surge Protector - Robust Power Management with Built-In Charging Capabilities for Your Devices</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-imovie-photo-slideshow-with-music-for-2024/"><u>New How to Make a iMovie Photo Slideshow with Music for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-record-and-edit-an-animoji-or-memoji-karaoke-music-video/"><u>New How to Record and Edit an Animoji or Memoji Karaoke Music Video?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-memoji-talk-make-memoji-video-on-your-own/"><u>New In 2024, How to Make Memoji Talk-Make Memoji Video On Your Own</u></a></li>
-<li><a href="https://win-hacks.techidaily.com/step-by-step-tutorial-on-shifting-video-files-from-ios-devices-to-a-separate-hard-disk/"><u>Step-by-Step Tutorial on Shifting Video Files From iOS Devices to a Separate Hard Disk</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-nubia-red-magic-8s-proplus-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Nubia Red Magic 8S Pro+? Fixed | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-essential-guide-prime-auto-camera-systems-for-2024/"><u>[New] Essential Guide Prime Auto Camera Systems for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-effortless-typography-expansion-in-after-effects/"><u>[New] In 2024, Effortless Typography Expansion in After Effects</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/effortless-strategies-to-correct-the-hulu-error-code-p-dev340-problem/"><u>Effortless Strategies to Correct the Hulu Error Code P-DEV340 Problem</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/guide-installing-properly-matched-dell-network-drivers-for-win7-computers/"><u>Guide: Installing Properly Matched Dell Network Drivers for Win7 Computers</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-6-plus-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 6 Plus Without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-poco-x5-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Poco X5 to Gmail | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-best-emoji-removers-to-remove-emojis-from-pictures-onlinepcmobile/"><u>New 2024 Approved Best Emoji Removers to Remove Emojis From Pictures Online/PC/Mobile</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-top-6-animated-emoji-video-effects/"><u>New Top 6 Animated Emoji Video Effects</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/upcoming-autumn-release-discover-all-the-latest-innovations-from-apple-for-iphone-ipad-mac-and-beyond-spotlight-on-ai-features-techzooming/"><u>Upcoming Autumn Release: Discover All the Latest Innovations From Apple for iPhone, iPad, Mac, and Beyond - Spotlight on AI Features | TechZooming</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-use-emojis-on-windows-10-and-windows-11/"><u>Updated 2024 Approved How to Use Emojis on Windows 10 and Windows 11?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-8-best-meme-maker-app-to-create-memes-with-your-own-picture-for-2024/"><u>Updated 8 Best Meme Maker App to Create Memes with Your Own Picture for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-photo-slideshow-maker-how-to-make-a-photo-slideshow/"><u>Updated Best Photo Slideshow Maker How to Make a Photo Slideshow</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-emoji-removers-to-remove-emojis-from-pictures/"><u>Updated In 2024, Best Emoji Removers to Remove Emojis From Pictures</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/wie-man-die-kapazitat-von-raspberry-pi-sd-laufwerken-in-verschiedenen-windows-versionen-kopiert/"><u>Wie Man Die Kapazität Von Raspberry Pi SD-Laufwerken in Verschiedenen Windows Versionen Kopiert</u></a></li>
 </ul></div>
 

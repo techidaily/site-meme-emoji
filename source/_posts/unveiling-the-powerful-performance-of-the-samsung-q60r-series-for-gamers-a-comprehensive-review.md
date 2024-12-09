@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Powerful Performance of the Samsung Q60R Series for Gamers - A Comprehensive Review
-date: 2024-11-26T23:11:22.978Z
-updated: 2024-12-01T23:11:00.812Z
+date: 2024-12-04T16:39:59.744Z
+updated: 2024-12-09T17:42:13.914Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Powerful Performance of the Samsung Q60R Series for Gamers - A Comprehensive Review
@@ -13,9 +13,17 @@ thumbnail: https://www.lifewire.com/thmb/FjFx4B7uI3LcbqTlG2QDx1hPPRQ=/400x300/fi
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/AIM68phvq5X0vRf1yv3G8I9S2ic=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -40,10 +48,6 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $276](https://www.amazon.com/dp/B08G9J44ZN?tag=lifewire-onsite-prod-20&ascsubtag=5085770%7Cn852b6f87dac743c99d9ca07d1832825a20%7CB08G9J44ZN) [View On Walmart $285](https://www.walmart.com/ip/606518560) [View On Best Buy $300](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fmicrosoft-xbox-series-s-512-gb-all-digital-console-disc-free-gaming-white%2F6430277.p%3FskuId%3D6430277)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Microsoft Xbox Series S
 
@@ -74,25 +78,21 @@ Lifewire / Jeremy Laukkonen
 
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Sleek and compact**
 
  The Xbox Series S is small, and it's almost impossible to oversell that point. I had seen pictures and videos of the console and the spec sheet, but I was still surprised at how compact this thing was when I unboxed it. It's smaller than the Xbox One S, and Microsoft bills it as "our smallest Xbox ever." That's especially noteworthy since Microsoft and Sony went exceptionally big with their flagship consoles, the Series X and PlayStation 5.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
 
@@ -142,10 +142,6 @@ Lifewire / Jeremy Laukkonen
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
  The biggest problem with the Xbox Series S is the lack of storage. Unlike the Series X, which packs in a 1TB drive, the Series S only offers 512GB of space. That's an extremely shallow pool to swim in when dealing with an all-digital console, as you have to download every game you play.
@@ -159,6 +155,10 @@ Lifewire / Jeremy Laukkonen
  For those who need more space, the Series S has a slot on the back for a storage expansion card, a proprietary storage device designed to be just as fast as the built-in NVME SSD. The issue is that it's expensive. You can get a USB 3.1 SSD of a similar capacity for less than half as much, so most price-conscious Series S owners will probably gravitate in that direction. However, Microsoft gives the raw I/O bandwidth of the drive, and presumably the expansion card, as 2.4 GB/s, which is almost twice as fast as USB 3.1.
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
@@ -174,15 +174,15 @@ Lifewire / Jeremy Laukkonen
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software and User Interface: Familiar and cozy**
 
  Microsoft isn’t looking to rock the boat with the Xbox Series X|S in terms of the user interface. If you’ve used an Xbox One, you’ll find the Xbox Series X|S user interface strangely familiar. The dashboard looks almost the same, and the guide functions as expected. There are a few upgrades and changes here and there, but this is nothing like the massive change between the Xbox 360 dashboard and the Xbox One dashboard.
 
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
 
@@ -202,10 +202,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Jaw-droppingly low**
 
  Pardon me for burying the lede, but the price of the Xbox Series S is the actual headline here. The Series S has an astoundingly low MSRP of just $299\. Additionally, you can buy one by paying just $24.99 per month for two years, including access to Game Pass Ultimate.
@@ -217,7 +213,7 @@ Lifewire / Jeremy Laukkonen
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
@@ -233,6 +229,10 @@ Lifewire / Jeremy Laukkonen
  **An affordable alternative for those without a 4K television.**
 
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -276,22 +276,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-mastering-social-media-creating-your-first-facebook-reel/"><u>[New] 2024 Approved Mastering Social Media Creating Your First Facebook Reel</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-reign-in-the-views-youtube-thumbnail-size-and-ratios/"><u>[Updated] 2024 Approved Reign in the Views Youtube Thumbnail Size & Ratios</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-best-choice-avi-player-with-multiplatform-support/"><u>[Updated] Best Choice Avi Player with Multiplatform Support</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-memoji-talk-make-memoji-video-on-your-own/"><u>2024 Approved How to Make Memoji Talk-Make Memoji Video On Your Own</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/capturing-the-illusion-iphone-tricks-for-reflection-photography-for-2024/"><u>Capturing the Illusion IPhone Tricks for Reflection Photography for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/how-to-fix-when-sea-of-thieves-fails-to-load-comprehensive-solutions/"><u>How to Fix When Sea of Thieves Fails to Load - Comprehensive Solutions</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/how-to-properly-delete-your-dating-profile-history-essential-information-you-need/"><u>How to Properly Delete Your Dating Profile History: Essential Information You Need</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-use-emojis-on-windows-for-2024/"><u>How to Use Emojis on Windows for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-unmatched-hd-capture-selecting-the-best-recorder-brands/"><u>In 2024, Unmatched HD Capture Selecting the Best Recorder Brands</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-record-your-memorable-honeymoon-video/"><u>New In 2024, How to Record Your Memorable Honeymoon Video</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-top-10-storyboarding-software-freeandpaid-for-2024/"><u>New Top 10 Storyboarding Software Free&Paid for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/unveiling-the-most-effective-budget-friendly-video-collaboration-tools-for-companies-and-classrooms-for-2024/"><u>Unveiling the Most Effective Budget-Friendly Video Collaboration Tools For Companies & Classrooms for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ling-top-asmr-for-iphone-users/"><u>Unveiling Top ASMR for iPhone Users</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-10-free-online-sticker-makers-to-make-your-own-stickers/"><u>Updated 2024 Approved 10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>Updated How to Burn Photos to DVD with Transitions and Music</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-memoji-talk-make-memoji-video-on-your-own/"><u>Updated How to Make Memoji Talk-Make Memoji Video On Your Own</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-add-emojis-to-videos-the-ultimate-guide/"><u>Updated In 2024, How to Add Emojis to Videos The Ultimate Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-prime-5-minute-time-lapse-video-creator/"><u>[Updated] In 2024, Prime 5-Minute Time-Lapse Video Creator</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/adobedvdmp4mov/"><u>Adobeアプリケーションを使用したDVDからMP4/MOVへの効率的なリッピングと変換</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/enhanced-amd-fabric-tuning-now-compatible-with-active-and-passive-x570-boards-post-update/"><u>Enhanced AMD Fabric Tuning: Now Compatible with Active and Passive X570 Boards Post-Update</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/essential-pre-launch-checklist-for-software-releases/"><u>Essential Pre-Launch Checklist for Software Releases</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-a-full-refund-understanding-digiarty-softwares-money-back-guarantee/"><u>How to Get a Full Refund: Understanding Digiarty Software's Money-Back Guarantee</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-memoji-talk-make-memoji-video-on-your-own/"><u>How to Make Memoji Talk-Make Memoji Video On Your Own</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-broadcast-like-a-ghost-anonymous-instagram-strategies/"><u>In 2024, Broadcast Like a Ghost Anonymous Instagram Strategies</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-apple-iphone-6s-plus-activation-lock-by-drfone-ios/"><u>In 2024, How to Remove Apple iPhone 6s Plus Activation Lock</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-add-and-custom-slack-emoji-wondershare-filmora/"><u>New 2024 Approved How to Add and Custom Slack Emoji-Wondershare Filmora</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-bitmoji-to-keyboard-complete-guide-for-2024/"><u>New How to Add Bitmoji to Keyboard? Complete Guide for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-flv-photo-slideshow-for-2024/"><u>New How to Make a FLV Photo Slideshow for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-inoperative-clipboard-mechanism-win-11/"><u>Resolving Inoperative Clipboard Mechanism Win 11</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/save-big-on-top-rated-traveler-essentials-iphone-accessories-and-charger-deals-at-20-off-zdnets-exclusive/"><u>Save Big on Top-Rated Traveler Essentials: IPhone Accessories & Charger Deals at 20% OFF! - ZDNet's Exclusive</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/the-essential-guide-to-emoji-memoji-animoji-and-bitmoji/"><u>The Essential Guide to Emoji, Memoji, Animoji, and Bitmoji</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-20-wonderful-stop-motion-ideas-for-beginners-and-kids-filmora-for-2024/"><u>Updated 20 Wonderful Stop Motion Ideas for Beginners and Kids - Filmora for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-photo-slideshow-maker-how-to-make-a-photo-slideshow-for-2024/"><u>Updated Best Photo Slideshow Maker How to Make a Photo Slideshow for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-stickers-to-whatsapp-the-ultimate-guide-for-2024/"><u>Updated How to Add Stickers to WhatsApp-The Ultimate Guide for 2024</u></a></li>
 </ul></div>
 

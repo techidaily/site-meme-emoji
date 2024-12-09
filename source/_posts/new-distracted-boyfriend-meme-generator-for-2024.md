@@ -1,7 +1,7 @@
 ---
 title: New Distracted Boyfriend Meme Generator for 2024
-date: 2024-10-23T20:07:56.801Z
-updated: 2024-10-28T19:04:14.123Z
+date: 2024-12-04T17:39:10.259Z
+updated: 2024-12-09T17:03:15.005Z
 tags: 
   - ai
   - animation videos
@@ -253,13 +253,6 @@ Copy the image
 
 ![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The Text Options menu lets you pick a font or change the color and the size of the text. It also offers the standard text alignment features, so you can easily rearrange the text.
 
 #### 3\. Downloading the Meme
@@ -267,19 +260,6 @@ Copy the image
  Click on the Create button once you finish customizing the text and wait for the new page to load.
 
 ![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-5.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -521,13 +501,6 @@ Follow @Shanoon Cox
 
 Stop motion is the most adoring animated presentation of the social media era on digital presence. You can express conceptual-based ideas and thoughtful messages in a storytelling frame. We will discuss and get an overview of the stop motion ideas of kids and stop motion ideas for beginners in this article.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Let's dive into the subject line!**
 
 Stop motion animation could be a great idea while presenting a story that will take a short duration but carry a significant meaning. The meaning even you can portray easily with the animated objects, characters, figures, and the movement.
@@ -754,6 +727,10 @@ There are movements and shoot arrangements, like a few more major elements you m
 To create stop motion animation, beginners and kids require different objects. Among them, few things are common like cameras, tripods, lights etc. In the case of kids, you can start practicing at home with available items like a big table to keep objects on them. But for beginners, can start from a small studio with various angle lights and camera arrangements.
 
 However, even for the beginner, the home could be the best option instead of a studio.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: 20 Best Stop Animation Ideas for Kids and Beginners
 
@@ -1134,6 +1111,10 @@ Follow @Shanoon Cox
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Bitmoji to Keyboard? [Complete Guide]
 
 [Emojis](https://tools.techidaily.com/wondershare/filmora/download/) have made it so much better for people to express themselves. Let’s say someone compliments you on a chat app; you can use a smiley emoji to tell that you are happy. At the same time, an angry emoji lets you express that you are angry.
@@ -1344,6 +1325,10 @@ Now, let’s learn how to create your very own Bitmoji.
 
 ![create bitmoji mobile](https://images.wondershare.com/filmora/article-images/create-bitmoji-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Once your Bitmoji is created, you are all set to use the Bitmoji as stickers. Moreover, the app lets you dress your Bitmoji as you want as well. Let it have different expressions and postures because that’s how it’s going to be fun! After your Bitmoji is added, the next thing to do is enable Bitmoji on the keyboard of the device you are using.
 
 ## Part 2: How to Add and Use Bitmoji to iPhone Keyboard?
@@ -1391,6 +1376,10 @@ If you want to use Bitmoji on Windows and Mac, you will have to use the Google C
 **Step 2:** You will have to sign in to Bitmoji. If you want to add Bitmoji to Gmail, click on add Bitmoji to Gmail.
 
 ![add bitmoji to gmail](https://images.wondershare.com/filmora/article-images/add-bitmoji-to-gmail.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After you are done following the three easy steps, you will see Bitmoji is installed. To start using it, move the cursor to the upper corner of the browser and click on the Bitmoji icon. Next, you will see the Bitmojis. Choose any Bitmoji, copy it, and paste it on Gmail or instant messaging applications.
 
@@ -1728,6 +1717,10 @@ Once you have that, add the music from the integrated royalty free library to ig
 
 ![video format](https://images.wondershare.com/filmora/article-images/format-supported-by-filmora.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Complete the video by saving it and then you can feel free to share it with friends.
 
 Wondershare Filmora is the best solution for those that want a refined and fun honeymoon video. All you have to do is to try it out and rest assured that you are bound to love the results!
@@ -1935,195 +1928,67 @@ Now you can make an emoji of yourself even on an Android phone with the Mirror e
 
 ![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
 
-### Conclusion-Ready to Emoji Yourself?
-
-With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
-
-Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
-
-Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
-
-Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
-
-Good luck!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-The introduction of stickers and emojis have transformed the texting experience—no more boring texts. Just make an emoji of yourself in every mood and instantly express yourself in a better and funnier way.
-
-Whether you own an iPhone or an Android device, you can easily emoji yourself that exactly mimics your appearance and reaction. It’s time to up your chatting game and make exciting emojis.
-
-In this article, we will show you how to amaze your friends by teaching you to make an emoji of yourself in no time.
-
-* [Part 1: Make an Emoji of Yourself on iPhone](#part1)
-* [Part 2: Make an Emoji of Yourself on Android](#part2)
-
-## Part 1: Make an Emoji of Yourself on iPhone
-
-iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
-
-Here’s how you can make an emoji of yourself in 2 easy ways:
-
-#### Method 1-By the iPhone Message app
-
-iPhone has now introduced an in-built feature to let you make an emoji of yourself without having to download any other apps. However, you can only make an emoji of yourself in iOS 13 or later.
-
-For the lucky lot of you, let me walk you through how to make an emoji of yourself in a few simple steps:
-
-1.Open your iMessages. Go to a previous chat or tap the New Message Make sure your Appstore icon is toggled on to display the app tray. Hit the Animoji icon, represented by the monkey. Swipe to find the + plus sign for New Memoji to emoji yourself.
-
-![Open New Messages](https://images.wondershare.com/filmora/article-images/open-new-messages.jpg)
-
-2.Now you can make an emoji of yourself by adding even the smallest details. Start by selecting your skin color. You can even add freckles or adjust your skin color’s warmth or paleness with a slider.
-
-![Adjust Emoji Color](https://images.wondershare.com/filmora/article-images/adjust-emoji-color.jpg)
-
-3.Hairstyle-Select the style that mimics the real you or goes for your dream hair-do.
-
-![Emoji Hairstyle](https://images.wondershare.com/filmora/article-images/emoji-hairstyle.jpg)
-
-4.Head Shape-Select the age group from kids, adults, old, and your face cut by choosing the chin that best fits you.
-
-![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
-
-5.Nose & Lips- After selecting your eye color, shape, and brows, choose a nose shape and a lipstick color and intensity.
-
-![Select Eye Color](https://images.wondershare.com/filmora/article-images/select-eye-color.jpg)
-
-6.Eyewear/Headwear-Add glasses, adjust tint shade, color, and choose a hat, cap, or turban as you like. Finally, click **Done** to save the emoji.
-
-![Emoji Yourself](https://images.wondershare.com/filmora/article-images/emoji-yourself.jpg)
-
-#### Method 2-Using the Avatoon app
-
-If you want to make an emoji of yourself that is more fun and personalized, from your dress to your pose, Avatoon is your way to go. With more than 500 customizable options, Avatoon lets you make an emoji of yourself meticulously, allowing you add avid details that pave the way for a hilariously amazing texting experience
-
-1.Install and launch Avatoon app.
-
-![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
-
-2.Now, choose the face shape that best matches your features and also select your face color. Add freckles(if you have any).
-
-![Add Emoji Freckles](https://images.wondershare.com/filmora/article-images/add-emoji-freckles.jpg)
-
-3.Next up is the hairstyle. There is a range of hairstyles from straight to wavy. Pick one you like best. You can choose the eye shape, color, brow, nose, lips, and finally, add some funky or formal eyewear to complete the look. Press Save.
-
-4.After you make an emoji of yourself, you can further fine-tune it by adding detailed features and accessories using coins. Choose a stylish dress for your avatar from the Clothes tab or add a fun background.
-
-5.Click on Photoboothto fit your emoji in a themed photo for an event or celebration.
-
-6.Click on Poses and select your pose and share directly to any social media platform or save to phone.
-
-## Part 2: Make an Emoji of Yourself on Android
-
-Now you can make an emoji of yourself even on an Android phone with the Mirror emoji app. Take your texting experience to the next level. Quickly make an emoji of yourself and wow your friends and family with the cute mini version of yourself.
-
-1.Install and launch Mirror. Now, to make an emoji of yourself for your current look, take a selfie or click the gallery icon to choose an existing image to emoji yourself.
-
-![Download Mirror Emoji App](https://images.wondershare.com/filmora/article-images/download-mirror-emoji-app.jpg)
-
-2.Click the left one to make an original avatar or the right one if you wish to make an emoji of yourself as an anime. Click Next.
-
-![Go To Next Step](https://images.wondershare.com/filmora/article-images/go-to-next-step.jpg)
-
-3.Now, customize your emoji. Add a hairstyle, choose your glasses, cap, headphones, turban, scarf, or even devil horns.
-
-![Customize Emoji Setting](https://images.wondershare.com/filmora/article-images/customize-emoji-setting.jpg)
-
-4.Customize your dress color to your liking. Then, click **Next**.
-
-![Choose Dress Color](https://images.wondershare.com/filmora/article-images/choose-dress-color.jpg)
-
-5.Once you make an emoji of yourself, Mirror will display a range of fun stickers for instant sharing.
-
-![Display Emoji Sticker](https://images.wondershare.com/filmora/article-images/display-emoji-sticker.jpg)
-
-6.Click on any sticker, choose a mood using the emojis displayed and click to share or save to the device.
-
-![Save Emoji Of Yourself](https://images.wondershare.com/filmora/article-images/save-emoji-of-yourself.jpg)
-
-7.In the Sticker backstab, choose a themed sticker set and click **Add to WhatsApp**.
-
-![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
-
-### Conclusion-Ready to Emoji Yourself?
-
-With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
-
-Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
-
-Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
-
-Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
-
-Good luck!
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-The introduction of stickers and emojis have transformed the texting experience—no more boring texts. Just make an emoji of yourself in every mood and instantly express yourself in a better and funnier way.
-
-Whether you own an iPhone or an Android device, you can easily emoji yourself that exactly mimics your appearance and reaction. It’s time to up your chatting game and make exciting emojis.
-
-In this article, we will show you how to amaze your friends by teaching you to make an emoji of yourself in no time.
-
-* [Part 1: Make an Emoji of Yourself on iPhone](#part1)
-* [Part 2: Make an Emoji of Yourself on Android](#part2)
-
-## Part 1: Make an Emoji of Yourself on iPhone
-
-iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
-
-Here’s how you can make an emoji of yourself in 2 easy ways:
-
-#### Method 1-By the iPhone Message app
-
-iPhone has now introduced an in-built feature to let you make an emoji of yourself without having to download any other apps. However, you can only make an emoji of yourself in iOS 13 or later.
-
-For the lucky lot of you, let me walk you through how to make an emoji of yourself in a few simple steps:
-
-1.Open your iMessages. Go to a previous chat or tap the New Message Make sure your Appstore icon is toggled on to display the app tray. Hit the Animoji icon, represented by the monkey. Swipe to find the + plus sign for New Memoji to emoji yourself.
-
-![Open New Messages](https://images.wondershare.com/filmora/article-images/open-new-messages.jpg)
-
-2.Now you can make an emoji of yourself by adding even the smallest details. Start by selecting your skin color. You can even add freckles or adjust your skin color’s warmth or paleness with a slider.
-
-![Adjust Emoji Color](https://images.wondershare.com/filmora/article-images/adjust-emoji-color.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+### Conclusion-Ready to Emoji Yourself?
+
+With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
+
+Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
+
+Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
+
+Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
+
+Good luck!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The introduction of stickers and emojis have transformed the texting experience—no more boring texts. Just make an emoji of yourself in every mood and instantly express yourself in a better and funnier way.
+
+Whether you own an iPhone or an Android device, you can easily emoji yourself that exactly mimics your appearance and reaction. It’s time to up your chatting game and make exciting emojis.
+
+In this article, we will show you how to amaze your friends by teaching you to make an emoji of yourself in no time.
+
+* [Part 1: Make an Emoji of Yourself on iPhone](#part1)
+* [Part 2: Make an Emoji of Yourself on Android](#part2)
+
+## Part 1: Make an Emoji of Yourself on iPhone
+
+iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
+
+Here’s how you can make an emoji of yourself in 2 easy ways:
+
+#### Method 1-By the iPhone Message app
+
+iPhone has now introduced an in-built feature to let you make an emoji of yourself without having to download any other apps. However, you can only make an emoji of yourself in iOS 13 or later.
+
+For the lucky lot of you, let me walk you through how to make an emoji of yourself in a few simple steps:
+
+1.Open your iMessages. Go to a previous chat or tap the New Message Make sure your Appstore icon is toggled on to display the app tray. Hit the Animoji icon, represented by the monkey. Swipe to find the + plus sign for New Memoji to emoji yourself.
+
+![Open New Messages](https://images.wondershare.com/filmora/article-images/open-new-messages.jpg)
+
+2.Now you can make an emoji of yourself by adding even the smallest details. Start by selecting your skin color. You can even add freckles or adjust your skin color’s warmth or paleness with a slider.
+
+![Adjust Emoji Color](https://images.wondershare.com/filmora/article-images/adjust-emoji-color.jpg)
+
 3.Hairstyle-Select the style that mimics the real you or goes for your dream hair-do.
 
 ![Emoji Hairstyle](https://images.wondershare.com/filmora/article-images/emoji-hairstyle.jpg)
@@ -2159,6 +2024,135 @@ If you want to make an emoji of yourself that is more fun and personalized, from
 5.Click on Photoboothto fit your emoji in a themed photo for an event or celebration.
 
 6.Click on Poses and select your pose and share directly to any social media platform or save to phone.
+
+## Part 2: Make an Emoji of Yourself on Android
+
+Now you can make an emoji of yourself even on an Android phone with the Mirror emoji app. Take your texting experience to the next level. Quickly make an emoji of yourself and wow your friends and family with the cute mini version of yourself.
+
+1.Install and launch Mirror. Now, to make an emoji of yourself for your current look, take a selfie or click the gallery icon to choose an existing image to emoji yourself.
+
+![Download Mirror Emoji App](https://images.wondershare.com/filmora/article-images/download-mirror-emoji-app.jpg)
+
+2.Click the left one to make an original avatar or the right one if you wish to make an emoji of yourself as an anime. Click Next.
+
+![Go To Next Step](https://images.wondershare.com/filmora/article-images/go-to-next-step.jpg)
+
+3.Now, customize your emoji. Add a hairstyle, choose your glasses, cap, headphones, turban, scarf, or even devil horns.
+
+![Customize Emoji Setting](https://images.wondershare.com/filmora/article-images/customize-emoji-setting.jpg)
+
+4.Customize your dress color to your liking. Then, click **Next**.
+
+![Choose Dress Color](https://images.wondershare.com/filmora/article-images/choose-dress-color.jpg)
+
+5.Once you make an emoji of yourself, Mirror will display a range of fun stickers for instant sharing.
+
+![Display Emoji Sticker](https://images.wondershare.com/filmora/article-images/display-emoji-sticker.jpg)
+
+6.Click on any sticker, choose a mood using the emojis displayed and click to share or save to the device.
+
+![Save Emoji Of Yourself](https://images.wondershare.com/filmora/article-images/save-emoji-of-yourself.jpg)
+
+7.In the Sticker backstab, choose a themed sticker set and click **Add to WhatsApp**.
+
+![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
+
+### Conclusion-Ready to Emoji Yourself?
+
+With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
+
+Use the in-built iPhone feature or a powerful app to make an emoji of yourself stand out from the crowd of mainstream messages. And take inspiration from our guide to surprise your friends with an emoji that looks exactly like you, just a bit smaller.
+
+Here, we recommend [Wondershare Filmora](https://filmorago.onelink.me/4M4O/34b09bf4), due to its AR camera feature, which makes taking selfies more interesting. This AR camera function includes animoji and memoji avatars for a fun and excellent video.
+
+Go on and make an emoji of yourself. Show your friends how awesome and unique you are with a beautifully personalized emoji.
+
+Good luck!
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+The introduction of stickers and emojis have transformed the texting experience—no more boring texts. Just make an emoji of yourself in every mood and instantly express yourself in a better and funnier way.
+
+Whether you own an iPhone or an Android device, you can easily emoji yourself that exactly mimics your appearance and reaction. It’s time to up your chatting game and make exciting emojis.
+
+In this article, we will show you how to amaze your friends by teaching you to make an emoji of yourself in no time.
+
+* [Part 1: Make an Emoji of Yourself on iPhone](#part1)
+* [Part 2: Make an Emoji of Yourself on Android](#part2)
+
+## Part 1: Make an Emoji of Yourself on iPhone
+
+iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
+
+Here’s how you can make an emoji of yourself in 2 easy ways:
+
+#### Method 1-By the iPhone Message app
+
+iPhone has now introduced an in-built feature to let you make an emoji of yourself without having to download any other apps. However, you can only make an emoji of yourself in iOS 13 or later.
+
+For the lucky lot of you, let me walk you through how to make an emoji of yourself in a few simple steps:
+
+1.Open your iMessages. Go to a previous chat or tap the New Message Make sure your Appstore icon is toggled on to display the app tray. Hit the Animoji icon, represented by the monkey. Swipe to find the + plus sign for New Memoji to emoji yourself.
+
+![Open New Messages](https://images.wondershare.com/filmora/article-images/open-new-messages.jpg)
+
+2.Now you can make an emoji of yourself by adding even the smallest details. Start by selecting your skin color. You can even add freckles or adjust your skin color’s warmth or paleness with a slider.
+
+![Adjust Emoji Color](https://images.wondershare.com/filmora/article-images/adjust-emoji-color.jpg)
+
+3.Hairstyle-Select the style that mimics the real you or goes for your dream hair-do.
+
+![Emoji Hairstyle](https://images.wondershare.com/filmora/article-images/emoji-hairstyle.jpg)
+
+4.Head Shape-Select the age group from kids, adults, old, and your face cut by choosing the chin that best fits you.
+
+![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
+
+5.Nose & Lips- After selecting your eye color, shape, and brows, choose a nose shape and a lipstick color and intensity.
+
+![Select Eye Color](https://images.wondershare.com/filmora/article-images/select-eye-color.jpg)
+
+6.Eyewear/Headwear-Add glasses, adjust tint shade, color, and choose a hat, cap, or turban as you like. Finally, click **Done** to save the emoji.
+
+![Emoji Yourself](https://images.wondershare.com/filmora/article-images/emoji-yourself.jpg)
+
+#### Method 2-Using the Avatoon app
+
+If you want to make an emoji of yourself that is more fun and personalized, from your dress to your pose, Avatoon is your way to go. With more than 500 customizable options, Avatoon lets you make an emoji of yourself meticulously, allowing you add avid details that pave the way for a hilariously amazing texting experience
+
+1.Install and launch Avatoon app.
+
+![Download Avatoon App](https://images.wondershare.com/filmora/article-images/download-avatoon-app.jpg)
+
+2.Now, choose the face shape that best matches your features and also select your face color. Add freckles(if you have any).
+
+![Add Emoji Freckles](https://images.wondershare.com/filmora/article-images/add-emoji-freckles.jpg)
+
+3.Next up is the hairstyle. There is a range of hairstyles from straight to wavy. Pick one you like best. You can choose the eye shape, color, brow, nose, lips, and finally, add some funky or formal eyewear to complete the look. Press Save.
+
+4.After you make an emoji of yourself, you can further fine-tune it by adding detailed features and accessories using coins. Choose a stylish dress for your avatar from the Clothes tab or add a fun background.
+
+5.Click on Photoboothto fit your emoji in a themed photo for an event or celebration.
+
+6.Click on Poses and select your pose and share directly to any social media platform or save to phone.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Make an Emoji of Yourself on Android
 
@@ -2332,13 +2326,6 @@ Good luck!
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -2776,18 +2763,15 @@ Follow @Ollie Mattison
 
 ![But you have to stop yourself](https://images.wondershare.com/filmora/article-images/stop-yourself-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10\. I am sending a follow up email
 
  When you keep on reminding people to acknowledge your work email, but they don’t. You send follow up email to tell them, that your job is done.
 
 ![I am sending a follow up email](https://images.wondershare.com/filmora/article-images/send-email-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -2825,13 +2809,6 @@ Follow @Ollie Mattison
 
 ![Me five minutes after getting to work](https://images.wondershare.com/filmora/article-images/five-minutes-meme.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. When you are about to leave work
 
  Work memes like this are so relatable. All day the boss didn’t realize something important and the moment you are about to step out, he stops you and probably assigns a work that will take ages to complete.
@@ -2867,6 +2844,14 @@ Follow @Ollie Mattison
  This work meme is epic. People usually get annoyed by people and revolt, but at the work place they need to tolerate the undesired behavior and bossy-ness.
 
 ![I don’t always tolerate stupid people](https://images.wondershare.com/filmora/article-images/stupid-people-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9\. But you have to stop yourself
 
@@ -2915,13 +2900,6 @@ Follow @Ollie Mattison
  This work meme literally made us laugh. Every minute seems longer at work and it’s funny that the meme says a cupcake is badly needed to lift the work mood.
 
 ![Me five minutes after getting to work](https://images.wondershare.com/filmora/article-images/five-minutes-meme.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. When you are about to leave work
 
@@ -3083,22 +3061,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-setting-up-facebook-live-your-roku-route-for-2024/"><u>[New] Setting Up Facebook LIVE Your Roku Route for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-crafting-captivating-chronicles-a-guide-to-storytelling-schools-1-8/"><u>[Updated] 2024 Approved Crafting Captivating Chronicles A Guide to Storytelling Schools (#1-#8)</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-chromebook-webcam-usage-recording-made-easy/"><u>[Updated] In 2024, Chromebook Webcam Usage Recording Made Easy</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-mastering-the-art-of-youtube-to-facebook-shares-for-2024/"><u>[Updated] Mastering the Art of YouTube to Facebook Shares for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-burn-photos-to-dvd-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>2024 Approved Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/combatting-fraudgpt-essential-self-defense-tips/"><u>Combatting FraudGPT: Essential Self-Defense Tips</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exquisite-makeup-moments-captured/"><u>In 2024, Exquisite Makeup Moments Captured</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Vivo S17t? | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/making-triggered-memes-with-filmora-video-editor-for-2024/"><u>Making Triggered Memes with Filmora Video Editor for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-10-best-work-memes-to-have-fun-in-work-days-for-2024/"><u>New 10 Best Work Memes to Have Fun in Work Days for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-triggered-meme-for-2024/"><u>New How to Make a Triggered Meme for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-top-12-best-meme-makers-online-for-free/"><u>New In 2024, Top 12 Best Meme Makers Online for FREE</u></a></li>
-<li><a href="https://win11.techidaily.com/streamlining-the-user-interface-notifications-in-win-11/"><u>Streamlining the User Interface: Notifications in Win 11</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/uncover-hidden-techniques-converting-av1-videos-to-mp4-format-with-ease/"><u>Uncover Hidden Techniques: Converting AV1 Videos to MP4 Format with Ease</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-10-best-meme-makers-online-free-to-use/"><u>Updated 10 Best Meme Makers Online (Free to Use)</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-6-popular-animated-emoji-video-effects/"><u>Updated 6 Popular Animated Emoji Video Effects</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-stickers-to-whatsapp-the-ultimate-guide/"><u>Updated How to Add Stickers to WhatsApp-The Ultimate Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-blade-chroma-revolutionized-by-quad-hd-technology/"><u>[New] 2024 Approved Blade Chroma Revolutionized by Quad-HD Technology</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-the-art-of-secretive-insta-story-consumption/"><u>[New] In 2024, Mastering the Art of Secretive Insta Story Consumption</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-effective-strategies-to-plan-zoom-sessions/"><u>[Updated] In 2024, Effective Strategies to Plan Zoom Sessions</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-a-visual-revolution-integrating-3d-effects-into-your-photoshop-layouts/"><u>2024 Approved A Visual Revolution Integrating 3D Effects Into Your Photoshop Layouts</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-add-emojis-to-videos-on-youtubefacebooksnapchat-2023-guide/"><u>2024 Approved Add Emojis to Videos on YouTube/Facebook/Snapchat 2023 Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/best-10-emoji-apps-to-emoji-yourself-make-an-emoji-of-yourself/"><u>Best 10 Emoji Apps to Emoji Yourself-Make an Emoji of Yourself</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/gmail-sound-preferences-how-to-customize-notification-sounds-effectively/"><u>Gmail Sound Preferences: How to Customize Notification Sounds Effectively</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-record-your-memorable-honeymoon-video/"><u>How to Record Your Memorable Honeymoon Video</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-google-pixel-8-pro-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Google Pixel 8 Pro to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-mastering-snapchat-for-business-success/"><u>In 2024, Mastering Snapchat for Business Success</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-90-gt-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor 90 GT Device</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-use-emojis-on-windows/"><u>Updated 2024 Approved How to Use Emojis on Windows</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-10-emoji-apps-to-emoji-yourself-make-an-emoji-of-yourself/"><u>Updated Best 10 Emoji Apps to Emoji Yourself-Make an Emoji of Yourself</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-making-triggered-memes-with-filmora-video-editor-for-2024/"><u>Updated Making Triggered Memes with Filmora Video Editor for 2024</u></a></li>
 </ul></div>
 

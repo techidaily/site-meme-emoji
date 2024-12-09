@@ -1,7 +1,7 @@
 ---
 title: New How to Make a iMovie Photo Slideshow with Music for 2024
-date: 2024-11-25T20:49:17.839Z
-updated: 2024-12-01T22:07:11.588Z
+date: 2024-12-02T17:20:06.402Z
+updated: 2024-12-09T17:19:57.109Z
 tags: 
   - ai
   - animation videos
@@ -95,10 +95,6 @@ However, iMovie doesn't support multiple soundtracks. If necessary, you need to 
 
 ![make imovie slideshow](https://images.wondershare.com/topic/video-editing/add-backgound-music-to-imovie.jpg "make imovie slideshow")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 3. Export Your iMovie Slideshow Video
 
 iMovie makes sharing possibilities endless. For those who upload their videos online, iMovie allows users to directly upload to MobileMe Gallery, YouTube, Facebook, Vimeo, CNN iReport, etc.
@@ -240,10 +236,6 @@ Makings a slideshow is a great way to share photos and videos with friends and f
 If you haven’t iMovie installed on your Mac yet, just go to iTunes and download it for free. In the following part, I’ll share with you the step-by-step tutorial on how to make a slideshow on Mac using the free video editing software iMovie.
 
 If you are an iOS user, check our picks of [best photo slideshow apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhone or iPad.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Ways for iMovie Photo Slideshow with Music Making
 
@@ -808,6 +800,10 @@ Check your wardrobe and get all the toys out from there. Set them as a story and
 **For the beginners:** Remember what you made out in your college project? You can make Eskimo living and create stop motion. You can add your creativity and knowledge about their living style to make the animation more attractive and eye-catching.
 
 ![filmora](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-9-header.svg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
@@ -1536,191 +1532,187 @@ Follow @Shanoon Cox
 
 ![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
 
+Copy the image
+
+ If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
+
+![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+#### 2\. Adding the Text to the Meme
+
+ Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
+
+ You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
+
+ In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
+
+#### 3\. Downloading Memes
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
+
+ Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
+
+### Conclusion
+
+ Being confused can be hilarious, which is one of the reasons why Is this a Pigeon meme has been so popular over the course of the last year. Generating a meme is easy, so you can focus on finding an appropriate joke for this type of meme. Do you often make Is this a Pigeon memes? Leave a comment and share your favorites with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Have you ever been so confused that you thought that a butterfly is a pigeon? Apparently, the main protagonist of _The Brave Fighter of Sun Fighbird_ from the Japanese anime TV series has. In an episode that was released in January 1991, Yutaro Katori seriously asked '_is this a pigeon_?' while looking at a butterfly. At first, everyone thought that it was just a poor translation, but it turned out that the translation was correct, which turned this still frame into a meme as early as 2011.
+
+ After a while, the Is This a Pigeon meme came out of fashion, but at the beginning of 2018, it went viral again. Today the meme is used to express all sorts of confusing opinions, that range from popular culture references to philosophical questions. If you're utterly confused in certain situations or if you simply like making Is This a Pigeon meme, you're at the right place because in this article we're going to show you how you can generate these memes in a couple of simple steps.
+
+## How to Make Is This a Pigeon Meme?
+
+ There are hundreds of meme makers online, but some of them watermark your memes, require you to create an account or want to charge you for the service. That's why we recommend using Filmora Online Meme Maker that is free to use, produces watermark-free memes, and it doesn't require you to sign in. Here's how you can make a meme with this online meme maker:
+
+#### 1\. Importing Images
+
+ You can copy the picture's URL by clicking 'Copy the image' link below the image and import the template into the [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) directly from the web.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
+
+Copy the image
+
+ If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
+
+![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+#### 2\. Adding the Text to the Meme
+
+ Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
+
+ You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
+
+ In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
+
+#### 3\. Downloading Memes
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
+
+ Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
+
+### Conclusion
+
+ Being confused can be hilarious, which is one of the reasons why Is this a Pigeon meme has been so popular over the course of the last year. Generating a meme is easy, so you can focus on finding an appropriate joke for this type of meme. Do you often make Is this a Pigeon memes? Leave a comment and share your favorites with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Have you ever been so confused that you thought that a butterfly is a pigeon? Apparently, the main protagonist of _The Brave Fighter of Sun Fighbird_ from the Japanese anime TV series has. In an episode that was released in January 1991, Yutaro Katori seriously asked '_is this a pigeon_?' while looking at a butterfly. At first, everyone thought that it was just a poor translation, but it turned out that the translation was correct, which turned this still frame into a meme as early as 2011.
+
+ After a while, the Is This a Pigeon meme came out of fashion, but at the beginning of 2018, it went viral again. Today the meme is used to express all sorts of confusing opinions, that range from popular culture references to philosophical questions. If you're utterly confused in certain situations or if you simply like making Is This a Pigeon meme, you're at the right place because in this article we're going to show you how you can generate these memes in a couple of simple steps.
+
+## How to Make Is This a Pigeon Meme?
+
+ There are hundreds of meme makers online, but some of them watermark your memes, require you to create an account or want to charge you for the service. That's why we recommend using Filmora Online Meme Maker that is free to use, produces watermark-free memes, and it doesn't require you to sign in. Here's how you can make a meme with this online meme maker:
+
+#### 1\. Importing Images
+
+ You can copy the picture's URL by clicking 'Copy the image' link below the image and import the template into the [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) directly from the web.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
+
+Copy the image
+
+ If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
+
+![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+#### 2\. Adding the Text to the Meme
+
+ Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
+
+ You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
+
+ In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
+
+#### 3\. Downloading Memes
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
+
+ Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
+
+### Conclusion
+
+ Being confused can be hilarious, which is one of the reasons why Is this a Pigeon meme has been so popular over the course of the last year. Generating a meme is easy, so you can focus on finding an appropriate joke for this type of meme. Do you often make Is this a Pigeon memes? Leave a comment and share your favorites with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Have you ever been so confused that you thought that a butterfly is a pigeon? Apparently, the main protagonist of _The Brave Fighter of Sun Fighbird_ from the Japanese anime TV series has. In an episode that was released in January 1991, Yutaro Katori seriously asked '_is this a pigeon_?' while looking at a butterfly. At first, everyone thought that it was just a poor translation, but it turned out that the translation was correct, which turned this still frame into a meme as early as 2011.
+
+ After a while, the Is This a Pigeon meme came out of fashion, but at the beginning of 2018, it went viral again. Today the meme is used to express all sorts of confusing opinions, that range from popular culture references to philosophical questions. If you're utterly confused in certain situations or if you simply like making Is This a Pigeon meme, you're at the right place because in this article we're going to show you how you can generate these memes in a couple of simple steps.
+
+## How to Make Is This a Pigeon Meme?
+
+ There are hundreds of meme makers online, but some of them watermark your memes, require you to create an account or want to charge you for the service. That's why we recommend using Filmora Online Meme Maker that is free to use, produces watermark-free memes, and it doesn't require you to sign in. Here's how you can make a meme with this online meme maker:
+
+#### 1\. Importing Images
+
+ You can copy the picture's URL by clicking 'Copy the image' link below the image and import the template into the [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) directly from the web.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
+
+Copy the image
+
+ If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
+
+![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+#### 2\. Adding the Text to the Meme
+
+ Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
+
+ You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-Copy the image
-
- If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
-
-![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
-
-#### 2\. Adding the Text to the Meme
-
- Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
-
- You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
-
- In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
-
-#### 3\. Downloading Memes
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
-
- Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
-
-### Conclusion
-
- Being confused can be hilarious, which is one of the reasons why Is this a Pigeon meme has been so popular over the course of the last year. Generating a meme is easy, so you can focus on finding an appropriate joke for this type of meme. Do you often make Is this a Pigeon memes? Leave a comment and share your favorites with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Have you ever been so confused that you thought that a butterfly is a pigeon? Apparently, the main protagonist of _The Brave Fighter of Sun Fighbird_ from the Japanese anime TV series has. In an episode that was released in January 1991, Yutaro Katori seriously asked '_is this a pigeon_?' while looking at a butterfly. At first, everyone thought that it was just a poor translation, but it turned out that the translation was correct, which turned this still frame into a meme as early as 2011.
-
- After a while, the Is This a Pigeon meme came out of fashion, but at the beginning of 2018, it went viral again. Today the meme is used to express all sorts of confusing opinions, that range from popular culture references to philosophical questions. If you're utterly confused in certain situations or if you simply like making Is This a Pigeon meme, you're at the right place because in this article we're going to show you how you can generate these memes in a couple of simple steps.
-
-## How to Make Is This a Pigeon Meme?
-
- There are hundreds of meme makers online, but some of them watermark your memes, require you to create an account or want to charge you for the service. That's why we recommend using Filmora Online Meme Maker that is free to use, produces watermark-free memes, and it doesn't require you to sign in. Here's how you can make a meme with this online meme maker:
-
-#### 1\. Importing Images
-
- You can copy the picture's URL by clicking 'Copy the image' link below the image and import the template into the [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) directly from the web.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
-
-Copy the image
-
- If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
-
-![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
-
-#### 2\. Adding the Text to the Meme
-
- Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
-
- You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
-
- In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
-
-#### 3\. Downloading Memes
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
-
- Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### Conclusion
-
- Being confused can be hilarious, which is one of the reasons why Is this a Pigeon meme has been so popular over the course of the last year. Generating a meme is easy, so you can focus on finding an appropriate joke for this type of meme. Do you often make Is this a Pigeon memes? Leave a comment and share your favorites with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Have you ever been so confused that you thought that a butterfly is a pigeon? Apparently, the main protagonist of _The Brave Fighter of Sun Fighbird_ from the Japanese anime TV series has. In an episode that was released in January 1991, Yutaro Katori seriously asked '_is this a pigeon_?' while looking at a butterfly. At first, everyone thought that it was just a poor translation, but it turned out that the translation was correct, which turned this still frame into a meme as early as 2011.
-
- After a while, the Is This a Pigeon meme came out of fashion, but at the beginning of 2018, it went viral again. Today the meme is used to express all sorts of confusing opinions, that range from popular culture references to philosophical questions. If you're utterly confused in certain situations or if you simply like making Is This a Pigeon meme, you're at the right place because in this article we're going to show you how you can generate these memes in a couple of simple steps.
-
-## How to Make Is This a Pigeon Meme?
-
- There are hundreds of meme makers online, but some of them watermark your memes, require you to create an account or want to charge you for the service. That's why we recommend using Filmora Online Meme Maker that is free to use, produces watermark-free memes, and it doesn't require you to sign in. Here's how you can make a meme with this online meme maker:
-
-#### 1\. Importing Images
-
- You can copy the picture's URL by clicking 'Copy the image' link below the image and import the template into the [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) directly from the web.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
-
-Copy the image
-
- If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
-
-![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
-
-#### 2\. Adding the Text to the Meme
-
- Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
-
- You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
-
- In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
-
-#### 3\. Downloading Memes
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
-
- Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
-
-### Conclusion
-
- Being confused can be hilarious, which is one of the reasons why Is this a Pigeon meme has been so popular over the course of the last year. Generating a meme is easy, so you can focus on finding an appropriate joke for this type of meme. Do you often make Is this a Pigeon memes? Leave a comment and share your favorites with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Have you ever been so confused that you thought that a butterfly is a pigeon? Apparently, the main protagonist of _The Brave Fighter of Sun Fighbird_ from the Japanese anime TV series has. In an episode that was released in January 1991, Yutaro Katori seriously asked '_is this a pigeon_?' while looking at a butterfly. At first, everyone thought that it was just a poor translation, but it turned out that the translation was correct, which turned this still frame into a meme as early as 2011.
-
- After a while, the Is This a Pigeon meme came out of fashion, but at the beginning of 2018, it went viral again. Today the meme is used to express all sorts of confusing opinions, that range from popular culture references to philosophical questions. If you're utterly confused in certain situations or if you simply like making Is This a Pigeon meme, you're at the right place because in this article we're going to show you how you can generate these memes in a couple of simple steps.
-
-## How to Make Is This a Pigeon Meme?
-
- There are hundreds of meme makers online, but some of them watermark your memes, require you to create an account or want to charge you for the service. That's why we recommend using Filmora Online Meme Maker that is free to use, produces watermark-free memes, and it doesn't require you to sign in. Here's how you can make a meme with this online meme maker:
-
-#### 1\. Importing Images
-
- You can copy the picture's URL by clicking 'Copy the image' link below the image and import the template into the [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) directly from the web.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
-
-Copy the image
-
- If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
-
-![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
-
-#### 2\. Adding the Text to the Meme
-
- Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
-
- You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
 
  In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
 
@@ -1794,20 +1786,20 @@ Below is a list of some useful online websites and dictionaries that can help yo
 
 ![emojipedia](https://images.wondershare.com/filmora/article-images/emojipedia.jpg)
 
+Emojipedia is an online library that holds several emojis. All the emojis that the portal has are placed in their corresponding categories.
+
+Another section on the landing page of the website contains some of the most popular emojis, i.e. those that are mostly used by the texters during their conversions. Furthermore, the name of the emoji is present right next to it, and the entire part is hyperlinked which when clicked, takes you to a new page that has all the details about the object including its meaning, alternate names, and a button to copy the emoji to the clip board. The copied element can then be pasted in the text input field of a compatible messenger such as Facebook.
+
+### 2. EMOJI DICTIONARY
+
+<https://www.dictionary.com/e/emoji/>
+
+![Emoji dictionary](https://images.wondershare.com/filmora/article-images/emojis-dictionary.jpg)
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-Emojipedia is an online library that holds several emojis. All the emojis that the portal has are placed in their corresponding categories.
-
-Another section on the landing page of the website contains some of the most popular emojis, i.e. those that are mostly used by the texters during their conversions. Furthermore, the name of the emoji is present right next to it, and the entire part is hyperlinked which when clicked, takes you to a new page that has all the details about the object including its meaning, alternate names, and a button to copy the emoji to the clip board. The copied element can then be pasted in the text input field of a compatible messenger such as Facebook.
-
-### 2. EMOJI DICTIONARY
-
-<https://www.dictionary.com/e/emoji/>
-
-![Emoji dictionary](https://images.wondershare.com/filmora/article-images/emojis-dictionary.jpg)
-
 **EMOJI DICTIONARY** is another online portal that contains almost all the commonly used emojis. The upper section of the page is dedicated to ‘Featured Terms’ with a slider that has all the featured emojis. The next segment lists all the categories other than emojis.
 
 The bottom area of the landing page has all the emojis along with their names and/or the supported devices. All the names in the section are hyperlinked that open a new page when clicked, and show all the details such as examples, usage, and origin related to that particular emoji.
@@ -1857,6 +1849,10 @@ While using a Mac computer, you can open the app you want to add an emoji to, an
 ## Part 5: Most Common Emoji Categories
 
 ![Emoji type: Smiley people](https://images.wondershare.com/filmora/article-images/smileys-people-emojis.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Some of the most commonly used categories that you must know after understanding **what is an emoji** include:
 
@@ -2054,6 +2050,10 @@ Once you have understood **what emoji is**, it is now time to learn what the emo
 
 Below is a list of some useful online websites and dictionaries that can help you find correct emojis along with their meanings to make your text conversation more meaningful and interesting:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. Emojipedia
 
 <https://emojipedia.org/>
@@ -2079,6 +2079,10 @@ The bottom area of the landing page has all the emojis along with their names an
 <https://emojidictionary.emojifoundation.com/>
 
 ![Emoji dictionary emojifoundation](https://images.wondershare.com/filmora/article-images/emojis-dictionary-emojifoundation.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This one is unique in its own way as in along with listing the most popular emojis and their names and definitions, it also allows you to include your own information in case you know something other than what is already present.
 
@@ -2215,6 +2219,10 @@ This one is unique in its own way as in along with listing the most popular emoj
 
 In addition to displaying the top emojis right on the landing page, the portal also has a category list where each segment holds its corresponding objects. This helps in locating your favorite elements easily and quickly. Furthermore, when you click an emoji, a new page opens up with all its definition from different aspects such as nouns, verbs, etc., along with a ‘Copy’ button that lets you copy the image to the clipboard, and use it on a compatible messaging app.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4. EmojiMeanings
 
 <https://www.emojimeanings.net/>
@@ -2246,6 +2254,10 @@ On Windows 8 or Windows 10 computers, click the ‘Keyboard’ icon that is pres
 #### How to Find Emojis on macOS
 
 While using a Mac computer, you can open the app you want to add an emoji to, and then press the **ctrl** \+ **cmd** \+ **spacebar** keys on the keyboard.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: Most Common Emoji Categories
 
@@ -2400,10 +2412,6 @@ After editing is over, it allows you to export your work within a few seconds. I
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 Finally, we all agree that Minions, undoubtedly, are adorable short-sized, yellow, and clumsy but cute creatures, which, if used properly for minion memes, can motivate, cheer and improve a person's mood. They always try to shove in distinct words that generally make it a blow-off. And that can be awkward and odd as well.
@@ -2483,10 +2491,6 @@ Source: 2happybirthday.com
 ### 6.Happy Birthday!! You are on in a Minion - Happy Birthday Minion Meme
 
 ![happy birthday minion meme](https://images.wondershare.com/filmora/article-images/2021/happy-birthday-minion-meme.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7.Chasing my dream
 
@@ -2598,10 +2602,6 @@ What’s the best way to include this cute, crazy evil minion poem? Enjoy!
 
 ![minion poem](https://images.wondershare.com/filmora/article-images/2021/minion-poem.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5.Your Minions Would Like to Say Happy Birthday!!! - Happy Birthday Minion Meme
 
 ![birthday minion meme](https://images.wondershare.com/filmora/article-images/2021/birthday-minion-meme.jpg)
@@ -2681,6 +2681,10 @@ Leading with the fact, we'll discuss all the minion memes, how to make them, and
 * [Part 1: Who Invented Minion Memes?](#part1)
 * [Part 2: Top 10 Minion Memes of 2021](#part2)
 * [Part 3: Create Memes with a Free Minion Meme Generator](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Who Invented Minion Memes?
 
@@ -2792,10 +2796,6 @@ Follow @Liza Brown
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Make Memes with White Background Step by Step
 
 # How to Make Memes with White Background Step by Step
@@ -2892,10 +2892,6 @@ Follow @Ollie Mattison
 
 ![drag memes](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Step 2: On the meme editor page customize the background to white and then select tools from the left side panel to customize the meme further. Add texts, change color, font size and move the text around the background to position it appropriately and match your meme.
 
 ![edit memes](https://images.wondershare.com/filmora/article-images/edit-memes-filmroa-meme-maker.JPG)
@@ -2933,6 +2929,10 @@ Follow @Ollie Mattison
  From this article, [Filmora Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) is one of the top meme makers in the market. Not only picture or GIF but video memes can also be done using this tool. As there is no need of downloading the software on your system or mobile, you save lot of time and space on your hard drive. We are hopeful that you are comfortable with how to make memes with white background using Filmora Meme Maker online.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -3092,21 +3092,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-curating-your-music-collection-the-easy-guide-to-youtube-playlist-creation-webapp/"><u>[New] Curating Your Music Collection The Easy Guide to YouTube Playlist Creation (Web/App)</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-building-effective-podcast-rss-feeds/"><u>[Updated] Building Effective Podcast RSS Feeds</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-dji-quadcopters-starter-upgraded-professional-edition/"><u>[Updated] In 2024, DJI Quadcopters Starter, Upgraded, Professional Edition</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-craft-memes-with-kapwings-design-toolkit/"><u>2024 Approved Craft Memes with Kapwing's Design Toolkit</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/advanced-movie-file-management-six-tips-for-the-modern-user-in-windows-11/"><u>Advanced Movie File Management - Six Tips for the Modern User in Windows 11</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-a25-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy A25 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-top-10-storyboarding-software-freeandpaid/"><u>In 2024, Top 10 Storyboarding Software Free&Paid</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/innovative-techniques-for-capturing-audio-on-ipad/"><u>Innovative Techniques for Capturing Audio on iPad</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-20-wonderful-stop-motion-ideas-for-beginners-and-kids/"><u>New 2024 Approved 20 Wonderful Stop Motion Ideas for Beginners and Kids</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-7-free-apps-to-get-emojis-on-android-and-iphone/"><u>New 2024 Approved 7 Free Apps to Get Emojis on Android and iPhone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/perfecting-iphone-screen-exposure/"><u>Perfecting iPhone Screen Exposure</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/top-explainer-video-tools-a-comprehensive-review/"><u>Top Explainer Video Tools A Comprehensive Review</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-10-best-memes-right-now-include-image-gifvideo/"><u>Updated 2024 Approved 10 Best Memes Right Now (Include Image/ GIF/Video)</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself-for-2024/"><u>Updated How to Make an Emoji of Yourself on Mobile ? Emoji Yourself for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-8-best-meme-maker-app-to-create-memes-with-your-own-picture/"><u>Updated In 2024, 8 Best Meme Maker App to Create Memes with Your Own Picture</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-top-10-storyboarding-software-for-2024/"><u>Updated Top 10 Storyboarding Software for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-spectral-film-reset-guide/"><u>[New] 2024 Approved Spectral Film Reset Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-from-reality-to-virtuality-best-practices-for-recording-gameplay-worlds-for-2024/"><u>[New] From Reality to Virtuality Best Practices for Recording Gameplay Worlds for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-superior-quality-drones-on-sale/"><u>[Updated] In 2024, Superior Quality Drones on Sale</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-ultimate-guide-to-android-photo-fixes-for-2024/"><u>[Updated] Ultimate Guide to Android Photo Fixes for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-guide-to-weaving-gopro-footage-into-circular-films-for-2024/"><u>[Updated] Ultimate Guide to Weaving GoPro Footage Into Circular Films for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-htc-u23-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On HTC U23 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/is-this-a-pigeon-meme-generator-for-2024/"><u>Is This a Pigeon Meme Generator for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-canon-pixma-mg2520mg2522-drivers-for-windows-download-and-installation-guide/"><u>Latest Canon PIXMA MG2520/MG2522 Drivers for Windows: Download & Installation Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-10-best-work-memes-to-have-fun-in-work-days/"><u>New 2024 Approved 10 Best Work Memes to Have Fun in Work Days</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-best-emoji-removers-to-remove-emojis-from-pictures/"><u>New In 2024, Best Emoji Removers to Remove Emojis From Pictures</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solving-liquid-detected-errors-in-your-iphones-usb-c-connection/"><u>Solving 'Liquid Detected' Errors in Your iPhone's USB-C Connection</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-free-10-websites-to-watch-cartoon-online-in-hd/"><u>Updated FREE 10 Websites to Watch Cartoon Online in HD</u></a></li>
+<li><a href="https://fox-access.techidaily.com/your-guide-to-attracting-viewers-with-6-key-videos/"><u>Your Guide to Attracting Viewers with 6 Key Videos</u></a></li>
 </ul></div>
 
