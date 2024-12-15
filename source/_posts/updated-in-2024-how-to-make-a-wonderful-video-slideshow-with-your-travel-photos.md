@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, How to Make a Wonderful Video Slideshow with Your Travel Photos
-date: 2024-12-02T17:30:59.234Z
-updated: 2024-12-09T18:37:11.516Z
+date: 2024-12-09T21:05:08.178Z
+updated: 2024-12-15T20:13:55.915Z
 tags: 
   - ai
   - animation videos
@@ -68,10 +68,6 @@ Next, set up the photo duration to the desired length, so that you don't need to
 
 ![Add music on travel photo slideshow](https://images.wondershare.com/filmora/article-images/filmora-audio-library.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you want to sync the photo to the background music, you can [use the Beat Detection tool in Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and mark the highlights accordingly.
 
 **Step 3:** Once you did that, you will have to drag and then drop the images directly to the timeline. Here is where you can change things like saturation, hue, brightness, contrast and other features.
@@ -131,6 +127,10 @@ But one has to wonder, what tool should you use to create such a travel slidesho
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **How can you create video slideshows with Wondershare Filmora?**
 
 Creating a unique slideshow video with this tool is actually very easy and it does provide you with a huge amount of value should you choose to use it. Here are several things you need to consider when making a travel slideshow video. First, choose the right music for the travel slideshow; second, adjust the duration of the photos; third, transitions and effects.
@@ -144,6 +144,10 @@ Here are the steps you need to focus on when creating a travel slideshow video w
 Add all the travel photos into the applications. You can add in multiple folders in order to make sorting the images a lot easier.
 
 ![How to make video slideshow with travel photos - import](https://images.wondershare.com/filmora/article-images/import-travel-photos-video-to-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Next, set up the photo duration to the desired length, so that you don't need to adjust the photo duration one by one.
 
@@ -177,10 +181,6 @@ Wondershare Filmora is a very good application for those that want a unique, fun
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -204,6 +204,10 @@ Before you create the travel slideshow you have to keep in mind a few things. If
 You need to try and consider your audience because based on that the slideshow will have a specific format. You also need to think about telling a story as that will make it a lot more interesting other than just having a bunch of images aligned together in a non-meaningful manner.
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  **Wondershare Filmora – The best tool to create a video slideshow with your travel photos**
 
@@ -255,10 +259,6 @@ When you are done with that, you have to select the filters and overlays that wi
 **Step 5:** Lastly, you will have to export the slideshow as you see fit, but you also have the option to share it on YouTube if you so desire.
 
 ![export slideshow with travel photos](https://images.wondershare.com/filmora/article-images/filmora-export-interface.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -481,6 +481,10 @@ Wondershare Filmora is a powerful [video editing tool](https://tools.techidaily.
 
 ![download animated emoji pack](https://images.wondershare.com/filmora/article-images/download-animated-emoji-pack2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5\. Then simply add the emoji to the timeline. You can resize, rotate, color tune the emoji, or even add two or more emojis to the video as you like.
 
 ![add emoji to video](https://images.wondershare.com/filmora/article-images/add-emoji-to-videos.jpg)
@@ -592,7 +596,7 @@ Now, you are all set to get the best emoji websites to download emojis and save 
 ![cool symbol emoji website](https://images.wondershare.com/filmora/article-images/cool-symbol-emoji-website9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 10. Joypixels
@@ -749,6 +753,10 @@ Wondershare Filmora is a powerful [video editing tool](https://tools.techidaily.
 
 ![drage emoji video to timeline](https://images.wondershare.com/filmora/article-images/drag-emoji-video-to-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3\. Now, navigate to the **Elements** tab, then go to **Included**\-**Emoji**, and you can download free emojis and add it to your video.
 
 ![filmora built in emoji](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
@@ -765,10 +773,6 @@ Wondershare Filmora is a powerful [video editing tool](https://tools.techidaily.
 
 ![export the emoji video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Bonus tip: Create an Animation Video with Anireel
 
 [**Anireel**](https://tools.techidaily.com/wondershare/anireel/download/) provides a faster and smoother animated video creation experience with customizable elements to bring anyone’s imagination to life. All you have to do is choose your script, input the content, and Anireel will instantly match your script to rich animation explainer scenes, convert the text into voice-over, and generate a vivid, complete animation video.
@@ -782,6 +786,10 @@ Wondershare Filmora is a powerful [video editing tool](https://tools.techidaily.
 Emoji websites are hard to find and it’s even harder to find a website that allows you to download emojis and save emojis for later use. The guide has been great and there are 10 websites that you can utilize to get emojis, fonts, text decorators, and whatnot, and to make the social media integration easy for you because when you are chatting with a friend and a good line needs some decoration then no one can do that better than emojis. So, what are you waiting for, just go and check out these websites and let us know in the comment section about your favorite website?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -904,10 +912,6 @@ Wondershare Filmora is a powerful [video editing tool](https://tools.techidaily.
 6\. Once done, click the **Export** button to export the video to your local device, or you can upload it to YouTube directly.
 
 ![export the emoji video](https://images.wondershare.com/filmora/article-images/click-export-video-output.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus tip: Create an Animation Video with Anireel
 
@@ -1136,10 +1140,6 @@ As an owner of a Discord channel, it is easy for you to add emoji to Discord. Fo
 
 ![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
 
 You can add custom emoji on Discord, but only if you are a server owner or administrator. Use the Discord server settings on either the desktop versions for Windows or Mac or the Discord Website.
@@ -1164,6 +1164,10 @@ Follow the steps below for either platform:
 * Enjoy your emoji in chats as soon as you upload them to the Discord server!
 
 Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
 
@@ -1294,10 +1298,6 @@ Follow the steps below for either platform:
 * Access your Discord server to begin and press the arrow pointing down in the channel list with the server name—Press "Server Settings" in the menu
 
 ![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/discord-server-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
 
@@ -1778,6 +1778,10 @@ Bitmoji is available for Android users as well. Before you begin to use it, go t
 **Step** **2:** Install Bitmoji keyboard and give permission to your phone to use Bitmoji keyboard. Bitmoji will notify you when the Bitmoji keyboard gets activated.
 
 ![enable bitmoji android](https://images.wondershare.com/filmora/article-images/enable-bitmoji-android.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You are all done. Now, use the Bitmoji keyboard to chat with your family members and friends and make everything fun and exciting.
 
@@ -2333,10 +2337,6 @@ Also, the platform includes a handy presentation mode so you can show your team 
 **Platforms:** Windows, Linux, and Mac
 
 ![boords-poster](https://images.wondershare.com/filmora/article-images/boords-poster.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In the software industry, online SaaS products have quickly become the norm. While desktop programs are not going away, we see more and more web-based options such as Boards that provide unique solutions.
 
@@ -2987,231 +2987,231 @@ Follow @Shanoon Cox
 
  Now you just need to add the text to your template. Select the Text option in the Tools menu and then proceed to select the font or the size of your text in the Font menu. Make sure that the Opaque feature is enabled in the Background menu in order to change the color of the textbox background. Adjusting the Color 1 option in the Color Menu will enable you to choose the text color, while the Color 2 option lets you pick the color of the background. Type triggered in the textbox, and center the text by clicking on the TAB button on your keyboard a few times. Now you have everything you need to start creating your own triggered meme.
 
-## How to Make a Triggered Meme?
-
- Once you’ve successfully created a triggered template you can move on to the next step of the meme making process.
-
-#### 1. Adding Media to a Project
-
- Open Filmora in the Full Feature Mode and import all the files you’re going to need during the process of making a meme. The files you import to your project will be stored in the Media Panel. Add the video to the timeline by dropping it over the video track. You can then remove the unwanted parts of the clip or add a still frame to the end of the video to prolong the triggered effect of the meme. Still frames in Filmora can be created by clicking on the Snapshot icon, that is located below the Preview Panel.
-
-#### 2. Using the Green Screen Effect
-
- Place the triggered template to the Picture-in-Picture track and try to position it at the exact place in the video where the person gets triggered. Click on the Green Screen icon located in the toolbar to gain access to the PIP Edit window. The Chroma Key (Green Screen) option will be selected by default, so you just have to check the ‘Make parts of the clip transparent’ box. The green background of the template will become transparent and you’ll be able to see parts of your video, with the triggered text displayed below it.
-
-#### 3. Enhancing Colors and Applying Effects
-
- In order to highlight just how much a person in the video got triggered, you can change the vibrance and saturation in a portion of a video clip by clicking on the Edit icon in the toolbar. In addition, other software’s color correction tools like brightness, tint or contrast can also be used to highlight the triggered moment.
-
- After you adjust the color values, you can click on the Effects icon if you want to add motion blur or camera shake effects. Click on the Shake option in the Effects panel to start browsing through different effects and click on the plus icon to add the effect to the clip you selected. The Distortion category in the Effects panel features a number of blur effects you can use to make the video more entertaining. You can adjust the properties of all the effects you add to your meme and control how much of the effect is applied to the video.
-
-#### 4. Adding Music and Text Overlays to Your Meme
-
- Increasing the number of visual elements in the video can help you create a funnier meme. A single word can change the meaning of a meme so if you want to add additional comment besides noting that the person got triggered you can click on the Text icon and select the text overlay you like. Click on the plus icon that is displayed over the effect to add it to a video clip. A textbox will appear over the video in the Preview window and you can drag it around the screen to reposition it or rotate it. Enable the No Animation option if you want the text to just appear and disappear from the screen.
-
- Sounds can add to the comical effect of a meme. Carefully select what type of music or sound you want to use for a meme since it can improve the quality of your meme. Simply drag the audio file you imported into Filmora and place it on the audio track and adjust its duration to match the duration of the video. If you don’t have your own music you can try some of the tracks featured in the software’s music library.
-
-#### 4. Exporting the Triggered Meme from Filmora
-
- When your meme is ready to hit the social media, you can click on the Export button. In the Export window, you can choose any of the available file formats, but the formats best suited for memes are either MP4 or GIF. Click on the Settings icon in the Output Description menu to change the frame rate, resolution or the quality of the video. Wondershare Filmora lets you export videos directly to your YouTube channel or your Facebook account, so you don’t have to waste time on posting the meme after the export process is completed.
-
- The software also offers the option to save a meme you created to your hard drive if you don’t want to post a meme on social media right away. You just have to click on the Export button after adjusting the output settings and wait for the file to be exported.
-
-**Conclusion**
-
- The precious memories of your friends being enraged by the silliest things can be turned into hilarious memes effortlessly. A video editing software like Wondershare Filmora gives you all the tools you’ll need to quickly generate a triggered meme, so you can focus on having fun with your friends. What’s your favorite method of making memes?
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- It is no secret that we all lose our cool from time. It’s only natural, after all, the world can be a frustrating place. We’re all enraged by different things, some of us can’t stand pineapple on pizza while others explode when being pranked. What we often don’t realize is that being triggered in front of a camera makes us perfect meme material. Even though the majority of memes are still images, some of the [most memorable memes](https://tools.techidaily.com/wondershare/filmora/download/) ever created were [GIFs or short videos.](https://tools.techidaily.com/wondershare/filmora/download/)
-
- Making the triggered meme is easy when you know how, so in this article, we are going to show you how to make your next potentially viral meme, in just a few easy steps.
-
----
-
- Filmora offers an easy to use video editor named [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) to make video and gif memes, and an online free meme maker named [Filmora FREE Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to create images, videos and gifs memes for free. The video tutorial below will show you how to make a triggered video meme with Filmora. Download it and try it by yourself now.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## The Things You Need to Make a Triggered Meme
-
- Preparation is key to almost every important thing in life, including making a triggered meme featuring your bestie. Before you can capitalize on that amazing footage of triggered people you first have to make sure you have everything you need to generate a meme. Okay, let's get started with the essentials to making a fun and effective meme.
-
-#### 1. A Triggered Template
-
- You have virtually unlimited resources at your disposal, as this meme template can be easily found through a quick Google search. There is even an Android app called [Triggered Meme Maker](https://play.google.com/store/apps/details?id=com.toukopeltomaa.triggeredgenerator&hl=en%5FUS), that lets you do what its name suggests, make triggered memes. Making your own template in Microsoft Paint (we will show you how to make it in this article later) or any other photo editing software is also an option if you want to select the color of the background, rather than work with what you can find online.
-
-#### 2. A Video Editing Software
-
- Memes are short videos that rarely last longer than 30 seconds, which is why you don’t need a powerful video editing suite like Final Cut Pro or Adobe Premiere Pro to make a good meme. A software like [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) that is easy to use and yet packed with cool visual effects and useful tools is a better choice if you just want to have a little fun with a video you recorded.
-
-#### 3. The Sound for the Triggered Meme
-
- This ingredient of a good meme is easy to forget, but music or any other type of sound can make your meme funnier. In most cases, you’ll want to keep at least a portion of the original audio, but adding sound effects at different points of the meme can have a comical effect. The Filmora’s Music Library can serve as your endless source of [royalty free music and sounds](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## Making a Triggered Meme Template in Microsoft Paint
-
- Creating a meme template is an easy task that can be handled from the Microsoft Paint in a couple of minutes. When you launch the software, click on the Fill with color icon located in the Tools section of the Paint’s ribbon. Activating this option enables you to change the color of the background with a single click. Proceed to select the color of the background from the color palette located on the far right side of the ribbon. We recommend choosing shades of green because the background is going to be used for the Chroma Key effect. You can click on the Edit Colors icon if you want to find a perfect color tone for the background. Right-click anywhere on the canvas to change its color.
-
- Now you just need to add the text to your template. Select the Text option in the Tools menu and then proceed to select the font or the size of your text in the Font menu. Make sure that the Opaque feature is enabled in the Background menu in order to change the color of the textbox background. Adjusting the Color 1 option in the Color Menu will enable you to choose the text color, while the Color 2 option lets you pick the color of the background. Type triggered in the textbox, and center the text by clicking on the TAB button on your keyboard a few times. Now you have everything you need to start creating your own triggered meme.
-
-## How to Make a Triggered Meme?
-
- Once you’ve successfully created a triggered template you can move on to the next step of the meme making process.
-
-#### 1. Adding Media to a Project
-
- Open Filmora in the Full Feature Mode and import all the files you’re going to need during the process of making a meme. The files you import to your project will be stored in the Media Panel. Add the video to the timeline by dropping it over the video track. You can then remove the unwanted parts of the clip or add a still frame to the end of the video to prolong the triggered effect of the meme. Still frames in Filmora can be created by clicking on the Snapshot icon, that is located below the Preview Panel.
-
-#### 2. Using the Green Screen Effect
-
- Place the triggered template to the Picture-in-Picture track and try to position it at the exact place in the video where the person gets triggered. Click on the Green Screen icon located in the toolbar to gain access to the PIP Edit window. The Chroma Key (Green Screen) option will be selected by default, so you just have to check the ‘Make parts of the clip transparent’ box. The green background of the template will become transparent and you’ll be able to see parts of your video, with the triggered text displayed below it.
-
-#### 3. Enhancing Colors and Applying Effects
-
- In order to highlight just how much a person in the video got triggered, you can change the vibrance and saturation in a portion of a video clip by clicking on the Edit icon in the toolbar. In addition, other software’s color correction tools like brightness, tint or contrast can also be used to highlight the triggered moment.
-
- After you adjust the color values, you can click on the Effects icon if you want to add motion blur or camera shake effects. Click on the Shake option in the Effects panel to start browsing through different effects and click on the plus icon to add the effect to the clip you selected. The Distortion category in the Effects panel features a number of blur effects you can use to make the video more entertaining. You can adjust the properties of all the effects you add to your meme and control how much of the effect is applied to the video.
-
-#### 4. Adding Music and Text Overlays to Your Meme
-
- Increasing the number of visual elements in the video can help you create a funnier meme. A single word can change the meaning of a meme so if you want to add additional comment besides noting that the person got triggered you can click on the Text icon and select the text overlay you like. Click on the plus icon that is displayed over the effect to add it to a video clip. A textbox will appear over the video in the Preview window and you can drag it around the screen to reposition it or rotate it. Enable the No Animation option if you want the text to just appear and disappear from the screen.
-
- Sounds can add to the comical effect of a meme. Carefully select what type of music or sound you want to use for a meme since it can improve the quality of your meme. Simply drag the audio file you imported into Filmora and place it on the audio track and adjust its duration to match the duration of the video. If you don’t have your own music you can try some of the tracks featured in the software’s music library.
-
-#### 4. Exporting the Triggered Meme from Filmora
-
- When your meme is ready to hit the social media, you can click on the Export button. In the Export window, you can choose any of the available file formats, but the formats best suited for memes are either MP4 or GIF. Click on the Settings icon in the Output Description menu to change the frame rate, resolution or the quality of the video. Wondershare Filmora lets you export videos directly to your YouTube channel or your Facebook account, so you don’t have to waste time on posting the meme after the export process is completed.
-
- The software also offers the option to save a meme you created to your hard drive if you don’t want to post a meme on social media right away. You just have to click on the Export button after adjusting the output settings and wait for the file to be exported.
-
-**Conclusion**
-
- The precious memories of your friends being enraged by the silliest things can be turned into hilarious memes effortlessly. A video editing software like Wondershare Filmora gives you all the tools you’ll need to quickly generate a triggered meme, so you can focus on having fun with your friends. What’s your favorite method of making memes?
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- It is no secret that we all lose our cool from time. It’s only natural, after all, the world can be a frustrating place. We’re all enraged by different things, some of us can’t stand pineapple on pizza while others explode when being pranked. What we often don’t realize is that being triggered in front of a camera makes us perfect meme material. Even though the majority of memes are still images, some of the [most memorable memes](https://tools.techidaily.com/wondershare/filmora/download/) ever created were [GIFs or short videos.](https://tools.techidaily.com/wondershare/filmora/download/)
-
- Making the triggered meme is easy when you know how, so in this article, we are going to show you how to make your next potentially viral meme, in just a few easy steps.
-
----
-
- Filmora offers an easy to use video editor named [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) to make video and gif memes, and an online free meme maker named [Filmora FREE Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to create images, videos and gifs memes for free. The video tutorial below will show you how to make a triggered video meme with Filmora. Download it and try it by yourself now.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
----
-
-## The Things You Need to Make a Triggered Meme
-
- Preparation is key to almost every important thing in life, including making a triggered meme featuring your bestie. Before you can capitalize on that amazing footage of triggered people you first have to make sure you have everything you need to generate a meme. Okay, let's get started with the essentials to making a fun and effective meme.
-
-#### 1. A Triggered Template
-
- You have virtually unlimited resources at your disposal, as this meme template can be easily found through a quick Google search. There is even an Android app called [Triggered Meme Maker](https://play.google.com/store/apps/details?id=com.toukopeltomaa.triggeredgenerator&hl=en%5FUS), that lets you do what its name suggests, make triggered memes. Making your own template in Microsoft Paint (we will show you how to make it in this article later) or any other photo editing software is also an option if you want to select the color of the background, rather than work with what you can find online.
-
-#### 2. A Video Editing Software
-
- Memes are short videos that rarely last longer than 30 seconds, which is why you don’t need a powerful video editing suite like Final Cut Pro or Adobe Premiere Pro to make a good meme. A software like [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) that is easy to use and yet packed with cool visual effects and useful tools is a better choice if you just want to have a little fun with a video you recorded.
-
-#### 3. The Sound for the Triggered Meme
-
- This ingredient of a good meme is easy to forget, but music or any other type of sound can make your meme funnier. In most cases, you’ll want to keep at least a portion of the original audio, but adding sound effects at different points of the meme can have a comical effect. The Filmora’s Music Library can serve as your endless source of [royalty free music and sounds](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## Making a Triggered Meme Template in Microsoft Paint
-
- Creating a meme template is an easy task that can be handled from the Microsoft Paint in a couple of minutes. When you launch the software, click on the Fill with color icon located in the Tools section of the Paint’s ribbon. Activating this option enables you to change the color of the background with a single click. Proceed to select the color of the background from the color palette located on the far right side of the ribbon. We recommend choosing shades of green because the background is going to be used for the Chroma Key effect. You can click on the Edit Colors icon if you want to find a perfect color tone for the background. Right-click anywhere on the canvas to change its color.
-
- Now you just need to add the text to your template. Select the Text option in the Tools menu and then proceed to select the font or the size of your text in the Font menu. Make sure that the Opaque feature is enabled in the Background menu in order to change the color of the textbox background. Adjusting the Color 1 option in the Color Menu will enable you to choose the text color, while the Color 2 option lets you pick the color of the background. Type triggered in the textbox, and center the text by clicking on the TAB button on your keyboard a few times. Now you have everything you need to start creating your own triggered meme.
-
-## How to Make a Triggered Meme?
-
- Once you’ve successfully created a triggered template you can move on to the next step of the meme making process.
-
-#### 1. Adding Media to a Project
-
- Open Filmora in the Full Feature Mode and import all the files you’re going to need during the process of making a meme. The files you import to your project will be stored in the Media Panel. Add the video to the timeline by dropping it over the video track. You can then remove the unwanted parts of the clip or add a still frame to the end of the video to prolong the triggered effect of the meme. Still frames in Filmora can be created by clicking on the Snapshot icon, that is located below the Preview Panel.
-
-#### 2. Using the Green Screen Effect
-
- Place the triggered template to the Picture-in-Picture track and try to position it at the exact place in the video where the person gets triggered. Click on the Green Screen icon located in the toolbar to gain access to the PIP Edit window. The Chroma Key (Green Screen) option will be selected by default, so you just have to check the ‘Make parts of the clip transparent’ box. The green background of the template will become transparent and you’ll be able to see parts of your video, with the triggered text displayed below it.
-
-#### 3. Enhancing Colors and Applying Effects
-
- In order to highlight just how much a person in the video got triggered, you can change the vibrance and saturation in a portion of a video clip by clicking on the Edit icon in the toolbar. In addition, other software’s color correction tools like brightness, tint or contrast can also be used to highlight the triggered moment.
-
- After you adjust the color values, you can click on the Effects icon if you want to add motion blur or camera shake effects. Click on the Shake option in the Effects panel to start browsing through different effects and click on the plus icon to add the effect to the clip you selected. The Distortion category in the Effects panel features a number of blur effects you can use to make the video more entertaining. You can adjust the properties of all the effects you add to your meme and control how much of the effect is applied to the video.
-
-#### 4. Adding Music and Text Overlays to Your Meme
-
- Increasing the number of visual elements in the video can help you create a funnier meme. A single word can change the meaning of a meme so if you want to add additional comment besides noting that the person got triggered you can click on the Text icon and select the text overlay you like. Click on the plus icon that is displayed over the effect to add it to a video clip. A textbox will appear over the video in the Preview window and you can drag it around the screen to reposition it or rotate it. Enable the No Animation option if you want the text to just appear and disappear from the screen.
-
- Sounds can add to the comical effect of a meme. Carefully select what type of music or sound you want to use for a meme since it can improve the quality of your meme. Simply drag the audio file you imported into Filmora and place it on the audio track and adjust its duration to match the duration of the video. If you don’t have your own music you can try some of the tracks featured in the software’s music library.
-
-#### 4. Exporting the Triggered Meme from Filmora
-
- When your meme is ready to hit the social media, you can click on the Export button. In the Export window, you can choose any of the available file formats, but the formats best suited for memes are either MP4 or GIF. Click on the Settings icon in the Output Description menu to change the frame rate, resolution or the quality of the video. Wondershare Filmora lets you export videos directly to your YouTube channel or your Facebook account, so you don’t have to waste time on posting the meme after the export process is completed.
-
- The software also offers the option to save a meme you created to your hard drive if you don’t want to post a meme on social media right away. You just have to click on the Export button after adjusting the output settings and wait for the file to be exported.
-
-**Conclusion**
-
- The precious memories of your friends being enraged by the silliest things can be turned into hilarious memes effortlessly. A video editing software like Wondershare Filmora gives you all the tools you’ll need to quickly generate a triggered meme, so you can focus on having fun with your friends. What’s your favorite method of making memes?
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- It is no secret that we all lose our cool from time. It’s only natural, after all, the world can be a frustrating place. We’re all enraged by different things, some of us can’t stand pineapple on pizza while others explode when being pranked. What we often don’t realize is that being triggered in front of a camera makes us perfect meme material. Even though the majority of memes are still images, some of the [most memorable memes](https://tools.techidaily.com/wondershare/filmora/download/) ever created were [GIFs or short videos.](https://tools.techidaily.com/wondershare/filmora/download/)
-
- Making the triggered meme is easy when you know how, so in this article, we are going to show you how to make your next potentially viral meme, in just a few easy steps.
-
----
-
- Filmora offers an easy to use video editor named [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) to make video and gif memes, and an online free meme maker named [Filmora FREE Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to create images, videos and gifs memes for free. The video tutorial below will show you how to make a triggered video meme with Filmora. Download it and try it by yourself now.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## How to Make a Triggered Meme?
+
+ Once you’ve successfully created a triggered template you can move on to the next step of the meme making process.
+
+#### 1. Adding Media to a Project
+
+ Open Filmora in the Full Feature Mode and import all the files you’re going to need during the process of making a meme. The files you import to your project will be stored in the Media Panel. Add the video to the timeline by dropping it over the video track. You can then remove the unwanted parts of the clip or add a still frame to the end of the video to prolong the triggered effect of the meme. Still frames in Filmora can be created by clicking on the Snapshot icon, that is located below the Preview Panel.
+
+#### 2. Using the Green Screen Effect
+
+ Place the triggered template to the Picture-in-Picture track and try to position it at the exact place in the video where the person gets triggered. Click on the Green Screen icon located in the toolbar to gain access to the PIP Edit window. The Chroma Key (Green Screen) option will be selected by default, so you just have to check the ‘Make parts of the clip transparent’ box. The green background of the template will become transparent and you’ll be able to see parts of your video, with the triggered text displayed below it.
+
+#### 3. Enhancing Colors and Applying Effects
+
+ In order to highlight just how much a person in the video got triggered, you can change the vibrance and saturation in a portion of a video clip by clicking on the Edit icon in the toolbar. In addition, other software’s color correction tools like brightness, tint or contrast can also be used to highlight the triggered moment.
+
+ After you adjust the color values, you can click on the Effects icon if you want to add motion blur or camera shake effects. Click on the Shake option in the Effects panel to start browsing through different effects and click on the plus icon to add the effect to the clip you selected. The Distortion category in the Effects panel features a number of blur effects you can use to make the video more entertaining. You can adjust the properties of all the effects you add to your meme and control how much of the effect is applied to the video.
+
+#### 4. Adding Music and Text Overlays to Your Meme
+
+ Increasing the number of visual elements in the video can help you create a funnier meme. A single word can change the meaning of a meme so if you want to add additional comment besides noting that the person got triggered you can click on the Text icon and select the text overlay you like. Click on the plus icon that is displayed over the effect to add it to a video clip. A textbox will appear over the video in the Preview window and you can drag it around the screen to reposition it or rotate it. Enable the No Animation option if you want the text to just appear and disappear from the screen.
+
+ Sounds can add to the comical effect of a meme. Carefully select what type of music or sound you want to use for a meme since it can improve the quality of your meme. Simply drag the audio file you imported into Filmora and place it on the audio track and adjust its duration to match the duration of the video. If you don’t have your own music you can try some of the tracks featured in the software’s music library.
+
+#### 4. Exporting the Triggered Meme from Filmora
+
+ When your meme is ready to hit the social media, you can click on the Export button. In the Export window, you can choose any of the available file formats, but the formats best suited for memes are either MP4 or GIF. Click on the Settings icon in the Output Description menu to change the frame rate, resolution or the quality of the video. Wondershare Filmora lets you export videos directly to your YouTube channel or your Facebook account, so you don’t have to waste time on posting the meme after the export process is completed.
+
+ The software also offers the option to save a meme you created to your hard drive if you don’t want to post a meme on social media right away. You just have to click on the Export button after adjusting the output settings and wait for the file to be exported.
+
+**Conclusion**
+
+ The precious memories of your friends being enraged by the silliest things can be turned into hilarious memes effortlessly. A video editing software like Wondershare Filmora gives you all the tools you’ll need to quickly generate a triggered meme, so you can focus on having fun with your friends. What’s your favorite method of making memes?
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ It is no secret that we all lose our cool from time. It’s only natural, after all, the world can be a frustrating place. We’re all enraged by different things, some of us can’t stand pineapple on pizza while others explode when being pranked. What we often don’t realize is that being triggered in front of a camera makes us perfect meme material. Even though the majority of memes are still images, some of the [most memorable memes](https://tools.techidaily.com/wondershare/filmora/download/) ever created were [GIFs or short videos.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ Making the triggered meme is easy when you know how, so in this article, we are going to show you how to make your next potentially viral meme, in just a few easy steps.
+
+---
+
+ Filmora offers an easy to use video editor named [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) to make video and gif memes, and an online free meme maker named [Filmora FREE Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to create images, videos and gifs memes for free. The video tutorial below will show you how to make a triggered video meme with Filmora. Download it and try it by yourself now.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## The Things You Need to Make a Triggered Meme
+
+ Preparation is key to almost every important thing in life, including making a triggered meme featuring your bestie. Before you can capitalize on that amazing footage of triggered people you first have to make sure you have everything you need to generate a meme. Okay, let's get started with the essentials to making a fun and effective meme.
+
+#### 1. A Triggered Template
+
+ You have virtually unlimited resources at your disposal, as this meme template can be easily found through a quick Google search. There is even an Android app called [Triggered Meme Maker](https://play.google.com/store/apps/details?id=com.toukopeltomaa.triggeredgenerator&hl=en%5FUS), that lets you do what its name suggests, make triggered memes. Making your own template in Microsoft Paint (we will show you how to make it in this article later) or any other photo editing software is also an option if you want to select the color of the background, rather than work with what you can find online.
+
+#### 2. A Video Editing Software
+
+ Memes are short videos that rarely last longer than 30 seconds, which is why you don’t need a powerful video editing suite like Final Cut Pro or Adobe Premiere Pro to make a good meme. A software like [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) that is easy to use and yet packed with cool visual effects and useful tools is a better choice if you just want to have a little fun with a video you recorded.
+
+#### 3. The Sound for the Triggered Meme
+
+ This ingredient of a good meme is easy to forget, but music or any other type of sound can make your meme funnier. In most cases, you’ll want to keep at least a portion of the original audio, but adding sound effects at different points of the meme can have a comical effect. The Filmora’s Music Library can serve as your endless source of [royalty free music and sounds](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Making a Triggered Meme Template in Microsoft Paint
+
+ Creating a meme template is an easy task that can be handled from the Microsoft Paint in a couple of minutes. When you launch the software, click on the Fill with color icon located in the Tools section of the Paint’s ribbon. Activating this option enables you to change the color of the background with a single click. Proceed to select the color of the background from the color palette located on the far right side of the ribbon. We recommend choosing shades of green because the background is going to be used for the Chroma Key effect. You can click on the Edit Colors icon if you want to find a perfect color tone for the background. Right-click anywhere on the canvas to change its color.
+
+ Now you just need to add the text to your template. Select the Text option in the Tools menu and then proceed to select the font or the size of your text in the Font menu. Make sure that the Opaque feature is enabled in the Background menu in order to change the color of the textbox background. Adjusting the Color 1 option in the Color Menu will enable you to choose the text color, while the Color 2 option lets you pick the color of the background. Type triggered in the textbox, and center the text by clicking on the TAB button on your keyboard a few times. Now you have everything you need to start creating your own triggered meme.
+
+## How to Make a Triggered Meme?
+
+ Once you’ve successfully created a triggered template you can move on to the next step of the meme making process.
+
+#### 1. Adding Media to a Project
+
+ Open Filmora in the Full Feature Mode and import all the files you’re going to need during the process of making a meme. The files you import to your project will be stored in the Media Panel. Add the video to the timeline by dropping it over the video track. You can then remove the unwanted parts of the clip or add a still frame to the end of the video to prolong the triggered effect of the meme. Still frames in Filmora can be created by clicking on the Snapshot icon, that is located below the Preview Panel.
+
+#### 2. Using the Green Screen Effect
+
+ Place the triggered template to the Picture-in-Picture track and try to position it at the exact place in the video where the person gets triggered. Click on the Green Screen icon located in the toolbar to gain access to the PIP Edit window. The Chroma Key (Green Screen) option will be selected by default, so you just have to check the ‘Make parts of the clip transparent’ box. The green background of the template will become transparent and you’ll be able to see parts of your video, with the triggered text displayed below it.
+
+#### 3. Enhancing Colors and Applying Effects
+
+ In order to highlight just how much a person in the video got triggered, you can change the vibrance and saturation in a portion of a video clip by clicking on the Edit icon in the toolbar. In addition, other software’s color correction tools like brightness, tint or contrast can also be used to highlight the triggered moment.
+
+ After you adjust the color values, you can click on the Effects icon if you want to add motion blur or camera shake effects. Click on the Shake option in the Effects panel to start browsing through different effects and click on the plus icon to add the effect to the clip you selected. The Distortion category in the Effects panel features a number of blur effects you can use to make the video more entertaining. You can adjust the properties of all the effects you add to your meme and control how much of the effect is applied to the video.
+
+#### 4. Adding Music and Text Overlays to Your Meme
+
+ Increasing the number of visual elements in the video can help you create a funnier meme. A single word can change the meaning of a meme so if you want to add additional comment besides noting that the person got triggered you can click on the Text icon and select the text overlay you like. Click on the plus icon that is displayed over the effect to add it to a video clip. A textbox will appear over the video in the Preview window and you can drag it around the screen to reposition it or rotate it. Enable the No Animation option if you want the text to just appear and disappear from the screen.
+
+ Sounds can add to the comical effect of a meme. Carefully select what type of music or sound you want to use for a meme since it can improve the quality of your meme. Simply drag the audio file you imported into Filmora and place it on the audio track and adjust its duration to match the duration of the video. If you don’t have your own music you can try some of the tracks featured in the software’s music library.
+
+#### 4. Exporting the Triggered Meme from Filmora
+
+ When your meme is ready to hit the social media, you can click on the Export button. In the Export window, you can choose any of the available file formats, but the formats best suited for memes are either MP4 or GIF. Click on the Settings icon in the Output Description menu to change the frame rate, resolution or the quality of the video. Wondershare Filmora lets you export videos directly to your YouTube channel or your Facebook account, so you don’t have to waste time on posting the meme after the export process is completed.
+
+ The software also offers the option to save a meme you created to your hard drive if you don’t want to post a meme on social media right away. You just have to click on the Export button after adjusting the output settings and wait for the file to be exported.
+
+**Conclusion**
+
+ The precious memories of your friends being enraged by the silliest things can be turned into hilarious memes effortlessly. A video editing software like Wondershare Filmora gives you all the tools you’ll need to quickly generate a triggered meme, so you can focus on having fun with your friends. What’s your favorite method of making memes?
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ It is no secret that we all lose our cool from time. It’s only natural, after all, the world can be a frustrating place. We’re all enraged by different things, some of us can’t stand pineapple on pizza while others explode when being pranked. What we often don’t realize is that being triggered in front of a camera makes us perfect meme material. Even though the majority of memes are still images, some of the [most memorable memes](https://tools.techidaily.com/wondershare/filmora/download/) ever created were [GIFs or short videos.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ Making the triggered meme is easy when you know how, so in this article, we are going to show you how to make your next potentially viral meme, in just a few easy steps.
+
+---
+
+ Filmora offers an easy to use video editor named [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) to make video and gif memes, and an online free meme maker named [Filmora FREE Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to create images, videos and gifs memes for free. The video tutorial below will show you how to make a triggered video meme with Filmora. Download it and try it by yourself now.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+---
+
+## The Things You Need to Make a Triggered Meme
+
+ Preparation is key to almost every important thing in life, including making a triggered meme featuring your bestie. Before you can capitalize on that amazing footage of triggered people you first have to make sure you have everything you need to generate a meme. Okay, let's get started with the essentials to making a fun and effective meme.
+
+#### 1. A Triggered Template
+
+ You have virtually unlimited resources at your disposal, as this meme template can be easily found through a quick Google search. There is even an Android app called [Triggered Meme Maker](https://play.google.com/store/apps/details?id=com.toukopeltomaa.triggeredgenerator&hl=en%5FUS), that lets you do what its name suggests, make triggered memes. Making your own template in Microsoft Paint (we will show you how to make it in this article later) or any other photo editing software is also an option if you want to select the color of the background, rather than work with what you can find online.
+
+#### 2. A Video Editing Software
+
+ Memes are short videos that rarely last longer than 30 seconds, which is why you don’t need a powerful video editing suite like Final Cut Pro or Adobe Premiere Pro to make a good meme. A software like [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) that is easy to use and yet packed with cool visual effects and useful tools is a better choice if you just want to have a little fun with a video you recorded.
+
+#### 3. The Sound for the Triggered Meme
+
+ This ingredient of a good meme is easy to forget, but music or any other type of sound can make your meme funnier. In most cases, you’ll want to keep at least a portion of the original audio, but adding sound effects at different points of the meme can have a comical effect. The Filmora’s Music Library can serve as your endless source of [royalty free music and sounds](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Making a Triggered Meme Template in Microsoft Paint
+
+ Creating a meme template is an easy task that can be handled from the Microsoft Paint in a couple of minutes. When you launch the software, click on the Fill with color icon located in the Tools section of the Paint’s ribbon. Activating this option enables you to change the color of the background with a single click. Proceed to select the color of the background from the color palette located on the far right side of the ribbon. We recommend choosing shades of green because the background is going to be used for the Chroma Key effect. You can click on the Edit Colors icon if you want to find a perfect color tone for the background. Right-click anywhere on the canvas to change its color.
+
+ Now you just need to add the text to your template. Select the Text option in the Tools menu and then proceed to select the font or the size of your text in the Font menu. Make sure that the Opaque feature is enabled in the Background menu in order to change the color of the textbox background. Adjusting the Color 1 option in the Color Menu will enable you to choose the text color, while the Color 2 option lets you pick the color of the background. Type triggered in the textbox, and center the text by clicking on the TAB button on your keyboard a few times. Now you have everything you need to start creating your own triggered meme.
+
+## How to Make a Triggered Meme?
+
+ Once you’ve successfully created a triggered template you can move on to the next step of the meme making process.
+
+#### 1. Adding Media to a Project
+
+ Open Filmora in the Full Feature Mode and import all the files you’re going to need during the process of making a meme. The files you import to your project will be stored in the Media Panel. Add the video to the timeline by dropping it over the video track. You can then remove the unwanted parts of the clip or add a still frame to the end of the video to prolong the triggered effect of the meme. Still frames in Filmora can be created by clicking on the Snapshot icon, that is located below the Preview Panel.
+
+#### 2. Using the Green Screen Effect
+
+ Place the triggered template to the Picture-in-Picture track and try to position it at the exact place in the video where the person gets triggered. Click on the Green Screen icon located in the toolbar to gain access to the PIP Edit window. The Chroma Key (Green Screen) option will be selected by default, so you just have to check the ‘Make parts of the clip transparent’ box. The green background of the template will become transparent and you’ll be able to see parts of your video, with the triggered text displayed below it.
+
+#### 3. Enhancing Colors and Applying Effects
+
+ In order to highlight just how much a person in the video got triggered, you can change the vibrance and saturation in a portion of a video clip by clicking on the Edit icon in the toolbar. In addition, other software’s color correction tools like brightness, tint or contrast can also be used to highlight the triggered moment.
+
+ After you adjust the color values, you can click on the Effects icon if you want to add motion blur or camera shake effects. Click on the Shake option in the Effects panel to start browsing through different effects and click on the plus icon to add the effect to the clip you selected. The Distortion category in the Effects panel features a number of blur effects you can use to make the video more entertaining. You can adjust the properties of all the effects you add to your meme and control how much of the effect is applied to the video.
+
+#### 4. Adding Music and Text Overlays to Your Meme
+
+ Increasing the number of visual elements in the video can help you create a funnier meme. A single word can change the meaning of a meme so if you want to add additional comment besides noting that the person got triggered you can click on the Text icon and select the text overlay you like. Click on the plus icon that is displayed over the effect to add it to a video clip. A textbox will appear over the video in the Preview window and you can drag it around the screen to reposition it or rotate it. Enable the No Animation option if you want the text to just appear and disappear from the screen.
+
+ Sounds can add to the comical effect of a meme. Carefully select what type of music or sound you want to use for a meme since it can improve the quality of your meme. Simply drag the audio file you imported into Filmora and place it on the audio track and adjust its duration to match the duration of the video. If you don’t have your own music you can try some of the tracks featured in the software’s music library.
+
+#### 4. Exporting the Triggered Meme from Filmora
+
+ When your meme is ready to hit the social media, you can click on the Export button. In the Export window, you can choose any of the available file formats, but the formats best suited for memes are either MP4 or GIF. Click on the Settings icon in the Output Description menu to change the frame rate, resolution or the quality of the video. Wondershare Filmora lets you export videos directly to your YouTube channel or your Facebook account, so you don’t have to waste time on posting the meme after the export process is completed.
+
+ The software also offers the option to save a meme you created to your hard drive if you don’t want to post a meme on social media right away. You just have to click on the Export button after adjusting the output settings and wait for the file to be exported.
+
+**Conclusion**
+
+ The precious memories of your friends being enraged by the silliest things can be turned into hilarious memes effortlessly. A video editing software like Wondershare Filmora gives you all the tools you’ll need to quickly generate a triggered meme, so you can focus on having fun with your friends. What’s your favorite method of making memes?
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ It is no secret that we all lose our cool from time. It’s only natural, after all, the world can be a frustrating place. We’re all enraged by different things, some of us can’t stand pineapple on pizza while others explode when being pranked. What we often don’t realize is that being triggered in front of a camera makes us perfect meme material. Even though the majority of memes are still images, some of the [most memorable memes](https://tools.techidaily.com/wondershare/filmora/download/) ever created were [GIFs or short videos.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+ Making the triggered meme is easy when you know how, so in this article, we are going to show you how to make your next potentially viral meme, in just a few easy steps.
+
+---
+
+ Filmora offers an easy to use video editor named [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) to make video and gif memes, and an online free meme maker named [Filmora FREE Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to create images, videos and gifs memes for free. The video tutorial below will show you how to make a triggered video meme with Filmora. Download it and try it by yourself now.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
@@ -3297,22 +3297,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/iscover-top-affordable-video-editors-of-2023-today/"><u>[New] Discover Top Affordable Video Editors of 2023 Today</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pioneering-immersive-tech-firms/"><u>[New] Pioneering Immersive Tech Firms</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-uncover-the-ultimate-directory-of-no-cost-vector-art-sites/"><u>[New] Uncover the Ultimate Directory of No-Cost Vector Art Sites</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-direct-methods-to-record-virtual-meetings/"><u>[Updated] In 2024, Direct Methods to Record Virtual Meetings</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/10-free-online-sticker-makers-to-make-your-own-stickers/"><u>10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
-<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-xiaomi-redmi-note-12-pro-4g-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Xiaomi Redmi Note 12 Pro 4G in 3 Ways | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-vivo-s17-frp-by-drfone-android/"><u>Full Guide to Bypass Vivo S17 FRP</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-add-and-custom-slack-emoji-wondershare-filmora-for-2024/"><u>How to Add and Custom Slack Emoji-Wondershare Filmora for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-edit-memoji-on-android-and-iphone-for-2024/"><u>How to Edit Memoji on Android and iPhone for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-infinix-note-30-pro-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Infinix Note 30 Pro to Another | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-distracted-boyfriend-meme-generator/"><u>In 2024, Distracted Boyfriend Meme Generator</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-realme-c51-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Realme C51 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-top-12-best-meme-makers-online-for-free/"><u>New 2024 Approved Top 12 Best Meme Makers Online for FREE</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-10-most-popular-minion-memes-that-moms-are-crazy-about/"><u>New In 2024, 10 Most Popular Minion Memes that Moms Are Crazy About</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-edit-memoji-on-android-and-iphone/"><u>New In 2024, How to Edit Memoji on Android and iPhone</u></a></li>
-<li><a href="https://fox-making.techidaily.com/unclutter-your-computer-a-guide-to-removing-unused-apps-and-files-tips-from-yl-computing/"><u>Unclutter Your Computer: A Guide to Removing Unused Apps & Files - Tips From YL Computing</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-emoji-removers-to-remove-emojis-from-pictures/"><u>Updated 2024 Approved Best Emoji Removers to Remove Emojis From Pictures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-creative-content-vimeo-vs-youtubes-approach/"><u>[New] In 2024, Elevating Creative Content Vimeo vs YouTube's Approach</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-youtube-login-validation/"><u>[New] Mastering YouTube Login Validation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-samsung-galaxy-a15-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Samsung Galaxy A15 5G PC | Dr.fone</u></a></li>
+<li><a href="https://win-latest.techidaily.com/can-you-enjoy-immersive-audio-with-your-current-sound-cards-surround-sound-capability-unveiling-by-yl-software/"><u>Can You Enjoy Immersive Audio with Your Current Sound Card's Surround Sound Capability - Unveiling by YL Software</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-silence-resolving-the-evil-genius-2-audio-issue/"><u>Fixing Silence: Resolving the 'Evil Genius 2' Audio Issue</u></a></li>
+<li><a href="https://extra-information.techidaily.com/framework-for-utilizing-movies-as-learning-tools/"><u>Framework for Utilizing Movies as Learning Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-realme-c67-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Realme C67 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-10-best-memes-right-now-include-image-gifvideo/"><u>In 2024, 10 Best Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-slideshow-with-music/"><u>In 2024, How to Make a Slideshow with Music</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-add-emojis-to-videos-on-youtubefacebooksnapchat-step-by-step-guide/"><u>New In 2024, Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/understanding-gpu-instability-why-your-graphics-driver-keeps-failing-tips-from-yl-computing/"><u>Understanding GPU Instability: Why Your Graphics Driver Keeps Failing - Tips From YL Computing</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-record-your-memorable-honeymoon-video/"><u>Updated How to Record Your Memorable Honeymoon Video</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-memoji-talk-make-memoji-video-on-your-own/"><u>Updated In 2024, How to Make Memoji Talk-Make Memoji Video On Your Own</u></a></li>
 </ul></div>
 

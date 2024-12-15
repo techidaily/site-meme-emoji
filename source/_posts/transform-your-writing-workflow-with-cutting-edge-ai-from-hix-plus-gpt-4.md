@@ -1,7 +1,7 @@
 ---
 title: Transform Your Writing Workflow with Cutting-Edge AI From HIX + GPT-4
-date: 2024-12-05T18:42:09.031Z
-updated: 2024-12-09T18:11:50.398Z
+date: 2024-12-09T20:07:55.816Z
+updated: 2024-12-15T20:54:54.591Z
 tags:
   - chatgpt
   - open-ai
@@ -23,10 +23,6 @@ thumbnail: https://thmb.techidaily.com/73182ed54b3d34ca981abeae24ed800ccc098d1b1
 * [How to Use the AIPRM for ChatGPT Chrome Extension](https://modlily.sjv.io/aw92wr)
 * [How to Filter and Favorite AIPRM Prompts](https://mindmanager.sjv.io/anq2nj)
 * [How to Create AIPRM Prompts](https://dreoaffiliateprogram.pxf.io/k0ezjl)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -55,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/73182ed54b3d34ca981abeae24ed800ccc098d1b1
 ![AIPRM for ChatGPT plans](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/aiprm-pricing-plan.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The free version of AIPRM can access the extensive library of Community Prompts, save two private prompt templates, and set favorite prompt templates, which is more than enough to get you started.
@@ -71,7 +67,7 @@ thumbnail: https://thmb.techidaily.com/73182ed54b3d34ca981abeae24ed800ccc098d1b1
 ![AIPRM terms and conditions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/aiprm-terms-conditions-chatgpt.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  You should now see the AIPRM dashboard on your ChatGPT page.
@@ -93,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/73182ed54b3d34ca981abeae24ed800ccc098d1b1
 
 ![The AIPRM for ChatGPT dashboard](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/aiprm-chatgpt-dashboard.jpeg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can start using AIPRM prompts by clicking the **Public** tab and scrolling through the list of available prompts. For instance, you can select the **Midjourney Prompt Generator** to get a detailed and descriptive prompt to generate a unique AI image. Type a keyword, and it will generate a detailed and descriptive prompt, which you can copy and paste into Midjourney.
 
 ## How to Filter and Favorite AIPRM Prompts
@@ -104,14 +104,10 @@ thumbnail: https://thmb.techidaily.com/73182ed54b3d34ca981abeae24ed800ccc098d1b1
 ![The AIPRM for ChatGPT Activity filter](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/filter-aiprm-prompts.jpeg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Once you have found a prompt that resonates with your needs, you can add it to your favorites for easy access in the future. Click the **Star** icon next to the prompt to add it to your **Favorites** tab. Next, go to the **Favorites** tab to view and access all your saved prompts.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Create AIPRM Prompts
 
@@ -134,6 +130,10 @@ thumbnail: https://thmb.techidaily.com/73182ed54b3d34ca981abeae24ed800ccc098d1b1
  Lastly, select the **Topic**, **Activity**, **Who can see this?** and **Made for** (the ChatGPT model). Write your **Author Name** and **Author URL**. Click **Save Prompt** to finalize the creation of your prompt.
 
 ![AIPRM for ChatGPT prompt template creation page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/aiprm-prompt-template-creation.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Once your prompt is saved, you can find it under the **Own** tab.
 
@@ -158,24 +158,22 @@ thumbnail: https://thmb.techidaily.com/73182ed54b3d34ca981abeae24ed800ccc098d1b1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-podcast-dominance-through-effective-seo-strategies/"><u>[New] Podcast Dominance Through Effective SEO Strategies</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-launch-your-own-fb-stream-on-pc-mac-and-laptop-using-obs/"><u>[Updated] In 2024, Launch Your Own FB Stream on PC, Mac & Laptop Using OBS</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-iphone-night-snap-strategies-unveiled-for-2024/"><u>[Updated] IPhone Night Snap Strategies Unveiled for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-masterful-techniques-for-swift-blurring-in-picture-editing/"><u>2024 Approved Masterful Techniques for Swift Blurring in Picture Editing</u></a></li>
-<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-best-solarmovie-alternatives-watch-movies-online/"><u>In 2024, Best SolarMovie Alternatives-Watch Movies Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-add-bitmoji-to-keyboard/"><u>In 2024, How to Add Bitmoji to Keyboard?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/minimize-time-maximize-results-with-this-srt-to-txt-hack/"><u>Minimize Time, Maximize Results with This SRT to TXT Hack</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-10-trending-memes-right-now-include-image-gifvideo/"><u>New 2024 Approved 10 Trending Memes Right Now (Include Image/ GIF/Video)</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-video-meme-with-4-best-meme-video-makers/"><u>New How to Make a Video Meme with 4 Best Meme Video Makers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-distracted-boyfriend-meme-generator/"><u>New In 2024, Distracted Boyfriend Meme Generator</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-making-triggered-memes-with-filmora-video-editor-for-2024/"><u>New Making Triggered Memes with Filmora Video Editor for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/techniques-for-gradual-audio-reduction-with-lumafusion-for-2024/"><u>Techniques for Gradual Audio Reduction with Lumafusion for 2024</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/top-effektive-aomei-backupper-beste-alternative-zu-norton-ghost/"><u>Top Effektive AOMEI Backupper: Beste Alternative Zu Norton Ghost</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-and-fixing-the-windows-10-error-code-0xc19001e1/"><u>Troubleshooting and Fixing the Windows 10 Error Code 0xC19001E1</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unraveling-the-mystery-behind-google-hangouts-everything-you-need-to-know/"><u>Unraveling the Mystery Behind Google Hangouts: Everything You Need to Know</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-burn-photos-to-dvd-with-transitions-and-music-for-2024/"><u>Updated How to Burn Photos to DVD with Transitions and Music for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-photo-collage-on-maciphone-using-iphoto-for-2024/"><u>Updated How to Make a Photo Collage on Mac/iPhone Using iPhoto for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-triggered-meme/"><u>Updated How to Make a Triggered Meme?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-instagram-story-and-reels-transform-your-vocal-brand-with-these-tricks/"><u>[New] In 2024, Instagram Story & Reels Transform Your Vocal Brand with These Tricks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-optimal-solutions-for-webp-to-jpg-image-transformation/"><u>[New] Optimal Solutions for WebP-to-JPG Image Transformation</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-the-ultimate-list-6-great-linkinscape-video-downloaders/"><u>[Updated] The Ultimate List 6 Great Linkinscape Video Downloaders</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/best-10-emoji-apps-to-emoji-yourself-make-an-emoji-of-yourself-for-2024/"><u>Best 10 Emoji Apps to Emoji Yourself-Make an Emoji of Yourself for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-samsung-galaxy-s24-ultra-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Samsung Galaxy S24 Ultra Phone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-edit-memoji-on-android-and-iphone/"><u>In 2024, How to Edit Memoji on Android and iPhone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-memes-with-white-background-step-by-step/"><u>In 2024, How to Make Memes with White Background Step by Step</u></a></li>
+<li><a href="https://facebook.techidaily.com/limit-sponsored-content-tailoring-on-networking-sites/"><u>Limit Sponsored Content Tailoring on Networking Sites</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mkvtoolx-free-simple-mac-app-for-mkv-video-editing/"><u>MKVToolX: Free, Simple Mac App for MKV Video Editing</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-burn-photos-to-dvd-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>New Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself/"><u>New How to Make an Emoji of Yourself on Mobile ? Emoji Yourself</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-20-wonderful-stop-motion-ideas-for-beginners-and-kids-filmora/"><u>New In 2024, 20 Wonderful Stop Motion Ideas for Beginners and Kids - Filmora</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-8-best-meme-maker-app-to-create-memes-with-your-own-picture/"><u>New In 2024, 8 Best Meme Maker App to Create Memes with Your Own Picture</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-add-emojis-to-videos-on-youtubefacebooksnapchat-2023-guide/"><u>New In 2024, Add Emojis to Videos on YouTube/Facebook/Snapchat 2023 Guide</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-resolving-issues-when-starting-avatar-the-game-on-your-pc/"><u>Troubleshooting Guide: Resolving Issues When Starting 'Avatar: The Game' On Your PC</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-the-depth-effect-on-ios-16-top-7-solutions-for-your-lock-screen/"><u>Troubleshooting the Depth Effect on iOS 16: Top 7 Solutions for Your Lock Screen</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/zdnets-choice-for-ultimate-mac-performance-boosters-a-guide-to-top-optimization-applications/"><u>ZDNet's Choice for Ultimate Mac Performance Boosters : A Guide to Top Optimization Applications</u></a></li>
 </ul></div>
 
