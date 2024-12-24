@@ -1,7 +1,7 @@
 ---
 title: New Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music for 2024
-date: 2024-12-08T16:47:39.993Z
-updated: 2024-12-15T18:22:36.135Z
+date: 2024-12-23T19:09:07.933Z
+updated: 2024-12-24T18:55:48.609Z
 tags: 
   - ai
   - animation videos
@@ -49,10 +49,6 @@ thumbnail: https://thmb.techidaily.com/0608abec5e89fbdabfc438dbc05f250f26c6343eb
  You are also able to add background music here: click the Music button and choose a music file from your computer.
 
 ![Burn photos to dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 3. Choose DVD Menu
 
@@ -465,6 +461,10 @@ Follow @Ollie Mattison
 
 ![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The meme has since become synonymous with being unfaithful to girlfriends, ideologies, scientific evidence, photo cameras or virtually anything else. Despite its popularity, it is still difficult to make a good Distracted Boyfriend meme, so let's have a look at some of the best versions of the meme that emerged on social networks.
 
  The Distracted Girlfriend meme became popular soon after the Distracted Boyfriend meme went viral. The photo belongs to the same series of images posted to iStock by Antonio Guillem.
@@ -578,10 +578,6 @@ Copy the image
  The Distracted Boyfriend is one of the most popular memes in the last couple of years that has made us all laugh because we all understand how it feels to be tempted by the things we don’t have. Do you like generating the Distracted Boyfriend or Distracted Girlfriend memes? Leave a comment below and share your experiences with us.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -947,6 +943,10 @@ Follow @Shanoon Cox
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Use Emojis on Windows 10 and Windows 11?
 
 If you ever wondered **how to use emojis on Windows**, or since when the emojis are around and what is their significance, you will find all your answers here. Because Windows 10 offers a great range of emojis that help you express your feelings and reactions in fewer words, they have recently gained a decent level of popularity, mostly amongst youngsters and millennials.
@@ -1068,6 +1068,111 @@ Although emojis are present in some form or the other since the mid-‘90s, they
 
 With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
 ## Part 2: How to Use Emojis with Keyboard Shortcuts
 
 A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
@@ -1178,10 +1283,6 @@ Nevertheless, it would be a good idea to learn how to launch the emojis keyboard
 
 ![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
 
 As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
@@ -1195,107 +1296,6 @@ As for the shortcuts, depending on the type of expression you want to convey, th
 …and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
 
 **Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
-
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
 
@@ -1389,98 +1389,6 @@ Also, if the built-in emoji keyboard doesn’t have your favorite expressions an
 
 ![Me five minutes after getting to work](https://images.wondershare.com/filmora/article-images/five-minutes-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### 3\. When you are about to leave work
-
- Work memes like this are so relatable. All day the boss didn’t realize something important and the moment you are about to step out, he stops you and probably assigns a work that will take ages to complete.
-
-![When you are about to leave work](https://images.wondershare.com/filmora/article-images/leave-work-meme.JPG)
-
-### 4\. When you have been telling management
-
- This meme describes, you giving a damn to whatever problem is happening at work. Because even after repeated reminders to fix the issue, nobody paid attention. So, now is your turn to just chillax!
-
-![When you have been telling management](https://images.wondershare.com/filmora/article-images/telling-management-meme.JPG)
-
-### 5\. It’s Wednesday
-
- Work memes like this are sarcastic. When your boss asks that you are late for work third time in the week. Your obvious response is mentally replying is it Wednesday?
-
-![It’s Wednesday](https://images.wondershare.com/filmora/article-images/wednesday-meme.jpg)
-
-### 6\. Dress for the job you want
-
- When you don’t get enough sleep, you just crave to crash on your bed. So this funny meme depicts, to get your dream job wear a dress with fixed pillows and quilt and get ready to start working, err! Sleeping.
-
-![Dress for the job you want](https://images.wondershare.com/filmora/article-images/dress-for-the-job-you-want-meme.JPG)
-
-### 7\. When you just got paid
-
- Pay day is happiness and shock! After getting your salary has been credited text, next you receive the upcoming bills, rents etc. so, it’s not you who actually got paid, but your bills!
-
-![When you just got paid](https://images.wondershare.com/filmora/article-images/got-paid-meme.JPG)
-
-### 8\. I don’t always tolerate stupid people
-
- This work meme is epic. People usually get annoyed by people and revolt, but at the work place they need to tolerate the undesired behavior and bossy-ness.
-
-![I don’t always tolerate stupid people](https://images.wondershare.com/filmora/article-images/stupid-people-meme.JPG)
-
-### 9\. But you have to stop yourself
-
- There are moments at work, you are really tempted to blurt out something, but you keep quiet, to avoid the repercussions. The dog’s expression in the picture is worth a laugh.
-
-![But you have to stop yourself](https://images.wondershare.com/filmora/article-images/stop-yourself-meme.JPG)
-
-### 10\. I am sending a follow up email
-
- When you keep on reminding people to acknowledge your work email, but they don’t. You send follow up email to tell them, that your job is done.
-
-![I am sending a follow up email](https://images.wondershare.com/filmora/article-images/send-email-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Conclusion
-
- If you want to make hilarious work memes, then don’t hesitate to adopt [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/). It is totally free without any watermark on the meme. You can create image, GIF and video meme using this program. Moreover, you can include videos in your meme using this work meme maker. You have the customized output format feature that allows you to get a video turned into GIF. You can add text, change fonts and move the text anywhere around the meme.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Sometimes on working days, you feel drained out of ideas, or stressed to have a new idea altogether. Maybe you feel so tired to work on something, because work is not always interesting. When the monotony of the day gets into you, why not explore some work memes and refresh the mood? If you are wondering where to get such awesome, mood elevating work memes we have got you covered.
-
- In this article, we have compiled a list of 10 [work memes](https://www.someecards.com/memes/work/) that will set your work mode on.
-
-## 10 best work memes
-
- Here are the 10 best work memes to help you get through the working week and cheer you up to get going.
-
-### 1\. When you think you been working for 4 hours
-
- The look of surprise on the boy’s face. Lol! That is exactly how people feel, when they are stressed at work and think it’s been forever they are at work, but actually it’s only a couple of minutes.
-
-![When you think you been working for 4 hours](https://images.wondershare.com/filmora/article-images/working-4-hours-meme.JPG)
-
-### 2\. Me five minutes after getting to work
-
- This work meme literally made us laugh. Every minute seems longer at work and it’s funny that the meme says a cupcake is badly needed to lift the work mood.
-
-![Me five minutes after getting to work](https://images.wondershare.com/filmora/article-images/five-minutes-meme.JPG)
-
 ### 3\. When you are about to leave work
 
  Work memes like this are so relatable. All day the boss didn’t realize something important and the moment you are about to step out, he stops you and probably assigns a work that will take ages to complete.
@@ -1571,10 +1479,6 @@ Follow @Ollie Mattison
 
 ![When you are about to leave work](https://images.wondershare.com/filmora/article-images/leave-work-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4\. When you have been telling management
 
  This meme describes, you giving a damn to whatever problem is happening at work. Because even after repeated reminders to fix the issue, nobody paid attention. So, now is your turn to just chillax!
@@ -1593,6 +1497,10 @@ Follow @Ollie Mattison
 
 ![Dress for the job you want](https://images.wondershare.com/filmora/article-images/dress-for-the-job-you-want-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. When you just got paid
 
  Pay day is happiness and shock! After getting your salary has been credited text, next you receive the upcoming bills, rents etc. so, it’s not you who actually got paid, but your bills!
@@ -1605,19 +1513,11 @@ Follow @Ollie Mattison
 
 ![I don’t always tolerate stupid people](https://images.wondershare.com/filmora/article-images/stupid-people-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9\. But you have to stop yourself
 
  There are moments at work, you are really tempted to blurt out something, but you keep quiet, to avoid the repercussions. The dog’s expression in the picture is worth a laugh.
 
 ![But you have to stop yourself](https://images.wondershare.com/filmora/article-images/stop-yourself-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. I am sending a follow up email
 
@@ -1666,6 +1566,98 @@ Follow @Ollie Mattison
  Work memes like this are so relatable. All day the boss didn’t realize something important and the moment you are about to step out, he stops you and probably assigns a work that will take ages to complete.
 
 ![When you are about to leave work](https://images.wondershare.com/filmora/article-images/leave-work-meme.JPG)
+
+### 4\. When you have been telling management
+
+ This meme describes, you giving a damn to whatever problem is happening at work. Because even after repeated reminders to fix the issue, nobody paid attention. So, now is your turn to just chillax!
+
+![When you have been telling management](https://images.wondershare.com/filmora/article-images/telling-management-meme.JPG)
+
+### 5\. It’s Wednesday
+
+ Work memes like this are sarcastic. When your boss asks that you are late for work third time in the week. Your obvious response is mentally replying is it Wednesday?
+
+![It’s Wednesday](https://images.wondershare.com/filmora/article-images/wednesday-meme.jpg)
+
+### 6\. Dress for the job you want
+
+ When you don’t get enough sleep, you just crave to crash on your bed. So this funny meme depicts, to get your dream job wear a dress with fixed pillows and quilt and get ready to start working, err! Sleeping.
+
+![Dress for the job you want](https://images.wondershare.com/filmora/article-images/dress-for-the-job-you-want-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 7\. When you just got paid
+
+ Pay day is happiness and shock! After getting your salary has been credited text, next you receive the upcoming bills, rents etc. so, it’s not you who actually got paid, but your bills!
+
+![When you just got paid](https://images.wondershare.com/filmora/article-images/got-paid-meme.JPG)
+
+### 8\. I don’t always tolerate stupid people
+
+ This work meme is epic. People usually get annoyed by people and revolt, but at the work place they need to tolerate the undesired behavior and bossy-ness.
+
+![I don’t always tolerate stupid people](https://images.wondershare.com/filmora/article-images/stupid-people-meme.JPG)
+
+### 9\. But you have to stop yourself
+
+ There are moments at work, you are really tempted to blurt out something, but you keep quiet, to avoid the repercussions. The dog’s expression in the picture is worth a laugh.
+
+![But you have to stop yourself](https://images.wondershare.com/filmora/article-images/stop-yourself-meme.JPG)
+
+### 10\. I am sending a follow up email
+
+ When you keep on reminding people to acknowledge your work email, but they don’t. You send follow up email to tell them, that your job is done.
+
+![I am sending a follow up email](https://images.wondershare.com/filmora/article-images/send-email-meme.JPG)
+
+## Conclusion
+
+ If you want to make hilarious work memes, then don’t hesitate to adopt [Filmora meme maker](https://tools.techidaily.com/wondershare/filmora/download/). It is totally free without any watermark on the meme. You can create image, GIF and video meme using this program. Moreover, you can include videos in your meme using this work meme maker. You have the customized output format feature that allows you to get a video turned into GIF. You can add text, change fonts and move the text anywhere around the meme.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Sometimes on working days, you feel drained out of ideas, or stressed to have a new idea altogether. Maybe you feel so tired to work on something, because work is not always interesting. When the monotony of the day gets into you, why not explore some work memes and refresh the mood? If you are wondering where to get such awesome, mood elevating work memes we have got you covered.
+
+ In this article, we have compiled a list of 10 [work memes](https://www.someecards.com/memes/work/) that will set your work mode on.
+
+## 10 best work memes
+
+ Here are the 10 best work memes to help you get through the working week and cheer you up to get going.
+
+### 1\. When you think you been working for 4 hours
+
+ The look of surprise on the boy’s face. Lol! That is exactly how people feel, when they are stressed at work and think it’s been forever they are at work, but actually it’s only a couple of minutes.
+
+![When you think you been working for 4 hours](https://images.wondershare.com/filmora/article-images/working-4-hours-meme.JPG)
+
+### 2\. Me five minutes after getting to work
+
+ This work meme literally made us laugh. Every minute seems longer at work and it’s funny that the meme says a cupcake is badly needed to lift the work mood.
+
+![Me five minutes after getting to work](https://images.wondershare.com/filmora/article-images/five-minutes-meme.JPG)
+
+### 3\. When you are about to leave work
+
+ Work memes like this are so relatable. All day the boss didn’t realize something important and the moment you are about to step out, he stops you and probably assigns a work that will take ages to complete.
+
+![When you are about to leave work](https://images.wondershare.com/filmora/article-images/leave-work-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. When you have been telling management
 
@@ -1773,150 +1765,9 @@ Once you add and access the emoji on your device, select the one you want to sen
 
 ![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
 
-As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
-
-* Use the emoji list to find the one you want to use in your channel name.
-* Select the emoji "browser" column and copy it either with the mouse or "Ctrl + C" on the keyboard.
-* Access your Discord server, right-click the channel where the emoji will be and use the dropdown menu to select the "Edit Channel."
-* In the "Channel Name" box, past the selected emoji using "Ctrl + V" from the keyboard.
-* Select "Save Changes" to save the name with the emoji.
-
-![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
-
-## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
-
-You can add custom emoji on Discord, but only if you are a server owner or administrator. Use the Discord server settings on either the desktop versions for Windows or Mac or the Discord Website.
-
-Follow the steps below for either platform:
-
-* Access your Discord server to begin and press the arrow pointing down in the channel list with the server name—Press "Server Settings" in the menu
-
-![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/discord-server-settings.jpg)
-
-* As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
-
-![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
-
-* Select "Upload Emoji" to insert a custom emoji, either standard or animated
-* With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
-
-![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
-
-* For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
-* A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
-* Enjoy your emoji in chats as soon as you upload them to the Discord server!
-
-Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
-
-## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
-
-How cool is it that you can add custom emoji to your smartphone as well? Whether you have an iPhone or an Android, you can use the same menu as Windows and Mac to upload emoji.
-
-Discord's interface is similar across all devices, so the following steps work on Android and Apple.
-
-* Begin by opening the app on your device to access the server. Press the hamburger menu located at the top left in an open server and channel.
-
-![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/open-discord-channel-settings.jpg)
-
-* As the channel and server list opens for Discord, you can see a three-dot menu right next to the channel list with the server name. Tap on it to proceed.
-* To get to your server settings, press "Settings" in the Discord server menu that shows up.
-* Under the "Server Settings" menu, select "Emoji" to access the custom emoji settings.
-* As the "Emoji" menu opens, you can see an emoji requirement list
-* Press "Upload Emoji" to upload any emoji that aligns with these requirements
-* Press the custom emoji file, tap "Crop" if it needs cropping, and then use the "Upload" option
-* After you upload the emoji file, replace the alias tag by tapping on it. This will redirect you to that specific emoji's settings
-* Type the name you want using the "Alias" box to create the tag used to insert emoji in messages
-* Save this new tag with the "Save" icon placed in the bottom right
-* Any changes you make to the custom emoji's alias are applied to it instantly for your use.
-
-Emoji bring fun to the conversations you have with friends, and it is very easy to add them to your server as well. These show up in the emoji pop-up list once you add them. The chat message bar contains the emoji icon from where you can access them.
-
-It is essential to name your emoji with only alphanumeric characters and underscores using at least two characters.
-
-The Discord emoji size is 32x32 pixels, so even if you upload up to 128x128 pixel size emojis, they will be resized to the default dimensions. Furthermore, emoji file sizes are at most 256kb.
-
-If you want to use custom emojis, you can't do so without a Nitro subscription because it is only functional on the server they are uploaded to. Even if you find a way to access the emoji from some other server, only its text code will be visible.
-
-If you attempt to use the Emoji Picker to pick an emoji, you'll get the following message:
-
-## Bonus: How to Manage Emoji in Discord Server?
-
-You can't remove or add emoji specific to a server on your own as a member. You need the server owner to toggle the permission of Manager Emoji in your domain.
-
-On the other hand, as a server owner, you can give others this role with the following steps.
-
-* **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
-* **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
-
-## FAQs About Discord Emojis
-
-### 1\. Why Do I See Grey Emoji In The Emoji Menu?
-
-Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
-
-![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
-
-### 2\. How Can I Get More Custom Emoji On The Server?
-
-You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
-
-### 3\. What Is The Discord Emoji Size?
-
-Discord allows you to upload an emoji of up to 128x128 pixels, but it will resize it to 32x32 since that is its standard size.
-
-**Conclusion**
-
-Emojis make any chat fun, and where gaming is involved, they help you communicate better with your friends.
-
-Discord has thousands of custom emojis that you can easily add to your server through your computer, whether it is your chat or the channel name. Follow our guide for a seamless process to add emoji to Discord and make your gaming experience better!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-Who doesn't like emoticons? They are fun, easy to use, and, best of all, highly expressive of your emotions that you cannot convey over messages otherwise.
-
-A 2019 survey shows 70% of [mobile users](https://www.statista.com/statistics/1068073/frequency-emoji-usage-mobile-phone-texts-social-media-mexico/) used emoji in texting or on social media daily. This shows the popularity of emoji in our world today.
-
-Similarly, as a Discord user, you must have come across thousands of emoji in it. These are images uploaded on the server and called custom emojis that this gaming community can use for effective communication with friends and other players.
-
-With the emoji and [gaming industry](https://www.statista.com/statistics/246892/value-of-the-video-game-market-in-the-us/) growing, it is safe to say that discord emoji's popularity and use will only increase.
-
-Read ahead to see how you can add emojis on Discord if you want to have fun chats with your friends too.
-
-* [**Part 1: Adding and Sending Emoji To Chat On Discord?**](#part1)
-* [**Part 2: Adding Emojis To Discord Channel Name Or Nickname?**](#part2)
-* [**Part 3: Adding Custom Emojis To Discord Server On Windows/Mac?**](#part3)
-* [**Part 4: Adding Custom Emojis To Discord Server On iPhone And Android?**](#part4)
-* [**Part 5: Managing Emojis in Discord Server**](#part5)
-
----
-
-## Part 1: How to Add and Send Emoji To Chat On Discord?
-
-One of the best things about Discord's emoji feature is that there are two ways to add them. You can either access emoji on the Discord account or upload them yourself.
-
-![Send emojis on Discord Chat](https://images.wondershare.com/filmora/article-images/send-emoji-discord-chat.jpg)
-
-You can access the emoji menu for all Discord platforms by pressing the grey smiley face next to the message box. This will be on the right of the box for desktops, and for mobile apps, it will be on the left.
-
-Discord-exclusive and standard emoji are present in the emoji menu, along with a part that keeps track of your most-used emoji.
-
-On the other hand, you can also add custom emoticons to your Discord server if you have permission to do so.
-
-Once you add and access the emoji on your device, select the one you want to send to your friends and press enter to send.
-
-## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
-
-![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
 
@@ -2145,6 +1996,155 @@ On the other hand, as a server owner, you can give others this role with the fol
 Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
 
 ![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+
+### 2\. How Can I Get More Custom Emoji On The Server?
+
+You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
+
+### 3\. What Is The Discord Emoji Size?
+
+Discord allows you to upload an emoji of up to 128x128 pixels, but it will resize it to 32x32 since that is its standard size.
+
+**Conclusion**
+
+Emojis make any chat fun, and where gaming is involved, they help you communicate better with your friends.
+
+Discord has thousands of custom emojis that you can easily add to your server through your computer, whether it is your chat or the channel name. Follow our guide for a seamless process to add emoji to Discord and make your gaming experience better!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Who doesn't like emoticons? They are fun, easy to use, and, best of all, highly expressive of your emotions that you cannot convey over messages otherwise.
+
+A 2019 survey shows 70% of [mobile users](https://www.statista.com/statistics/1068073/frequency-emoji-usage-mobile-phone-texts-social-media-mexico/) used emoji in texting or on social media daily. This shows the popularity of emoji in our world today.
+
+Similarly, as a Discord user, you must have come across thousands of emoji in it. These are images uploaded on the server and called custom emojis that this gaming community can use for effective communication with friends and other players.
+
+With the emoji and [gaming industry](https://www.statista.com/statistics/246892/value-of-the-video-game-market-in-the-us/) growing, it is safe to say that discord emoji's popularity and use will only increase.
+
+Read ahead to see how you can add emojis on Discord if you want to have fun chats with your friends too.
+
+* [**Part 1: Adding and Sending Emoji To Chat On Discord?**](#part1)
+* [**Part 2: Adding Emojis To Discord Channel Name Or Nickname?**](#part2)
+* [**Part 3: Adding Custom Emojis To Discord Server On Windows/Mac?**](#part3)
+* [**Part 4: Adding Custom Emojis To Discord Server On iPhone And Android?**](#part4)
+* [**Part 5: Managing Emojis in Discord Server**](#part5)
+
+---
+
+## Part 1: How to Add and Send Emoji To Chat On Discord?
+
+One of the best things about Discord's emoji feature is that there are two ways to add them. You can either access emoji on the Discord account or upload them yourself.
+
+![Send emojis on Discord Chat](https://images.wondershare.com/filmora/article-images/send-emoji-discord-chat.jpg)
+
+You can access the emoji menu for all Discord platforms by pressing the grey smiley face next to the message box. This will be on the right of the box for desktops, and for mobile apps, it will be on the left.
+
+Discord-exclusive and standard emoji are present in the emoji menu, along with a part that keeps track of your most-used emoji.
+
+On the other hand, you can also add custom emoticons to your Discord server if you have permission to do so.
+
+Once you add and access the emoji on your device, select the one you want to send to your friends and press enter to send.
+
+## Part 2: How to Add Emojis To Discord Channel Name Or Nickname?
+
+![edit discord channel](https://images.wondershare.com/filmora/article-images/edit-channel-name.jpg)
+
+As an owner of a Discord channel, it is easy for you to add emoji to Discord. Follow the steps below to figure out how to add emojis to Discord channels:
+
+* Use the emoji list to find the one you want to use in your channel name.
+* Select the emoji "browser" column and copy it either with the mouse or "Ctrl + C" on the keyboard.
+* Access your Discord server, right-click the channel where the emoji will be and use the dropdown menu to select the "Edit Channel."
+* In the "Channel Name" box, past the selected emoji using "Ctrl + V" from the keyboard.
+* Select "Save Changes" to save the name with the emoji.
+
+![add emoji to  discord channel name](https://images.wondershare.com/filmora/article-images/add-emoji-to-discord-channel-name.jpg)
+
+## Part 3: How to Add Custom Emojis To Discord Server On Windows/Mac?
+
+You can add custom emoji on Discord, but only if you are a server owner or administrator. Use the Discord server settings on either the desktop versions for Windows or Mac or the Discord Website.
+
+Follow the steps below for either platform:
+
+* Access your Discord server to begin and press the arrow pointing down in the channel list with the server name—Press "Server Settings" in the menu
+
+![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/discord-server-settings.jpg)
+
+* As the server's settings open, you can add custom emojis in the "Emoji" tab. You can find a requirements list at the top that includes emoji names with a minimum of two characters and a file size limit of 256 KB. You can add fifty normal and an additional fifty animated emoji GIFs using the standard servers
+
+![Upload emoji to Discord](https://images.wondershare.com/filmora/article-images/upload-emoji-discord.jpg)
+
+* Select "Upload Emoji" to insert a custom emoji, either standard or animated
+* With the help of your device's local storage, upload the file. However, for the emoji to be added to the lists, the file should align with Discord's requirements.
+
+![Uploaded emoji on Discord](https://images.wondershare.com/filmora/article-images/uploaded-emoji-on-discord.jpg)
+
+* For every emoji image that you upload, an alias tag will be created for that custom emoji using the file's name. This tag is used to update a message with an emoji.
+* A default alias name like this can be replaced by selecting the "Alias" box with the custom emoji and then creating a new name.
+* Enjoy your emoji in chats as soon as you upload them to the Discord server!
+
+Boost your server with Discord Nitro subscribers today to insert more than the standard fifty emoji!
+
+## Part 4: How to Add Custom Emojis To Discord Server On iPhone And Android?
+
+How cool is it that you can add custom emoji to your smartphone as well? Whether you have an iPhone or an Android, you can use the same menu as Windows and Mac to upload emoji.
+
+Discord's interface is similar across all devices, so the following steps work on Android and Apple.
+
+* Begin by opening the app on your device to access the server. Press the hamburger menu located at the top left in an open server and channel.
+
+![Discord Server Settings Options](https://images.wondershare.com/filmora/article-images/open-discord-channel-settings.jpg)
+
+* As the channel and server list opens for Discord, you can see a three-dot menu right next to the channel list with the server name. Tap on it to proceed.
+* To get to your server settings, press "Settings" in the Discord server menu that shows up.
+* Under the "Server Settings" menu, select "Emoji" to access the custom emoji settings.
+* As the "Emoji" menu opens, you can see an emoji requirement list
+* Press "Upload Emoji" to upload any emoji that aligns with these requirements
+* Press the custom emoji file, tap "Crop" if it needs cropping, and then use the "Upload" option
+* After you upload the emoji file, replace the alias tag by tapping on it. This will redirect you to that specific emoji's settings
+* Type the name you want using the "Alias" box to create the tag used to insert emoji in messages
+* Save this new tag with the "Save" icon placed in the bottom right
+* Any changes you make to the custom emoji's alias are applied to it instantly for your use.
+
+Emoji bring fun to the conversations you have with friends, and it is very easy to add them to your server as well. These show up in the emoji pop-up list once you add them. The chat message bar contains the emoji icon from where you can access them.
+
+It is essential to name your emoji with only alphanumeric characters and underscores using at least two characters.
+
+The Discord emoji size is 32x32 pixels, so even if you upload up to 128x128 pixel size emojis, they will be resized to the default dimensions. Furthermore, emoji file sizes are at most 256kb.
+
+If you want to use custom emojis, you can't do so without a Nitro subscription because it is only functional on the server they are uploaded to. Even if you find a way to access the emoji from some other server, only its text code will be visible.
+
+If you attempt to use the Emoji Picker to pick an emoji, you'll get the following message:
+
+## Bonus: How to Manage Emoji in Discord Server?
+
+You can't remove or add emoji specific to a server on your own as a member. You need the server owner to toggle the permission of Manager Emoji in your domain.
+
+On the other hand, as a server owner, you can give others this role with the following steps.
+
+* **Open Roles:** Open the Server Settings and select "Roles" from the menu on the side.
+* **Toggle Manage Emoji:** Pick the role you want to apply the permission to, and then toggle emoji's slider to "on," save changes, and you're done!
+
+## FAQs About Discord Emojis
+
+### 1\. Why Do I See Grey Emoji In The Emoji Menu?
+
+Greyed-out emoji in the menu means that either those emoji are animated, or you don't have the permission to post them on other servers.
+
+![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
@@ -2463,6 +2463,10 @@ Performing basic video editing tasks like cutting or trimming the footage, choos
 
 Filmora is free to download. Import your videos after you launch the software, you then can add any animated emojis into wherever you want. Have a try now! Emojis inside are so Cute ![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Add Emojis to YouTube Videos?
 
 You can now add emojis to any of the YouTube videos using an online free tool called Kapwing.
@@ -2550,10 +2554,6 @@ Image from YouSubtitles
 Alongside using basic editing features like cutting, trimming or arranging video clips, you can amplify your editing game by adding emoji to your videos. Moreover, you can export your projects in high quality and share them on either Vimeo, YouTube or Dropbox.
 
 ![how to add emojis to videos android java](https://images.wondershare.com/filmora/article-images/wevideo-interface.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -2825,20 +2825,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-conquer-youtubes-copy-paste-loop-mastery-essentials/"><u>[New] 2024 Approved Conquer YouTube's Copy-Paste Loop Mastery Essentials</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-solutions-for-restarting-frozen-obs-fullscreen/"><u>[New] 2024 Approved Solutions for Restarting Frozen OBS Fullscreen</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-ultimate-storytellers-portal/"><u>[New] Ultimate Storytellers' Portal</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-top-10-storyboarding-software-freeandpaid/"><u>2024 Approved Top 10 Storyboarding Software Free&Paid</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-sony-xperia-10-v-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Sony Xperia 10 V Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/best-10-emoji-makers-to-create-your-own-emojispconlineandroidiphone/"><u>Best 10 Emoji Makers to Create Your Own EmojisPC/Online/Android/iPhone</u></a></li>
-<li><a href="https://games-able.techidaily.com/can-you-reuse-your-older-games-drives-with-the-ps5/"><u>Can You Reuse Your Older Games' Drives with the PS5?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ing-the-secrets-behind-iconic-mukbang-videos/"><u>Decoding the Secrets Behind Iconic Mukbang Videos</u></a></li>
-<li><a href="https://discover-great.techidaily.com/how-to-fix-a-non-functional-computer-fan-expert-advice-from-yl-software/"><u>How to Fix a Non-Functional Computer Fan: Expert Advice From YL Software</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-xiaomi-redmi-note-12-pro-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Xiaomi Redmi Note 12 Pro 5G without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-best-solarmovie-alternatives-watch-movies-online/"><u>New In 2024, Best SolarMovie Alternatives-Watch Movies Online</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/razer-kraken-mic-failure-heres-how-you-can-resolve-it/"><u>Razer Kraken Mic Failure? Here's How You Can Resolve It</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-add-emojis-to-videos-on-youtubefacebooksnapchat-2023-guide-for-2024/"><u>Updated Add Emojis to Videos on YouTube/Facebook/Snapchat 2023 Guide for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-video-meme-with-4-best-meme-video-makers-for-2024/"><u>Updated How to Make a Video Meme with 4 Best Meme Video Makers for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-wonderful-video-slideshow-with-your-travel-photos/"><u>Updated How to Make a Wonderful Video Slideshow with Your Travel Photos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-speech-recognition-made-easy-your-route-to-streamlined-workflows-with-microsoft-words-features/"><u>[Updated] 2024 Approved Speech Recognition Made Easy Your Route to Streamlined Workflows with Microsoft Word's Features</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-audiovisual-transition-mastery-in-adobe-premiere/"><u>[Updated] Audiovisual Transition Mastery in Adobe Premiere</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-high-definition-dominance-leading-monitors-for-ps5-hdmi-21-for-2024/"><u>[Updated] High-Definition Dominance Leading Monitors for PS5 (HDMI 2.1) for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-smart-pick-android-apps-for-large-video-meetings-for-2024/"><u>[Updated] Smart Pick Android Apps for Large Video Meetings for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-best-free-websites-to-watch-cartoons-online/"><u>10 Best Free Websites to Watch Cartoons Online</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ideal-editing-tools-best-phones-options-for-gopro-videos-for-2024/"><u>Ideal Editing Tools Best Phones' Options for GoPro Videos for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-your-own-emoji-in-2-ways-step-by-step-guide/"><u>In 2024, How to Make Your Own Emoji in 2 Ways Step-By Step Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/microsofts-innovation-on-display-the-hololens-revolution-for-2024/"><u>Microsoft's Innovation on Display – The HoloLens Revolution for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/mp4wmawindows-1011/"><u>MP4とWMAの間で素早く変換:Windows 10/11ユーザー向け方法</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-10-must-try-video-editing-apps-for-kids-featuring-free-and-paid-choices/"><u>New In 2024, 10 Must-Try Video Editing Apps for Kids, Featuring Free and Paid Choices</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-top-6-animated-emoji-video-effects/"><u>New In 2024, Top 6 Animated Emoji Video Effects</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-what-is-emoji-in-2024/"><u>New What Is Emoji, In 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-guide-to-netgear-nighthawk-x4-top-reviews-and-performance-analysis/"><u>Ultimate Guide to Netgear Nighthawk X4 - Top Reviews & Performance Analysis</u></a></li>
+<li><a href="https://common-error.techidaily.com/unexpected-startup-understanding-the-reasons-behind-your-pcs-auto-boot-in-windows-10/"><u>Unexpected Startup: Understanding the Reasons Behind Your PC's Auto-Boot in Windows 10</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-10-most-popular-minion-memes-that-moms-are-crazy-about-for-2024/"><u>Updated 10 Most Popular Minion Memes that Moms Are Crazy About for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-add-bitmoji-to-keyboard-complete-guide/"><u>Updated 2024 Approved How to Add Bitmoji to Keyboard? Complete Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself/"><u>Updated 2024 Approved How to Make an Emoji of Yourself on Mobile ? Emoji Yourself</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-10-free-manga-sites-to-read-online-for-2024/"><u>Updated Best 10 Free Manga Sites to Read Online for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-an-adorable-video-for-your-babys-first-year/"><u>Updated How to Make an Adorable Video for Your Babys First Year</u></a></li>
 </ul></div>
 
