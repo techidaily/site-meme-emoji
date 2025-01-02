@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Powerful Performance of the Samsung Q60R Series for Gamers - A Comprehensive Review
-date: 2024-12-20T17:11:18.215Z
-updated: 2024-12-24T16:26:55.053Z
+date: 2024-12-28T03:20:15.800Z
+updated: 2025-01-02T00:45:14.568Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling the Powerful Performance of the Samsung Q60R Series for Gamers - A Comprehensive Review
@@ -12,6 +12,10 @@ thumbnail: https://www.lifewire.com/thmb/FjFx4B7uI3LcbqTlG2QDx1hPPRQ=/400x300/fi
 ## The Power of Compact Gaming - A Comprehensive Look at the Xbox Series S Hardware & Packaging
 
 4.2
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Microsoft Xbox Series S
 
@@ -71,7 +75,7 @@ Lifewire / Jeremy Laukkonen
  This console is remarkably compact and has a surprisingly low price point. Gamers looking for a[4K UHD in HDR](https://www.lifewire.com/difference-between-hdr-and-4k-4176961) experience will need to pay a premium for the Series X, but the Xbox Series S offers an enticing alternative if you’re looking to save some money or haven’t yet made the jump to 4K.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Sleek and compact**
@@ -86,10 +90,6 @@ Lifewire / Jeremy Laukkonen
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easier than ever before**
 
  Game consoles are usually pretty easy to set up, but the Xbox Series S takes that to the next level. Start by connecting the console to a television with an HDMI cable and plugging it into power. When you turn the Series S and the TV on, you get an invitation to set up the console with the Xbox app or do it the traditional way.
@@ -99,10 +99,6 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -162,10 +158,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
  When downloading over Wi-Fi, I rarely saw over 150Mbps (compared to the 350Mbps I measured on my HP Spectre x360 laptop in the same room and at the same time). Curiously, the Series S download speed tanked, down to the lower double digits, while I was running speed tests on my laptop. Similarly, download speeds dive into the low teens whenever a game runs, even in the background.
@@ -173,6 +165,10 @@ Lifewire / Jeremy Laukkonen
  When connected via Ethernet, the Series S reported 880Mbps down and 65Mbps up on the network status screen. That’s right on the money in terms of what I see directly at my Eero router. Actual download speeds topped out at 500Mbps and typically hung out between 270 and 320Mbps.
 
  The bottom line is that the Series S provided fairly unimpressive download speeds over Wi-Fi but tore it up when connected via Ethernet. You’ll want to connect this all-digital console via Ethernet to a fast internet connection.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software and User Interface: Familiar and cozy**
 
@@ -196,11 +192,11 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
- Lifewire / Jeremy Laukkonen
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Jeremy Laukkonen
 
 ## **Price: Jaw-droppingly low**
 
@@ -213,7 +209,7 @@ Lifewire / Jeremy Laukkonen
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
@@ -231,7 +227,7 @@ Lifewire / Jeremy Laukkonen
  The Xbox Series S might be a bit of a step back from the Xbox One X in performance, but the fact is that it’s a next-gen console that plays next-gen games with some impressive hardware and an unreal price tag. Gamers in search of the best graphics possible will want to look at the Xbox Series X instead, but gamers who haven’t yet made the 4K plunge, parents in need of an affordable console for their kids, or anyone looking to save money will all find something to like here.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -243,6 +239,10 @@ Lifewire / Jeremy Laukkonen
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
 
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -276,19 +276,16 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-become-a-travel-vlogger-guide-of-travel-vlogging/"><u>[Updated] 2024 Approved How To Become A Travel Vlogger | Guide of Travel Vlogging</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-the-ultimate-playbook-for-superior-quality-video-production-in-obs/"><u>2024 Approved The Ultimate Playbook for Superior Quality Video Production in OBS</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-oppo-a1x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/best-solarmovie-alternatives-watch-movies-online-for-2024/"><u>Best SolarMovie Alternatives-Watch Movies Online for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/exclusive-employee-scoop-a-heartfelt-tale-of-why-the-vision-pro-won-over-an-apple-specialist-zdnet/"><u>Exclusive Employee Scoop: A Heartfelt Tale of Why the Vision Pro Won Over an Apple Specialist | ZDNET</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-add-stickers-to-whatsapp-the-ultimate-guide/"><u>In 2024, How to Add Stickers to WhatsApp-The Ultimate Guide</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-triggered-meme/"><u>In 2024, How to Make a Triggered Meme?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-integral-rulebook-ensuring-harmonious-video-sharing/"><u>In 2024, Integral Rulebook Ensuring Harmonious Video Sharing</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-honor-magic-5-pro-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Honor Magic 5 Pro Phone? Unlock It Now</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-10-trending-memes-right-now-include-image-gifvideo-for-2024/"><u>New 10 Trending Memes Right Now (Include Image/ GIF/Video) for 2024</u></a></li>
-<li><a href="https://win-popular.techidaily.com/1728475831299-onenote/"><u>OneNote 重新创建丢失的页面和文件指南</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/updated-2024-approved-how-to-access-and-watch-nonstop-nba-live-stream-free-online/"><u>Updated 2024 Approved How To Access and Watch Nonstop NBA Live Stream Free Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-a-flv-photo-slideshow/"><u>Updated 2024 Approved How to Make a FLV Photo Slideshow</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-a-funny-meme-on-macbook/"><u>Updated In 2024, How to Make a Funny Meme on MacBook</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-conquer-the-art-of-slow-motion-expert-guide-to-making-beautifully-extended-video-online-using-photo-apps/"><u>[New] Conquer the Art of Slow Motion Expert Guide to Making Beautifully Extended Video Online Using Photo Apps</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-techniques-for-finding-original-images-in-instagram-posts/"><u>[Updated] In 2024, Techniques for Finding Original Images in Instagram Posts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-multimedia-balancing-audio-visuals-and-content-quality-live/"><u>[Updated] Mastering Multimedia Balancing Audio, Visuals, and Content Quality Live</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-professional-content-creation-tools-review-studio-vs-beta/"><u>[Updated] Professional Content Creation Tools Review Studio Vs. Beta</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-from-audio-to-action-mp3-to-youtube-conversion-journey/"><u>2024 Approved From Audio to Action MP3-to-YouTube Conversion Journey</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-use-emojis-on-windows-for-2024/"><u>How to Use Emojis on Windows for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-infinix-smart-8-pro-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Infinix Smart 8 Pro to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-10-free-online-sticker-makers-to-make-your-own-stickers/"><u>Updated 2024 Approved 10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>Updated How to Burn Photos to DVD with Transitions and Music</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-memoji-talk-make-memoji-video-on-your-own/"><u>Updated How to Make Memoji Talk-Make Memoji Video On Your Own</u></a></li>
 </ul></div>
 

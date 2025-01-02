@@ -1,7 +1,7 @@
 ---
 title: OpenAI Denies Decline in ChatGPT's Intelligence
-date: 2024-12-21T18:09:11.645Z
-updated: 2024-12-24T16:44:36.337Z
+date: 2024-12-27T04:38:31.005Z
+updated: 2025-01-01T20:05:14.703Z
 tags:
   - chatgpt
   - open-ai
@@ -16,7 +16,7 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 ## ChatGPT or Gemini? Assessing the Strengths of Google's Newest Artificial Intelligence
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Quick Links
@@ -25,10 +25,6 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 * [How to Use Google Gemini AI](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#how-to-use-google-gemini-ai)
 * [How Gemini Compares to GPT-3.5 and GPT-4](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#how-gemini-compares-to-gpt-3-5-and-gpt-4)
 * [Is Gemini Better than ChatGPT?](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#is-gemini-better-than-chatgpt)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -66,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
  Google says that Gemini Ultra will roll out in January 2024, so we've had to settle for testing Gemini Pro against ChatGPT for now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Gemini Compares to GPT-3.5 and GPT-4
 
  When any new AI model is launched, it is tested against OpenAI's GPT AI models, which are generally accepted as the state-of-the-art model other models should be held up against. So, using Bard and ChatGPT, we tested Gemini's ability in math, creative writing, code generation, and accurately processing image inputs.
@@ -81,7 +81,7 @@ We tried ChatGPT running on GPT-3.5\. The first trial got it right.
 ![ChatGPT answers math question](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/chatgpt-answers-math-question.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  To test Gemini's image interpretation abilities, we tasked it with interpreting some popular memes. It declined, saying it can't interpret images with people in it. ChatGPT, running GPT-4V, was willing and able to do so flawlessly.
@@ -93,7 +93,7 @@ Here's the source screenshot.
 ![screenshot of Chatbase chatbot creator](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/screenshot-to-replicate.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Below is Gemini Pro's attempt to interpret and replicate the screenshot using HTML and CSS.
@@ -104,13 +104,13 @@ Here's the source screenshot.
 
 ![results of screenshot replication by ChatGPT](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/results-of-screenshot-replication-by-chatgpt.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  We asked Gemini Pro to create a poem about Tesla (the electric vehicle car brand). It showed marginal improvements from previous tests we've done in the past. Here's the result:
 
 ![Bard running Gemini Pro writes a poem](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/bard-writes-peom.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  At this point, we thought comparing the results against GPT-3.5 rather than the supercharged GPT-4 would be more appropriate. So, we asked ChatGPT running GPT-3.5 to create a similar poem.
 
@@ -139,22 +139,18 @@ Here's the source screenshot.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-game-testers-and-beta-gamers-online-for-2024/"><u>[Updated] Game Testers & Beta Gamers Online for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/10-best-free-websites-to-watch-cartoons-online-for-2024/"><u>10 Best Free Websites to Watch Cartoons Online for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-arcadearchive-annotator/"><u>2024 Approved ArcadeArchive Annotator</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-a-wonderful-video-slideshow-with-your-travel-photos/"><u>2024 Approved How to Make a Wonderful Video Slideshow with Your Travel Photos</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-linux-screenshot-the-most-acclaimed-applications/"><u>2024 Approved Linux Screenshot The Most Acclaimed Applications</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-poco-m6-pro-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Poco M6 Pro 5G to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/add-emojis-to-videos-on-youtubefacebooksnapchat-2023-guide/"><u>Add Emojis to Videos on YouTube/Facebook/Snapchat 2023 Guide</u></a></li>
-<li><a href="https://extra-information.techidaily.com/expert-guide-to-eliminating-red-eye-on-your-iphone-shots-for-free/"><u>Expert Guide to Eliminating Red Eye on Your iPhone Shots for Free</u></a></li>
-<li><a href="https://driver-download.techidaily.com/fixing-your-lg-printers-windows-drivers-a-comprehensive-walkthrough/"><u>Fixing Your LG Printer's Windows Drivers - A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-realme-c67-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Realme C67 4G | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-oppo-a59-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Oppo A59 5G Without PUK Codes</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-10-best-meme-makers-online-free-to-use/"><u>In 2024, 10 Best Meme Makers Online (Free to Use)</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-generating-the-roll-safe-think-about-it-meme/"><u>In 2024, Generating the Roll Safe-Think About It Meme</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On OnePlus 12R? | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-10-most-popular-minion-memes-that-moms-are-crazy-about/"><u>Updated 2024 Approved 10 Most Popular Minion Memes that Moms Are Crazy About</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-a-video-for-your-babys-first-year/"><u>Updated 2024 Approved How to Make a Video for Your Babys First Year</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-top-10-storyboarding-software-freeandpaid-for-2024/"><u>Updated Top 10 Storyboarding Software Free&Paid for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-micro-vids-unpacked-whats-the-score/"><u>[New] Micro Vids Unpacked What's the Score?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-scripting-success-the-art-of-good-documentaries/"><u>[Updated] In 2024, Scripting Success The Art of Good Documentaries</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-distracted-boyfriend-meme-generator/"><u>2024 Approved Distracted Boyfriend Meme Generator</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/3-pillars-of-powerful-ad-content-creation-enhancing-conversion-rates-via-facebook-for-2024/"><u>3 Pillars of Powerful Ad Content Creation Enhancing Conversion Rates via Facebook for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ai-ryzen-zen-chip-9-hx-grooves-past-intel-in-single-core-performance-leaving-core-ultra-7-268v-and-ryzen-9-7945hx3d-in-the-dust/"><u>AI Ryzen Zen Chip 9 HX Grooves Past Intel in Single-Core Performance, Leaving Core Ultra 7 268V & Ryzen 9 7945HX3D In The Dust</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-samsung-galaxy-a24-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Samsung Galaxy A24</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-steady-visual-commencement/"><u>In 2024, Steady Visual Commencement</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-top-5-best-websites-to-add-emojis-to-photo-online/"><u>New In 2024, Top 5 Best Websites to Add Emojis to Photo Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-top-10-storyboarding-software-freeandpaid-for-2024/"><u>New Top 10 Storyboarding Software Free&Paid for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/riconverti-video-mp4-in-formato-flv-online-a-nessun-costo-con-movavi/"><u>Riconverti Video MP4 in Formato FLV Online a Nessun Costo Con Movavi</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-linking-your-fire-stick-device-with-any-projector/"><u>Step-by-Step Guide: Linking Your Fire Stick Device with Any Projector</u></a></li>
+<li><a href="https://some-tips.techidaily.com/switch-to-iphone-without-losing-chat-history-transferring-whatsapp-accounts-across-devices-techradar/"><u>Switch to iPhone Without Losing Chat History: Transferring WhatsApp Accounts Across Devices | TechRadar</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-a-triggered-meme/"><u>Updated In 2024, How to Make a Triggered Meme?</u></a></li>
 </ul></div>
 
