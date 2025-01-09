@@ -1,7 +1,7 @@
 ---
 title: New How to Record and Edit an Animoji or Memoji Karaoke Music Video for 2024
-date: 2024-12-26T03:35:05.278Z
-updated: 2025-01-01T19:45:00.604Z
+date: 2025-01-08T17:34:32.981Z
+updated: 2025-01-09T16:35:04.935Z
 tags: 
   - ai
   - animation videos
@@ -609,6 +609,10 @@ A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene
 
 ![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. LeBron James's NBA Finals Reaction
 
 This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
@@ -640,6 +644,10 @@ The aggressive character and dominating tone of the post have stirred several va
 ![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
 
 Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Recommended Tool to Make Memes
 
@@ -837,10 +845,6 @@ Website: <https://www.fotor.com/>
 
 ## Part 2: Best Emoji Removers on Windows/Mac Computer
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Adobe Photoshop
 
 [Adobe Photoshop](https://www.adobe.com/products/photoshop.html) is arguably one of the best photo editing tools that only allows you to enhance a photo but fix issues, such as removing emojis, unwanted objects, and so on. Adobe Photoshop is a professional tool and might not be the best for those new to it, but if you have used Adobe Photoshop earlier, you can use the Lasso Tool or the Marqueel Tool, which you will find on the left toolbar to remove emojis and unwanted items. Once done, save the image, and yes, the original picture quality will be retained.
@@ -1232,10 +1236,6 @@ It has around 29 photo editing tools, which will help a user to enhance the phot
 
 ![airbrush best photo editor remove emoji](https://images.wondershare.com/filmora/article-images/airbrush-best-photo-editor-remove-emoji.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 AirBrush is a leading photo editing tool for iPhone users and has a high rating of 4.9\. The tool makes editing an image effortlessly. If you don’t want the emojis to ruin your photo, use AirBrush to deal with it quickly. Moreover, it lets you edit your photos further, for example, remove blemishes, make the image look smooth and glowing, add filters to give it a magical touch, and so much more! The tool has quite a lot of features that you will like.
 
 **Key Features**
@@ -1275,6 +1275,10 @@ So, now you know about the easy ways to remove emojis from pictures. Try any of 
 03 [Best Emoji Remover Apps on iPhone and Android](#part3)
 
 ## Part 1: Best Emoji Removers Online to Remove Emojis from Pictures
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Inpaint
 
@@ -1524,187 +1528,187 @@ So, now you know about the easy ways to remove emojis from pictures. Try any of 
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
+
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+
+* [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
+* [Part 2: More Photo to DVD Tips](#part2)
+
+### Part 1: How to Burn Photos to DVD with Transition, Titles and Music
+
+ Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) can help you quickly create and burn photos to DVD. Download the free trial version this photo DVD maker first.
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+#### Step 1. Add Photo or Video Files
+
+ In Organize tab, simply click the "Add Files" button to open the browse window, find your files and import them into the program, you can drag and drop photos or videos to organize them on storyboard. Click the Expand button to get a larger viewer.
+
+![Burn photos to dvd](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
+
+#### Step 2. Customize Photo Slideshow Transitions
+
+ Generally speaking, transition effects will be automatically inserted between every two photos/videos when you import the photos. But you can customize them by clicking the Personalize tab, then drag and drop a transition from the list to the thumbnail between two slides.
+
+ You are also able to add background music here: click the Music button and choose a music file from your computer.
+
+![Burn photos to dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
+
+#### Step 3. Choose DVD Menu
+
+ Now switch to Create tab to author a DVD menu from template and burn to DVD disc quickly:
+
+* On the right hand side of the screen, double click on desired menu template to apply a DVD menu template.
+* Click the Edit button under the preview windows to customize your DVD menu or right click on menu for more options.
+* You can also make a professional DVD menu using dynamic DVD menu templates.
+
+ BTW, if you don't want a DVD menu, just check the "Disable DVD Menu" option.
+
+![burn photo dvd disc](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
+
+#### Step 4. Burn Photos to DVD Disc
+
+ Now click the Preview button beneath the preview window to make sure the photo DVD slideshow is exactly what you want. Go back to Personalize tab to change if necessary. After that, click "Burn" button to start burning your DVD slideshow to DVD.
+
+ You can also output photo slideshow to watch on Youtube, Mobile Phone, iPhone, PSP, etc. through options on the left. Below are the instructions to burn DVD for watch on TV:
+
+![DVD Slideshow burn to DVD](https://images.wondershare.com/filmora/article-images/dvd-slideshow-burn-to-dvd.jpg)
+
+* Insert a blank DVD disc, and do the following.
+* Click "Burn to DVD". Then specify the number of DVD copies. You can also choose to generate ISO Image files or DVD Folders.
+* Make sure the PAL or NTSC TV Standard settings is right. If you don't know which standard is used in your country, click the "Help" button. The wrong TV standard would cause playback incompatibility problem.
+* Then click "Start" to burn DVD slideshow. If you have checked Create DVD Folder and/or Create DVD Image File options, the corresponding files will also be created to the specified folder.
+
+ Now sit back and relax, when burning complete, insert the created DVD disc into your DVD player to watch photo DVD slideshow on TV.
+
+ Learn more: [User Guide of DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)
+
+### Part 2: More Photo to DVD Tips
+
+#### More about NTSC/PAL TV Standard
+
+ Nowadays, there are three video formats around the world. But each one is incompatible with others. For instance, NTSC is used in North America, Canada and Japan; while most of other regions PAL/SECAM. To apply TV Standard in [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/), go to "**Create**" -> **Option** tab and locate TV Standard option to select NTSC or PAL. If you are not sure which one to choose, please click "Help" button, select your country, then click "OK" , the program will choose the right TV standard for you.
+
+#### Burn Photos to DVD/CD as Data Disc
+
+ If you only want to burn photo to DVD for backup and further use, you only need a burning photo to DVD software like ImgBurn (Free) or Nero (commercial). These software helps you burn all digital media files to DVD, of course you can burn photos to DVD for backup purpose. Notice that some **photo DVD maker** allows you burn slideshow as well as the original photos. This way, you turn photos to DVD slideshow with transition, and at the same time, backup photos to DVD for other uses.
+
+#### Scan Photos to DVD - Digitize Photos
+
+ If you use traditional camera and have got loads of photos in album, you can scan photos to computer so that convert photo to digital format. Afterwards, you can get more from these digital photos, like **backup photos to DVD**, send to others as DVD gift, make a photo DVD show to play on TV, etc. All these could be done with your favorite photo DVD maker software. Now see how to transform your printed photos to digital first:
+
+**Select a good photo scanner** \-> **Prepare your photos to scan** \-> **Start photo scanning** \-> **Adjust scanned photos**
+
+ Scanning printed photos to computer is not an easy job. It needs patience and some tips and tricks. As you may know, some companies provide photo scanning service. For the Step 4, you can also adjust digital photos in your selected **photo DVD maker**. Anyway, you need to get your digital photos ready before you **burn photos to DVD** with transitions and music.
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
+
+ This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
+
+* [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
+* [Part 2: More Photo to DVD Tips](#part2)
+
+### Part 1: How to Burn Photos to DVD with Transition, Titles and Music
+
+ Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) can help you quickly create and burn photos to DVD. Download the free trial version this photo DVD maker first.
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+#### Step 1. Add Photo or Video Files
+
+ In Organize tab, simply click the "Add Files" button to open the browse window, find your files and import them into the program, you can drag and drop photos or videos to organize them on storyboard. Click the Expand button to get a larger viewer.
+
+![Burn photos to dvd](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
+
+#### Step 2. Customize Photo Slideshow Transitions
+
+ Generally speaking, transition effects will be automatically inserted between every two photos/videos when you import the photos. But you can customize them by clicking the Personalize tab, then drag and drop a transition from the list to the thumbnail between two slides.
+
+ You are also able to add background music here: click the Music button and choose a music file from your computer.
+
+![Burn photos to dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
+
+#### Step 3. Choose DVD Menu
+
+ Now switch to Create tab to author a DVD menu from template and burn to DVD disc quickly:
+
+* On the right hand side of the screen, double click on desired menu template to apply a DVD menu template.
+* Click the Edit button under the preview windows to customize your DVD menu or right click on menu for more options.
+* You can also make a professional DVD menu using dynamic DVD menu templates.
+
+ BTW, if you don't want a DVD menu, just check the "Disable DVD Menu" option.
+
+![burn photo dvd disc](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
+
+#### Step 4. Burn Photos to DVD Disc
+
+ Now click the Preview button beneath the preview window to make sure the photo DVD slideshow is exactly what you want. Go back to Personalize tab to change if necessary. After that, click "Burn" button to start burning your DVD slideshow to DVD.
+
+ You can also output photo slideshow to watch on Youtube, Mobile Phone, iPhone, PSP, etc. through options on the left. Below are the instructions to burn DVD for watch on TV:
+
+![DVD Slideshow burn to DVD](https://images.wondershare.com/filmora/article-images/dvd-slideshow-burn-to-dvd.jpg)
+
+* Insert a blank DVD disc, and do the following.
+* Click "Burn to DVD". Then specify the number of DVD copies. You can also choose to generate ISO Image files or DVD Folders.
+* Make sure the PAL or NTSC TV Standard settings is right. If you don't know which standard is used in your country, click the "Help" button. The wrong TV standard would cause playback incompatibility problem.
+* Then click "Start" to burn DVD slideshow. If you have checked Create DVD Folder and/or Create DVD Image File options, the corresponding files will also be created to the specified folder.
+
+ Now sit back and relax, when burning complete, insert the created DVD disc into your DVD player to watch photo DVD slideshow on TV.
+
+ Learn more: [User Guide of DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)
+
+### Part 2: More Photo to DVD Tips
+
+#### More about NTSC/PAL TV Standard
+
+ Nowadays, there are three video formats around the world. But each one is incompatible with others. For instance, NTSC is used in North America, Canada and Japan; while most of other regions PAL/SECAM. To apply TV Standard in [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/), go to "**Create**" -> **Option** tab and locate TV Standard option to select NTSC or PAL. If you are not sure which one to choose, please click "Help" button, select your country, then click "OK" , the program will choose the right TV standard for you.
+
+#### Burn Photos to DVD/CD as Data Disc
+
+ If you only want to burn photo to DVD for backup and further use, you only need a burning photo to DVD software like ImgBurn (Free) or Nero (commercial). These software helps you burn all digital media files to DVD, of course you can burn photos to DVD for backup purpose. Notice that some **photo DVD maker** allows you burn slideshow as well as the original photos. This way, you turn photos to DVD slideshow with transition, and at the same time, backup photos to DVD for other uses.
+
+#### Scan Photos to DVD - Digitize Photos
+
+ If you use traditional camera and have got loads of photos in album, you can scan photos to computer so that convert photo to digital format. Afterwards, you can get more from these digital photos, like **backup photos to DVD**, send to others as DVD gift, make a photo DVD show to play on TV, etc. All these could be done with your favorite photo DVD maker software. Now see how to transform your printed photos to digital first:
+
+**Select a good photo scanner** \-> **Prepare your photos to scan** \-> **Start photo scanning** \-> **Adjust scanned photos**
+
+ Scanning printed photos to computer is not an easy job. It needs patience and some tips and tricks. As you may know, some companies provide photo scanning service. For the Step 4, you can also adjust digital photos in your selected **photo DVD maker**. Anyway, you need to get your digital photos ready before you **burn photos to DVD** with transitions and music.
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
-
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
-
-* [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
-* [Part 2: More Photo to DVD Tips](#part2)
-
-### Part 1: How to Burn Photos to DVD with Transition, Titles and Music
-
- Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) can help you quickly create and burn photos to DVD. Download the free trial version this photo DVD maker first.
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-#### Step 1. Add Photo or Video Files
-
- In Organize tab, simply click the "Add Files" button to open the browse window, find your files and import them into the program, you can drag and drop photos or videos to organize them on storyboard. Click the Expand button to get a larger viewer.
-
-![Burn photos to dvd](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
-
-#### Step 2. Customize Photo Slideshow Transitions
-
- Generally speaking, transition effects will be automatically inserted between every two photos/videos when you import the photos. But you can customize them by clicking the Personalize tab, then drag and drop a transition from the list to the thumbnail between two slides.
-
- You are also able to add background music here: click the Music button and choose a music file from your computer.
-
-![Burn photos to dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
-
-#### Step 3. Choose DVD Menu
-
- Now switch to Create tab to author a DVD menu from template and burn to DVD disc quickly:
-
-* On the right hand side of the screen, double click on desired menu template to apply a DVD menu template.
-* Click the Edit button under the preview windows to customize your DVD menu or right click on menu for more options.
-* You can also make a professional DVD menu using dynamic DVD menu templates.
-
- BTW, if you don't want a DVD menu, just check the "Disable DVD Menu" option.
-
-![burn photo dvd disc](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
-
-#### Step 4. Burn Photos to DVD Disc
-
- Now click the Preview button beneath the preview window to make sure the photo DVD slideshow is exactly what you want. Go back to Personalize tab to change if necessary. After that, click "Burn" button to start burning your DVD slideshow to DVD.
-
- You can also output photo slideshow to watch on Youtube, Mobile Phone, iPhone, PSP, etc. through options on the left. Below are the instructions to burn DVD for watch on TV:
-
-![DVD Slideshow burn to DVD](https://images.wondershare.com/filmora/article-images/dvd-slideshow-burn-to-dvd.jpg)
-
-* Insert a blank DVD disc, and do the following.
-* Click "Burn to DVD". Then specify the number of DVD copies. You can also choose to generate ISO Image files or DVD Folders.
-* Make sure the PAL or NTSC TV Standard settings is right. If you don't know which standard is used in your country, click the "Help" button. The wrong TV standard would cause playback incompatibility problem.
-* Then click "Start" to burn DVD slideshow. If you have checked Create DVD Folder and/or Create DVD Image File options, the corresponding files will also be created to the specified folder.
-
- Now sit back and relax, when burning complete, insert the created DVD disc into your DVD player to watch photo DVD slideshow on TV.
-
- Learn more: [User Guide of DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)
-
-### Part 2: More Photo to DVD Tips
-
-#### More about NTSC/PAL TV Standard
-
- Nowadays, there are three video formats around the world. But each one is incompatible with others. For instance, NTSC is used in North America, Canada and Japan; while most of other regions PAL/SECAM. To apply TV Standard in [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/), go to "**Create**" -> **Option** tab and locate TV Standard option to select NTSC or PAL. If you are not sure which one to choose, please click "Help" button, select your country, then click "OK" , the program will choose the right TV standard for you.
-
-#### Burn Photos to DVD/CD as Data Disc
-
- If you only want to burn photo to DVD for backup and further use, you only need a burning photo to DVD software like ImgBurn (Free) or Nero (commercial). These software helps you burn all digital media files to DVD, of course you can burn photos to DVD for backup purpose. Notice that some **photo DVD maker** allows you burn slideshow as well as the original photos. This way, you turn photos to DVD slideshow with transition, and at the same time, backup photos to DVD for other uses.
-
-#### Scan Photos to DVD - Digitize Photos
-
- If you use traditional camera and have got loads of photos in album, you can scan photos to computer so that convert photo to digital format. Afterwards, you can get more from these digital photos, like **backup photos to DVD**, send to others as DVD gift, make a photo DVD show to play on TV, etc. All these could be done with your favorite photo DVD maker software. Now see how to transform your printed photos to digital first:
-
-**Select a good photo scanner** \-> **Prepare your photos to scan** \-> **Start photo scanning** \-> **Adjust scanned photos**
-
- Scanning printed photos to computer is not an easy job. It needs patience and some tips and tricks. As you may know, some companies provide photo scanning service. For the Step 4, you can also adjust digital photos in your selected **photo DVD maker**. Anyway, you need to get your digital photos ready before you **burn photos to DVD** with transitions and music.
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- Photos are precious memories not only for you but also for your family members. As time goes on, the photos might fade out and be unable to retrieve. To avoid this, **burn photos to DVD** will be a great idea to preserve family memories eternally.
-
- This article will show you how to burn [**photos to DVD Slideshow**](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) with transition, titles and music quickly and easily by using Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/). It also provides some tips on how to burn photos to DVD.
-
-* [Part 1: How to Burn Photos to DVD with Transition, Titles and Music](#part1)
-* [Part 2: More Photo to DVD Tips](#part2)
-
-### Part 1: How to Burn Photos to DVD with Transition, Titles and Music
-
- Wondershare [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) can help you quickly create and burn photos to DVD. Download the free trial version this photo DVD maker first.
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-#### Step 1. Add Photo or Video Files
-
- In Organize tab, simply click the "Add Files" button to open the browse window, find your files and import them into the program, you can drag and drop photos or videos to organize them on storyboard. Click the Expand button to get a larger viewer.
-
-![Burn photos to dvd](https://images.wondershare.com/images/multimedia/dvd-slideshow-builder/dvd-slideshow-organize.jpg)
-
-#### Step 2. Customize Photo Slideshow Transitions
-
- Generally speaking, transition effects will be automatically inserted between every two photos/videos when you import the photos. But you can customize them by clicking the Personalize tab, then drag and drop a transition from the list to the thumbnail between two slides.
-
- You are also able to add background music here: click the Music button and choose a music file from your computer.
-
-![Burn photos to dvd](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug2.jpg)
-
-#### Step 3. Choose DVD Menu
-
- Now switch to Create tab to author a DVD menu from template and burn to DVD disc quickly:
-
-* On the right hand side of the screen, double click on desired menu template to apply a DVD menu template.
-* Click the Edit button under the preview windows to customize your DVD menu or right click on menu for more options.
-* You can also make a professional DVD menu using dynamic DVD menu templates.
-
- BTW, if you don't want a DVD menu, just check the "Disable DVD Menu" option.
-
-![burn photo dvd disc](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
-
-#### Step 4. Burn Photos to DVD Disc
-
- Now click the Preview button beneath the preview window to make sure the photo DVD slideshow is exactly what you want. Go back to Personalize tab to change if necessary. After that, click "Burn" button to start burning your DVD slideshow to DVD.
-
- You can also output photo slideshow to watch on Youtube, Mobile Phone, iPhone, PSP, etc. through options on the left. Below are the instructions to burn DVD for watch on TV:
-
-![DVD Slideshow burn to DVD](https://images.wondershare.com/filmora/article-images/dvd-slideshow-burn-to-dvd.jpg)
-
-* Insert a blank DVD disc, and do the following.
-* Click "Burn to DVD". Then specify the number of DVD copies. You can also choose to generate ISO Image files or DVD Folders.
-* Make sure the PAL or NTSC TV Standard settings is right. If you don't know which standard is used in your country, click the "Help" button. The wrong TV standard would cause playback incompatibility problem.
-* Then click "Start" to burn DVD slideshow. If you have checked Create DVD Folder and/or Create DVD Image File options, the corresponding files will also be created to the specified folder.
-
- Now sit back and relax, when burning complete, insert the created DVD disc into your DVD player to watch photo DVD slideshow on TV.
-
- Learn more: [User Guide of DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)
-
-### Part 2: More Photo to DVD Tips
-
-#### More about NTSC/PAL TV Standard
-
- Nowadays, there are three video formats around the world. But each one is incompatible with others. For instance, NTSC is used in North America, Canada and Japan; while most of other regions PAL/SECAM. To apply TV Standard in [DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/), go to "**Create**" -> **Option** tab and locate TV Standard option to select NTSC or PAL. If you are not sure which one to choose, please click "Help" button, select your country, then click "OK" , the program will choose the right TV standard for you.
-
-#### Burn Photos to DVD/CD as Data Disc
-
- If you only want to burn photo to DVD for backup and further use, you only need a burning photo to DVD software like ImgBurn (Free) or Nero (commercial). These software helps you burn all digital media files to DVD, of course you can burn photos to DVD for backup purpose. Notice that some **photo DVD maker** allows you burn slideshow as well as the original photos. This way, you turn photos to DVD slideshow with transition, and at the same time, backup photos to DVD for other uses.
-
-#### Scan Photos to DVD - Digitize Photos
-
- If you use traditional camera and have got loads of photos in album, you can scan photos to computer so that convert photo to digital format. Afterwards, you can get more from these digital photos, like **backup photos to DVD**, send to others as DVD gift, make a photo DVD show to play on TV, etc. All these could be done with your favorite photo DVD maker software. Now see how to transform your printed photos to digital first:
-
-**Select a good photo scanner** \-> **Prepare your photos to scan** \-> **Start photo scanning** \-> **Adjust scanned photos**
-
- Scanning printed photos to computer is not an easy job. It needs patience and some tips and tricks. As you may know, some companies provide photo scanning service. For the Step 4, you can also adjust digital photos in your selected **photo DVD maker**. Anyway, you need to get your digital photos ready before you **burn photos to DVD** with transitions and music.
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -1818,6 +1822,10 @@ Follow @Shanoon Cox
 
  Your baby grows up very fast and being able to see him grow is maybe one of the most interesting and exciting moments in your life. Documenting the first year is amazing and it will surely offer you an extraordinary value so try to do that the best way you can. Imagine how touched your child would be when he/she, at the age of 18, watch something like this:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make the baby’s first year video
 
 **Filming tips**
@@ -1841,10 +1849,6 @@ Follow @Shanoon Cox
  \="" style="width: 100%; height: 278.438px;";
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Adjust saturation** \- You should try to use the app in order to adjust the saturation as this can lead to some very bad results if you’re not careful. Find the proper saturation levels and opt for them right away.
 
@@ -2040,6 +2044,10 @@ Animated kiss emoji, animated dancing emoji, and laughing emoji, this emoji pack
 
 If you are on the verge of a nervous breakdown and require a stickers pack with 32 elements that include a crying emoji, this pack has to be your answer. In addition to this, this effect is 100% compatible with Wondershare Filmora 9.6 and above.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Message Bubbles Pack
 
 With message and chat bubbles that make communication a lot faster and quick, allow me to introduce you to Message Bubbles Pack. It constitutes animated cute emoji faces and texting graphics to make your social media fun and interesting.
@@ -2081,10 +2089,6 @@ The next idea is a workable and effective tool to make your video funnier. The c
 ### 5. Coworkers and Superiors Video
 
 In this idea, the user can make a video showing his workplace and include all his superiors and coworkers. Afterward, he can edit the video by expressing himself what he actually feels about them and using different emojis to display the reaction of his coworkers in the video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6. Video Techniques
 
@@ -2304,10 +2308,6 @@ Along with this, it is constantly growing and unique media with no fear of attri
 
 Animated kiss emoji, animated dancing emoji, and laughing emoji, this emoji pack has covered your basics. With 24 elements, Animated Emoji Pack provides an easy way to express yourself and say it out loud using the language of emojis.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. Emoji Stickers Pack
 
 If you are on the verge of a nervous breakdown and require a stickers pack with 32 elements that include a crying emoji, this pack has to be your answer. In addition to this, this effect is 100% compatible with Wondershare Filmora 9.6 and above.
@@ -2334,10 +2334,6 @@ The use of free animated emoji to make videos funny has become a thing now. Furt
 
 ![animated emoticons](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-7.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1. Face Swap with Animated Emoji
 
 The first idea is sure to make the audience burst into laughter. For starters, one can swap their faces with animated emojis like an animated dancing emoji or a crying emoji. You can tell your audience what you are feeling right at the moment as you use those emojis and then show your real face.
@@ -2351,7 +2347,7 @@ One can share a funny story with their audience by using the power of animated e
 The next idea is related to a wedding video. To make it funnier, the user can first create a video of the dream wedding planned for them. Combine it with the actual wedding video and then use 3D animated emojis to express how everything was messed up and, in the end, and didn't go as planned.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. Thoughts on Books and Netflix Series
@@ -2486,6 +2482,10 @@ One can share a funny story with their audience by using the power of animated e
 
 The next idea is related to a wedding video. To make it funnier, the user can first create a video of the dream wedding planned for them. Combine it with the actual wedding video and then use 3D animated emojis to express how everything was messed up and, in the end, and didn't go as planned.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4. Thoughts on Books and Netflix Series
 
 The next idea is a workable and effective tool to make your video funnier. The content creator can make a video of a book he read or the Netflix series he watched and provide the audience with his thoughts. They can communicate the flaws of the movie or a book using animated sticker packs and gifs to make it funny and interesting.
@@ -2501,10 +2501,6 @@ The different video techniques can be used to make people laugh and be attracted
 ### 7. Capturing the Pets
 
 The best idea yet is capturing the pets in the video. The user can record their pets doing insane and crazy things and insert emojis to bring a funny addition to the video. Along with this, one can use the thinking emoji to assume what their pet has been thinking at the moment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8. A Random Day of your Life
 
@@ -2761,6 +2757,10 @@ If there are too many photos to save or share with friends and family, you can u
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Alternative to Organize, Store, and Sort Images: iCloud
 
 Migrating your photos to iCloud is a wise choice. iCloud is the best photo storage for iOS or Mac users. You don't need to download other apps or software. Just allow iCloud to back up the photo's library in the settings.
@@ -2805,7 +2805,7 @@ Here are the quick steps to create a photo collage with iPhoto.
 ![add photo by iphoto](https://images.wondershare.com/filmora/article-images/iphoto-add-image.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4:** Choose “Picture Collage”, which should be under the **Any Occasion** section if you are using the iPhoto 11.
@@ -2868,14 +2868,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-how-to-bring-back-your-preferred-photo-viewer-in-win-11-for-2024/"><u>[New] How to Bring Back Your Preferred Photo Viewer in Win 11 for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/nleash-the-power-of-first-impressions-with-top-30-youtube-intra-craftsmen-for-2024/"><u>[New] Unleash the Power of First Impressions with Top 30 YouTube Intra Craftsmen for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-recordingrevolution-the-free-game-videography-wave-of-24-for-2024/"><u>[Updated] RecordingRevolution The Free Game Videography Wave of '24 for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-make-your-own-emoji-in-2-ways-step-by-step-guide/"><u>How to Make Your Own Emoji in 2 Ways Step-By Step Guide</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-funny-meme-on-macbook/"><u>In 2024, How to Make a Funny Meme on MacBook</u></a></li>
-<li><a href="https://win-able.techidaily.com/optimize-your-pc-to-stop-stuttering-during-fortnite-battles/"><u>Optimize Your PC to Stop Stuttering During Fortnite Battles</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-top-10-free-emoji-websites-to-download-emojis-online/"><u>Updated 2024 Approved Top 10 Free Emoji Websites to Download Emojis Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-add-emojis-to-videos-on-youtubefacebooksnapchat-2023-guide/"><u>Updated Add Emojis to Videos on YouTube/Facebook/Snapchat 2023 Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/zenith-of-zoom-audio-fine-tuning-for-peak-performance-for-2024/"><u>Zenith of Zoom Audio Fine-Tuning for Peak Performance for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-comprehensive-breakdown-vsco-photography-tools/"><u>[New] 2024 Approved Comprehensive Breakdown VSCO Photography Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-complete-guide-to-eradicating-youtube-keep-queue/"><u>[New] 2024 Approved The Complete Guide to Eradicating YouTube Keep Queue</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-navigating-fb-discovering-shared-video-content/"><u>[Updated] In 2024, Navigating FB Discovering Shared Video Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-speedy-scripts-top-1-written-game-experiences-on-devices/"><u>[Updated] In 2024, Speedy Scripts Top 1 Written Game Experiences on Devices</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-most-popular-minion-memes-that-moms-are-crazy-about/"><u>10 Most Popular Minion Memes that Moms Are Crazy About</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-add-emojis-to-discord-on-desktop-computer-and-mobile/"><u>2024 Approved How to Add Emojis To Discord on Desktop Computer and Mobile</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-mocking-sponge-bob-meme-generator/"><u>2024 Approved Mocking Sponge Bob Meme Generator</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/4k-4k/"><u>免费在线4K视频编辑器 | 支持转换任何分辨率影片到4K或反向</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-to-the-proposed-apple-smart-robot-anticipated-release-date-price-estimates-and-technical-details/"><u>Comprehensive Guide to the Proposed Apple Smart Robot: Anticipated Release Date, Price Estimates, and Technical Details.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-timepieces-leading-smartwatches-of-the-year-2024/"><u>Cutting-Edge Timepieces: Leading Smartwatches of the Year 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-record-your-memorable-honeymoon-video-for-2024/"><u>How to Record Your Memorable Honeymoon Video for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-what-is-emoji-and-what-does-it-mean/"><u>New 2024 Approved What Is Emoji and What Does It Mean?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-imovie-photo-slideshow-with-music/"><u>New How to Make a iMovie Photo Slideshow with Music?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-artistic-revolution-identifying-top-6-nft-visionaries/"><u>The Artistic Revolution Identifying Top 6 NFT Visionaries</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>Updated In 2024, 10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
 </ul></div>
 
