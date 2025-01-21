@@ -1,7 +1,7 @@
 ---
 title: New In 2024, Making Triggered Memes with Filmora Video Editor
-date: 2025-01-13T10:18:33.319Z
-updated: 2025-01-14T16:52:58.459Z
+date: 2025-01-14T17:39:12.760Z
+updated: 2025-01-21T18:21:31.971Z
 tags: 
   - ai
   - animation videos
@@ -114,10 +114,6 @@ Follow @Ollie Mattison
  Filmora offers an easy to use video editor named [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) to make video and gif memes, and an online free meme maker named [Filmora FREE Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to create images, videos and gifs memes for free. The video tutorial below will show you how to make a triggered video meme with Filmora. Download it and try it by yourself now.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -638,6 +634,10 @@ Greyed-out emoji in the menu means that either those emoji are animated, or you 
 
 ![grey emoji on discord](https://images.wondershare.com/filmora/article-images/grey-emoji-discord.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. How Can I Get More Custom Emoji On The Server?
 
 You can upload 50 emojis to your Discord server. But if you want more options, you need a Discord Nitro subscription to boost your server specs.
@@ -1011,10 +1011,6 @@ Next, set up the photo duration to the desired length, so that you don't need to
 
 ![Add music on travel photo slideshow](https://images.wondershare.com/filmora/article-images/filmora-audio-library.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you want to sync the photo to the background music, you can [use the Beat Detection tool in Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and mark the highlights accordingly.
 
 **Step 3:** Once you did that, you will have to drag and then drop the images directly to the timeline. Here is where you can change things like saturation, hue, brightness, contrast and other features.
@@ -1071,10 +1067,6 @@ But one has to wonder, what tool should you use to create such a travel slidesho
 * You can burn the result to DVD or you can share it on social media and YouTube/Vimeo among others right from within the app.
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  **How can you create video slideshows with Wondershare Filmora?**
 
@@ -1622,10 +1614,6 @@ So, these are some of the best free and paid to storyboard software that you can
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -1755,10 +1743,6 @@ Platforms: Works on all major Operating Systems
 
 ![canva-poster](https://images.wondershare.com/filmora/article-images/canva-poster.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 It doesn't have to be stressful to create a storyboard, and Canva makes it easy with a large library of templates, millions of stock photos (or the ability to upload your own), and color frames. The font type, colors, headers, and subheaders can be customized.
 
 If you're working on a script or design with someone else, you can grant access to collaborate, and when you're done you can share the design through email or as a PDF. On the other hand, if your team needs an easy and simple tool to manage simpler projects or get started with storyboarding, this may be your best choice.
@@ -1794,6 +1778,10 @@ So, these are some of the best free and paid to storyboard software that you can
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -2036,10 +2024,102 @@ Here's how to create an awesome custom Slack emoji-
 
 ![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
 
+4.Then, give your emoji a name so you can easily find the custom Slack emoji while chatting. Click **Save** to finish.
+
+![Name Slack Emoji](https://images.wondershare.com/filmora/article-images/name-slack-emoji.jpg)
+
+5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
+
+![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
+
+## Bonus Tip-Edit Emoji and Add Emoji to Your Video
+
+Now, let me present a top-notch video editor to help you add Slack emoji to your video without needing any editing experience.
+
+Wondershare Filmora is a powerful video editor with a highly intuitive interface. It is loaded with high-end editing tools that are incredibly easy to use. You can add keyframe animations to make your videos more dynamic with a single click. Motion tracking allows you to track the specified object's movements throughout the video, even allowing you to blur certain parts of the video. From the Effects tab, you can add cinematic effects to your videos, or you can easily color match all your scenes with one tap or apply noise reduction.
+
+If you wish to edit or add custom Slack emoji to your video, you can import the image to Filmora and then drag it to the track above the video in the timeline. You can then add animations or motion tracking to adjust the custom Slack emoji. Cool transitions and color adjustments can also be made to make the video more appealing and unique. Special effects or catchy captions are just a tap away to help you create stunning videos
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Conclusion
+
+With the introduction of emojis, the need for writing long messages has diminished. Using a Slack emoji can turn your conversations around and make them more interesting. Chatting has never been easier or more fun.
+
+Add Slack emoji or react to what others have to say. It's time to create a custom Slack emoji to wow your friends and colleagues with tiny emojis that are exclusive to just you. If you want to spice up your work chats, just add Slack emoji and enjoy.
+
+Try out Wondershare Filmora to add Slack emoji to your videos to make them unique.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+A Slack emoji is just like the emojis you usually use on Whatsapp, Messenger, or other chatting platforms. There is a wide range of emojis you can use to express yourself better or lighten the working environment.
+
+Plus, the option to create a custom Slack emoji makes it more interesting. You can use it to create a new and unique Slack emoji to personalize your chatting experience. Why write long texts when you can just add Slack emoji to say it all?
+
+Let me show you the ropes on how to create a custom Slack emoji and make your chatting experience more fun.
+
+* [Part 1: How to Add Slack Emoji](#part1)
+* [Part 2: How to Custom Slack Emoji](#part2)
+* [Bonus Tip-Edit Emoji and Add Emoji to Your Video](#part3)
+
+## Part 1: How to Add Slack Emoji
+
+At Slack, you can find a Slack emoji for every emotion or occasion. Finding the perfect Slack emoji is as easy as browsing through the categorized sections. Better yet, the option to search for a Slack emoji makes it a cakewalk to get the exact Slack emoji to express oneself.
+
+Also, you can add Slack emoji with a single tap. And it allows you to add unlimited Slack emoji in one message.
+
+Let me show you how to add Slack emoji in a few quick steps:
+
+1.Download and open Slack on your desktop or smartphone.
+
+![Open And Launch Slack](https://images.wondershare.com/filmora/article-images/open-and-launch-slack.jpg)
+
+2.To add a Slack emoji, click on the Smiley face icon in the bottom right corner of the message box
+
+![Find Slack Emoji Option](https://images.wondershare.com/filmora/article-images/find-slack-emoji-option.jpg)
+
+3.Browse through the categories to find the right Slack emoji for your message. In the search bar, type the kind of emoji you are looking for to find it faster.
+
+![Select Slack Emoji](https://images.wondershare.com/filmora/article-images/select-slack-emoji.jpg)
+
+4.Click on the Hand icon in the bottom right corner to choose the default skin tone for all your emojis. Finally, to add Slack emoji to your message, just tap on it. Add as many Slack emoji as you like just by tapping on them.
+
+![Tap And Send Slack Emoji](https://images.wondershare.com/filmora/article-images/tap-and-send-slack-emoji.jpg)
+
+## Part 2: How to Custom Slack Emoji
+
+Using the commonly used emojis can get boring. Sometimes, even the Slack emoji collection falls short in expressing the exact feeling you wish to convey. However, the good news is that you can easily create a custom Slack emoji without any hassle.
+
+A Slack custom emoji can range from your own picture to any other image. You can create a personalized custom Slack emoji to crack inside jokes or create your brand icon Slack emoji.
+
+Here's how to create an awesome custom Slack emoji-
+
+1.On your workspace, click on your company name or icon to open the settings drop-down menu. Tap on **Settings&Administration<Customize.**
+
+![Slack Custom Settings](https://images.wondershare.com/filmora/article-images/slack-custom-settings.jpg)
+
+2.A new window will pop open. In the **Emoji** tab, click on **Add Custom Emoji.**
+
+![Add Custom Slack Emoji](https://images.wondershare.com/filmora/article-images/add-custom-slack-emoji.jpg)
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+3.Here you can upload any image to make your custom Slack emoji. Click on **Upload** **Image** to select a file.
+
+![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
+
 4.Then, give your emoji a name so you can easily find the custom Slack emoji while chatting. Click **Save** to finish.
 
 ![Name Slack Emoji](https://images.wondershare.com/filmora/article-images/name-slack-emoji.jpg)
@@ -2047,6 +2127,10 @@ Here's how to create an awesome custom Slack emoji-
 5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
 
 ![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus Tip-Edit Emoji and Add Emoji to Your Video
 
@@ -2232,97 +2316,9 @@ Here's how to create an awesome custom Slack emoji-
 
 ![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
 
-## Bonus Tip-Edit Emoji and Add Emoji to Your Video
-
-Now, let me present a top-notch video editor to help you add Slack emoji to your video without needing any editing experience.
-
-Wondershare Filmora is a powerful video editor with a highly intuitive interface. It is loaded with high-end editing tools that are incredibly easy to use. You can add keyframe animations to make your videos more dynamic with a single click. Motion tracking allows you to track the specified object's movements throughout the video, even allowing you to blur certain parts of the video. From the Effects tab, you can add cinematic effects to your videos, or you can easily color match all your scenes with one tap or apply noise reduction.
-
-If you wish to edit or add custom Slack emoji to your video, you can import the image to Filmora and then drag it to the track above the video in the timeline. You can then add animations or motion tracking to adjust the custom Slack emoji. Cool transitions and color adjustments can also be made to make the video more appealing and unique. Special effects or catchy captions are just a tap away to help you create stunning videos
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-### Conclusion
-
-With the introduction of emojis, the need for writing long messages has diminished. Using a Slack emoji can turn your conversations around and make them more interesting. Chatting has never been easier or more fun.
-
-Add Slack emoji or react to what others have to say. It's time to create a custom Slack emoji to wow your friends and colleagues with tiny emojis that are exclusive to just you. If you want to spice up your work chats, just add Slack emoji and enjoy.
-
-Try out Wondershare Filmora to add Slack emoji to your videos to make them unique.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-A Slack emoji is just like the emojis you usually use on Whatsapp, Messenger, or other chatting platforms. There is a wide range of emojis you can use to express yourself better or lighten the working environment.
-
-Plus, the option to create a custom Slack emoji makes it more interesting. You can use it to create a new and unique Slack emoji to personalize your chatting experience. Why write long texts when you can just add Slack emoji to say it all?
-
-Let me show you the ropes on how to create a custom Slack emoji and make your chatting experience more fun.
-
-* [Part 1: How to Add Slack Emoji](#part1)
-* [Part 2: How to Custom Slack Emoji](#part2)
-* [Bonus Tip-Edit Emoji and Add Emoji to Your Video](#part3)
-
-## Part 1: How to Add Slack Emoji
-
-At Slack, you can find a Slack emoji for every emotion or occasion. Finding the perfect Slack emoji is as easy as browsing through the categorized sections. Better yet, the option to search for a Slack emoji makes it a cakewalk to get the exact Slack emoji to express oneself.
-
-Also, you can add Slack emoji with a single tap. And it allows you to add unlimited Slack emoji in one message.
-
-Let me show you how to add Slack emoji in a few quick steps:
-
-1.Download and open Slack on your desktop or smartphone.
-
-![Open And Launch Slack](https://images.wondershare.com/filmora/article-images/open-and-launch-slack.jpg)
-
-2.To add a Slack emoji, click on the Smiley face icon in the bottom right corner of the message box
-
-![Find Slack Emoji Option](https://images.wondershare.com/filmora/article-images/find-slack-emoji-option.jpg)
-
-3.Browse through the categories to find the right Slack emoji for your message. In the search bar, type the kind of emoji you are looking for to find it faster.
-
-![Select Slack Emoji](https://images.wondershare.com/filmora/article-images/select-slack-emoji.jpg)
-
-4.Click on the Hand icon in the bottom right corner to choose the default skin tone for all your emojis. Finally, to add Slack emoji to your message, just tap on it. Add as many Slack emoji as you like just by tapping on them.
-
-![Tap And Send Slack Emoji](https://images.wondershare.com/filmora/article-images/tap-and-send-slack-emoji.jpg)
-
-## Part 2: How to Custom Slack Emoji
-
-Using the commonly used emojis can get boring. Sometimes, even the Slack emoji collection falls short in expressing the exact feeling you wish to convey. However, the good news is that you can easily create a custom Slack emoji without any hassle.
-
-A Slack custom emoji can range from your own picture to any other image. You can create a personalized custom Slack emoji to crack inside jokes or create your brand icon Slack emoji.
-
-Here's how to create an awesome custom Slack emoji-
-
-1.On your workspace, click on your company name or icon to open the settings drop-down menu. Tap on **Settings&Administration<Customize.**
-
-![Slack Custom Settings](https://images.wondershare.com/filmora/article-images/slack-custom-settings.jpg)
-
-2.A new window will pop open. In the **Emoji** tab, click on **Add Custom Emoji.**
-
-![Add Custom Slack Emoji](https://images.wondershare.com/filmora/article-images/add-custom-slack-emoji.jpg)
-
-3.Here you can upload any image to make your custom Slack emoji. Click on **Upload** **Image** to select a file.
-
-![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
-
-4.Then, give your emoji a name so you can easily find the custom Slack emoji while chatting. Click **Save** to finish.
-
-![Name Slack Emoji](https://images.wondershare.com/filmora/article-images/name-slack-emoji.jpg)
-
-5.Now, go back to the workspace and click on the Smiley icon. Type the custom Slack emoji name to find it and click to send it.
-
-![Send Slack Emoji](https://images.wondershare.com/filmora/article-images/send-slack-emoji.jpg)
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus Tip-Edit Emoji and Add Emoji to Your Video
 
@@ -2398,141 +2394,9 @@ With message and chat bubbles that make communication a lot faster and quick, al
 
 Incorporated with 12 titles, 60 elements, 4 overlays, and 6 transitions, 3D Social Media Icons Pack is sure to fill your shoes. One can have access to unlimited emoji animated in 3D animation and showcase themselves as the cool and classy one of the lot.
 
-### 5. Cute Cartoon Emoji Pack
-
-The Cartoon Emoji Pack is an amalgamation of a wide range of cartoon emojis to express yourself as best as you can. With the right choice of emoji, one can communicate themselves whilst using a total of 25 elements.
-
-### 6. Reactions Stickers Pack
-
-With a speech and thought bubble, Reaction Sticker Pack presents all sorts of reaction emojis and smileys. In addition to this, the template offers 11 titles, 4 overlays, 40 elements, and 2 transitions. Get ready to express your reactions in the funniest way.
-
-## Part 2: 8 Ideas for Making Funny Videos with Animated Emoji
-
-The use of free animated emoji to make videos funny has become a thing now. Furthermore, it lets the user express themselves as a coping mechanism. Win-win situation, right? The article provides 8 fruitful ideas for making videos funny with these animated emojis. Let us have a look at them!
-
-![animated emoticons](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-7.jpg)
-
-### 1. Face Swap with Animated Emoji
-
-The first idea is sure to make the audience burst into laughter. For starters, one can swap their faces with animated emojis like an animated dancing emoji or a crying emoji. You can tell your audience what you are feeling right at the moment as you use those emojis and then show your real face.
-
-### 2. Sharing a Story
-
-One can share a funny story with their audience by using the power of animated emojis. They can explain what happened with a series of steps and incorporate emojis in the background that sync with the emotional reaction of the user as well as the audience.
-
-### 3. Dream Wedding Video
-
-The next idea is related to a wedding video. To make it funnier, the user can first create a video of the dream wedding planned for them. Combine it with the actual wedding video and then use 3D animated emojis to express how everything was messed up and, in the end, and didn't go as planned.
-
-### 4. Thoughts on Books and Netflix Series
-
-The next idea is a workable and effective tool to make your video funnier. The content creator can make a video of a book he read or the Netflix series he watched and provide the audience with his thoughts. They can communicate the flaws of the movie or a book using animated sticker packs and gifs to make it funny and interesting.
-
-### 5. Coworkers and Superiors Video
-
-In this idea, the user can make a video showing his workplace and include all his superiors and coworkers. Afterward, he can edit the video by expressing himself what he actually feels about them and using different emojis to display the reaction of his coworkers in the video.
-
-### 6. Video Techniques
-
-The different video techniques can be used to make people laugh and be attracted to the video. For once, the user can quickly zoom in to the character when he is speaking to create a dramatic pull. In addition to this, one can also keep the camera on even after their dialogue delivery is concluded. This will capture an off-the-record reaction.
-
-### 7. Capturing the Pets
-
-The best idea yet is capturing the pets in the video. The user can record their pets doing insane and crazy things and insert emojis to bring a funny addition to the video. Along with this, one can use the thinking emoji to assume what their pet has been thinking at the moment.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-### 8. A Random Day of your Life
-
-One can add the element of surprise and laughter by making a video on their random day and how they want it to go. Record the video of your whole day and then combine it with a wide range of emojis such as crying emoji, laughing emoji, and kiss emoji.
-
-## Part 3: How to Edit Video with Animated Emoji in Filmora?
-
-The last part of this article covers a brief introduction to a renowned video editing software and provides a step-by-step guideline to edit videos using animated emojis. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) makes sure that the user has the right tools and mechanism to make their editing journey fun and reliable. It offers an effortless and user-friendly interface, a wide range of effects and transitions, and a motion tracking feature.
-
-[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-In addition to this, one can count on this software to change the backgrounds, insert split screens, discover filters and overlays, control speed, and personalize the creation. If you are all set to use this amazing video editing software, follow the procedure keenly to avoid any future inconvenience.
-
-#### Step 1: Initiating the Project
-
-Install Wondershare Filmora in your system and launch it as soon as the process concludes. Tap on the "New Project" tab on the welcome window of the software. Set the aspect ratio for your video. The resolution can be changed by clicking on the "File" option and then "Project Settings."
-
-![create a new project](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-8.jpg)
-
-#### Step 2: Importing the Video
-
-Now, tap on the "Import Media Files Here" menu option, which is located on the left side of the interface of Filmora. Tap on the targeted video to import it. Moving on, drag and drop the media file to the timeline.
-
-![import media video files](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-9.jpg)
-
-#### Step 3: Processing the Video
-
-Import the media files to the video track so that they can be manipulated. Now, process the video as you wish to. You can edit, trim, split, rotate, resize, crop, and combine videos.
-
-![edit your video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-10.jpg)
-
-#### Step 4: Adding the Emoji
-
-On the top left section of the window, navigate to the "Elements" tab. From there, pick out the "Emoji" category and browse a wide range of emojis. Drag and drop the emojis to your video. You can relocate and resize the emoji based on the video dimensions.
-
-![adding the emoji in the video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-11.jpg)
-
-#### Step 5: Exporting the Video
-
-Click on "Export," located on the top right corner of the window. Pick out the output video format and hit "Export" to finalize the editing process.
-
-![exporting the video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-12.jpg)
-
-## Wrapping Up
-
-The article put forward a detailed description of 8 viable ideas that are sure to make the video funnier. Furthermore, Wondershare Filmstock was introduced as an online effects store, and Wondershare Filmora was presented as an amazing video editing software. One can have a look at the effects offered by Filmora in section 1 to make their videos interesting, funny, and watchable.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-Max Wales
-
-Max Wales is a writer and a lover of all things video.
-
-Follow @Max Wales
-
-##### Max Wales
-
- Mar 27, 2024• Proven solutions
-
-The daily grind of hard work, starting from dawn to dusk, has become overwhelming and mind-crushing. An average mind requires entertainment and recreation to work better and function properly. This brings us to the need for funny videos that make use of animated emoji to make our life more bearable.
-
-Emojis like laughing emojis and thumbs-up emojis have a quirky way of increasing the serotonin levels in our body. Therefore, this article shall walk you through the top 6 animated emoji video effects presented by [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/). In addition to this, there will be 8 peculiar ideas to make the video funny.
-
-If you want to know the steps to edit video with animated emojis in Filmora, we have got you! So, without delaying it any longer, let us dig in!
-
-* [**Part 1: Top 6 Animated Emoji Video Effects for Filmora Video Editor**](#part1)
-* [**Part 2: 8 Ideas for Making Funny Videos with Animated Emoji**](#part2)
-* [**Part 2: How to Edit Video with Animated Emoji in Filmora?**](#part3)
-
-## Part 1: Top 6 Animated Emoji Video Effects for Filmora Video Editor
-
-The section shall revolve around the top 6animated emoji video effects that are presented by an online effects store known as Wondershare Filmstock. This website allows the user to have access to an unlimited range of effects, transitions, titles, graphics, elements, images, audio, and visual effects. One can unleash their creative ideas and download effects for every relevant situation.
-
-Along with this, it is constantly growing and unique media with no fear of attribution. If this is not the ideal case scenario, then we don't know what it will be! The following set of effects are the top 6 animated emoji video effects to incorporate in your YouTube introductory videos, TikTok clips, and Instagram stories or reels.
-
-### 1. Animated Emoji Pack
-
-Animated kiss emoji, animated dancing emoji, and laughing emoji, this emoji pack has covered your basics. With 24 elements, Animated Emoji Pack provides an easy way to express yourself and say it out loud using the language of emojis.
-
-### 2. Emoji Stickers Pack
-
-If you are on the verge of a nervous breakdown and require a stickers pack with 32 elements that include a crying emoji, this pack has to be your answer. In addition to this, this effect is 100% compatible with Wondershare Filmora 9.6 and above.
-
-### 3. Message Bubbles Pack
-
-With message and chat bubbles that make communication a lot faster and quick, allow me to introduce you to Message Bubbles Pack. It constitutes animated cute emoji faces and texting graphics to make your social media fun and interesting.
-
-### 4. 3D Social Media Icons Pack
-
-Incorporated with 12 titles, 60 elements, 4 overlays, and 6 transitions, 3D Social Media Icons Pack is sure to fill your shoes. One can have access to unlimited emoji animated in 3D animation and showcase themselves as the cool and classy one of the lot.
 
 ### 5. Cute Cartoon Emoji Pack
 
@@ -2571,10 +2435,6 @@ In this idea, the user can make a video showing his workplace and include all hi
 ### 6. Video Techniques
 
 The different video techniques can be used to make people laugh and be attracted to the video. For once, the user can quickly zoom in to the character when he is speaking to create a dramatic pull. In addition to this, one can also keep the camera on even after their dialogue delivery is concluded. This will capture an off-the-record reaction.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7. Capturing the Pets
 
@@ -2692,6 +2552,10 @@ The first idea is sure to make the audience burst into laughter. For starters, o
 
 One can share a funny story with their audience by using the power of animated emojis. They can explain what happened with a series of steps and incorporate emojis in the background that sync with the emotional reaction of the user as well as the audience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. Dream Wedding Video
 
 The next idea is related to a wedding video. To make it funnier, the user can first create a video of the dream wedding planned for them. Combine it with the actual wedding video and then use 3D animated emojis to express how everything was messed up and, in the end, and didn't go as planned.
@@ -2729,10 +2593,6 @@ In addition to this, one can count on this software to change the backgrounds, i
 Install Wondershare Filmora in your system and launch it as soon as the process concludes. Tap on the "New Project" tab on the welcome window of the software. Set the aspect ratio for your video. The resolution can be changed by clicking on the "File" option and then "Project Settings."
 
 ![create a new project](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 2: Importing the Video
 
@@ -2889,6 +2749,146 @@ On the top left section of the window, navigate to the "Elements" tab. From ther
 Click on "Export," located on the top right corner of the window. Pick out the output video format and hit "Export" to finalize the editing process.
 
 ![exporting the video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-12.jpg)
+
+## Wrapping Up
+
+The article put forward a detailed description of 8 viable ideas that are sure to make the video funnier. Furthermore, Wondershare Filmstock was introduced as an online effects store, and Wondershare Filmora was presented as an amazing video editing software. One can have a look at the effects offered by Filmora in section 1 to make their videos interesting, funny, and watchable.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+The daily grind of hard work, starting from dawn to dusk, has become overwhelming and mind-crushing. An average mind requires entertainment and recreation to work better and function properly. This brings us to the need for funny videos that make use of animated emoji to make our life more bearable.
+
+Emojis like laughing emojis and thumbs-up emojis have a quirky way of increasing the serotonin levels in our body. Therefore, this article shall walk you through the top 6 animated emoji video effects presented by [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/). In addition to this, there will be 8 peculiar ideas to make the video funny.
+
+If you want to know the steps to edit video with animated emojis in Filmora, we have got you! So, without delaying it any longer, let us dig in!
+
+* [**Part 1: Top 6 Animated Emoji Video Effects for Filmora Video Editor**](#part1)
+* [**Part 2: 8 Ideas for Making Funny Videos with Animated Emoji**](#part2)
+* [**Part 2: How to Edit Video with Animated Emoji in Filmora?**](#part3)
+
+## Part 1: Top 6 Animated Emoji Video Effects for Filmora Video Editor
+
+The section shall revolve around the top 6animated emoji video effects that are presented by an online effects store known as Wondershare Filmstock. This website allows the user to have access to an unlimited range of effects, transitions, titles, graphics, elements, images, audio, and visual effects. One can unleash their creative ideas and download effects for every relevant situation.
+
+Along with this, it is constantly growing and unique media with no fear of attribution. If this is not the ideal case scenario, then we don't know what it will be! The following set of effects are the top 6 animated emoji video effects to incorporate in your YouTube introductory videos, TikTok clips, and Instagram stories or reels.
+
+### 1. Animated Emoji Pack
+
+Animated kiss emoji, animated dancing emoji, and laughing emoji, this emoji pack has covered your basics. With 24 elements, Animated Emoji Pack provides an easy way to express yourself and say it out loud using the language of emojis.
+
+### 2. Emoji Stickers Pack
+
+If you are on the verge of a nervous breakdown and require a stickers pack with 32 elements that include a crying emoji, this pack has to be your answer. In addition to this, this effect is 100% compatible with Wondershare Filmora 9.6 and above.
+
+### 3. Message Bubbles Pack
+
+With message and chat bubbles that make communication a lot faster and quick, allow me to introduce you to Message Bubbles Pack. It constitutes animated cute emoji faces and texting graphics to make your social media fun and interesting.
+
+### 4. 3D Social Media Icons Pack
+
+Incorporated with 12 titles, 60 elements, 4 overlays, and 6 transitions, 3D Social Media Icons Pack is sure to fill your shoes. One can have access to unlimited emoji animated in 3D animation and showcase themselves as the cool and classy one of the lot.
+
+### 5. Cute Cartoon Emoji Pack
+
+The Cartoon Emoji Pack is an amalgamation of a wide range of cartoon emojis to express yourself as best as you can. With the right choice of emoji, one can communicate themselves whilst using a total of 25 elements.
+
+### 6. Reactions Stickers Pack
+
+With a speech and thought bubble, Reaction Sticker Pack presents all sorts of reaction emojis and smileys. In addition to this, the template offers 11 titles, 4 overlays, 40 elements, and 2 transitions. Get ready to express your reactions in the funniest way.
+
+## Part 2: 8 Ideas for Making Funny Videos with Animated Emoji
+
+The use of free animated emoji to make videos funny has become a thing now. Furthermore, it lets the user express themselves as a coping mechanism. Win-win situation, right? The article provides 8 fruitful ideas for making videos funny with these animated emojis. Let us have a look at them!
+
+![animated emoticons](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-7.jpg)
+
+### 1. Face Swap with Animated Emoji
+
+The first idea is sure to make the audience burst into laughter. For starters, one can swap their faces with animated emojis like an animated dancing emoji or a crying emoji. You can tell your audience what you are feeling right at the moment as you use those emojis and then show your real face.
+
+### 2. Sharing a Story
+
+One can share a funny story with their audience by using the power of animated emojis. They can explain what happened with a series of steps and incorporate emojis in the background that sync with the emotional reaction of the user as well as the audience.
+
+### 3. Dream Wedding Video
+
+The next idea is related to a wedding video. To make it funnier, the user can first create a video of the dream wedding planned for them. Combine it with the actual wedding video and then use 3D animated emojis to express how everything was messed up and, in the end, and didn't go as planned.
+
+### 4. Thoughts on Books and Netflix Series
+
+The next idea is a workable and effective tool to make your video funnier. The content creator can make a video of a book he read or the Netflix series he watched and provide the audience with his thoughts. They can communicate the flaws of the movie or a book using animated sticker packs and gifs to make it funny and interesting.
+
+### 5. Coworkers and Superiors Video
+
+In this idea, the user can make a video showing his workplace and include all his superiors and coworkers. Afterward, he can edit the video by expressing himself what he actually feels about them and using different emojis to display the reaction of his coworkers in the video.
+
+### 6. Video Techniques
+
+The different video techniques can be used to make people laugh and be attracted to the video. For once, the user can quickly zoom in to the character when he is speaking to create a dramatic pull. In addition to this, one can also keep the camera on even after their dialogue delivery is concluded. This will capture an off-the-record reaction.
+
+### 7. Capturing the Pets
+
+The best idea yet is capturing the pets in the video. The user can record their pets doing insane and crazy things and insert emojis to bring a funny addition to the video. Along with this, one can use the thinking emoji to assume what their pet has been thinking at the moment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+### 8. A Random Day of your Life
+
+One can add the element of surprise and laughter by making a video on their random day and how they want it to go. Record the video of your whole day and then combine it with a wide range of emojis such as crying emoji, laughing emoji, and kiss emoji.
+
+## Part 3: How to Edit Video with Animated Emoji in Filmora?
+
+The last part of this article covers a brief introduction to a renowned video editing software and provides a step-by-step guideline to edit videos using animated emojis. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) makes sure that the user has the right tools and mechanism to make their editing journey fun and reliable. It offers an effortless and user-friendly interface, a wide range of effects and transitions, and a motion tracking feature.
+
+[![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+In addition to this, one can count on this software to change the backgrounds, insert split screens, discover filters and overlays, control speed, and personalize the creation. If you are all set to use this amazing video editing software, follow the procedure keenly to avoid any future inconvenience.
+
+#### Step 1: Initiating the Project
+
+Install Wondershare Filmora in your system and launch it as soon as the process concludes. Tap on the "New Project" tab on the welcome window of the software. Set the aspect ratio for your video. The resolution can be changed by clicking on the "File" option and then "Project Settings."
+
+![create a new project](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-8.jpg)
+
+#### Step 2: Importing the Video
+
+Now, tap on the "Import Media Files Here" menu option, which is located on the left side of the interface of Filmora. Tap on the targeted video to import it. Moving on, drag and drop the media file to the timeline.
+
+![import media video files](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-9.jpg)
+
+#### Step 3: Processing the Video
+
+Import the media files to the video track so that they can be manipulated. Now, process the video as you wish to. You can edit, trim, split, rotate, resize, crop, and combine videos.
+
+![edit your video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-10.jpg)
+
+#### Step 4: Adding the Emoji
+
+On the top left section of the window, navigate to the "Elements" tab. From there, pick out the "Emoji" category and browse a wide range of emojis. Drag and drop the emojis to your video. You can relocate and resize the emoji based on the video dimensions.
+
+![adding the emoji in the video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-11.jpg)
+
+#### Step 5: Exporting the Video
+
+Click on "Export," located on the top right corner of the window. Pick out the output video format and hit "Export" to finalize the editing process.
+
+![exporting the video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Wrapping Up
 
@@ -2996,145 +2996,145 @@ Follow @Shanoon Cox
 
 ![create flv slideshow](https://images.wondershare.com/topic/photo-editing/create-flv-slideshow.jpg)
 
-### FLV Slideshow Tips
-
- For more detailed settings of FLV slideshow, click Settings button and specify various options, like encoder, resolution, frame rate, bit rate and audio settings.
-
- To play FLV slideshow on Nokia mobile phone, you should set encode type to Nokia FLV series (\*.flv). Once created, upload flv to Nokia phone or online and view FLV slideshow using FLV player or web browser plugin.
-
- You could also **upload FLV slideshow to YouTube** to share with more people. FLV videos are perfectly supported by YouTube.
-
-#### More: Convert All Popular Formats to FLV
-
-[Wondershare DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) supports all popular video formats. Therefore, you can import videos that need to change format, and save it in another format. It's not only a DVD slideshow maker, but only powerful FLV converter. For detailed supported input formats, check video format references.
-
-#### More: Convert FLV to MP4, AVI, MOV, MPEG or Burn FLV to DVD
-
- You could also import FLV to DVD Slideshow Builder Deluxe and save it as MP4, AVI, MOV and 3GP, or even burn FLV video to DVD with beautiful DVD menus. For detailed supported output formats, check video format references. Here, I recommended to **save FLV to MP4** for its comprehensive support on various devices, such as iPhone, iPod, Apple TV, Gphone, Nokia phone, LG phone, PSP, Palm, Zune, etc.
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-#### About FLV Video (Flash Video)
-
- Flash Video (\*.FLV) is a container file format used to deliver video over the internet using Adobe Flash Player versions 6-10 (developed by Macromedia). Flash Video content may also be embedded within SWF files. FLV videos are widely used by international companies, including YouTube, Google Video, Yahoo! Video, metacafe, Reuters.com, and many other news providers. Flash Video could be watched on most operating systems, via the Adobe Flash Player and web browser plugin, or desired third-party FLV Players.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- FLV slideshow is a suitable way to share photos and videos online due to its small size and reasonable quality. [Wondershare DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) brings more convenience to instantly [make a slideshow with music](https://tools.techidaily.com/wondershare/filmora/download/), photos and lets you create FLV videos, as well as other video formats. You can create a **FLV slideshow** in easy steps as below.
-
-## Easy Guide to Make FLV Slideshow with Music
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-#### 1 Import Photos & Video and Music for FLV Slideshow
-
- Install and launch the slideshow maker, go to **Organize** tab and import your photos, videos and music files. Transitions between adjacent slides will be used. But you can change them by following step 2.
-
-#### 2 Apply Transition and Motion Effect
-
- This [slideshow maker](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) includes more than 100 transition effects for slides switch. Before applying, double-click transition thumbnail to preview in player on the right. You could also randomize transitions or apply one transition to all slides in FLV slideshow.
-
-![transition effects](https://images.wondershare.com/topic/photo-editing/transition-effects.jpg)
-
-#### 3 Save Photo Slideshow to FLV Video
-
- Select Flash Video format as the output and make advanced settings by clicking Settings button. Finally, click Burn and wail a while, you get your FLV video to sharing on YouTube, Facebook, MySpace, Mobile Phone. Alternatively, play FLV video on computer via stand-alone FLV player.
-
-![create flv slideshow](https://images.wondershare.com/topic/photo-editing/create-flv-slideshow.jpg)
-
-### FLV Slideshow Tips
-
- For more detailed settings of FLV slideshow, click Settings button and specify various options, like encoder, resolution, frame rate, bit rate and audio settings.
-
- To play FLV slideshow on Nokia mobile phone, you should set encode type to Nokia FLV series (\*.flv). Once created, upload flv to Nokia phone or online and view FLV slideshow using FLV player or web browser plugin.
-
- You could also **upload FLV slideshow to YouTube** to share with more people. FLV videos are perfectly supported by YouTube.
-
-#### More: Convert All Popular Formats to FLV
-
-[Wondershare DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) supports all popular video formats. Therefore, you can import videos that need to change format, and save it in another format. It's not only a DVD slideshow maker, but only powerful FLV converter. For detailed supported input formats, check video format references.
-
-#### More: Convert FLV to MP4, AVI, MOV, MPEG or Burn FLV to DVD
-
- You could also import FLV to DVD Slideshow Builder Deluxe and save it as MP4, AVI, MOV and 3GP, or even burn FLV video to DVD with beautiful DVD menus. For detailed supported output formats, check video format references. Here, I recommended to **save FLV to MP4** for its comprehensive support on various devices, such as iPhone, iPod, Apple TV, Gphone, Nokia phone, LG phone, PSP, Palm, Zune, etc.
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-#### About FLV Video (Flash Video)
-
- Flash Video (\*.FLV) is a container file format used to deliver video over the internet using Adobe Flash Player versions 6-10 (developed by Macromedia). Flash Video content may also be embedded within SWF files. FLV videos are widely used by international companies, including YouTube, Google Video, Yahoo! Video, metacafe, Reuters.com, and many other news providers. Flash Video could be watched on most operating systems, via the Adobe Flash Player and web browser plugin, or desired third-party FLV Players.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
- FLV slideshow is a suitable way to share photos and videos online due to its small size and reasonable quality. [Wondershare DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) brings more convenience to instantly [make a slideshow with music](https://tools.techidaily.com/wondershare/filmora/download/), photos and lets you create FLV videos, as well as other video formats. You can create a **FLV slideshow** in easy steps as below.
-
-## Easy Guide to Make FLV Slideshow with Music
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-#### 1 Import Photos & Video and Music for FLV Slideshow
-
- Install and launch the slideshow maker, go to **Organize** tab and import your photos, videos and music files. Transitions between adjacent slides will be used. But you can change them by following step 2.
-
-#### 2 Apply Transition and Motion Effect
-
- This [slideshow maker](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) includes more than 100 transition effects for slides switch. Before applying, double-click transition thumbnail to preview in player on the right. You could also randomize transitions or apply one transition to all slides in FLV slideshow.
-
-![transition effects](https://images.wondershare.com/topic/photo-editing/transition-effects.jpg)
-
-#### 3 Save Photo Slideshow to FLV Video
-
- Select Flash Video format as the output and make advanced settings by clicking Settings button. Finally, click Burn and wail a while, you get your FLV video to sharing on YouTube, Facebook, MySpace, Mobile Phone. Alternatively, play FLV video on computer via stand-alone FLV player.
-
-![create flv slideshow](https://images.wondershare.com/topic/photo-editing/create-flv-slideshow.jpg)
-
-### FLV Slideshow Tips
-
- For more detailed settings of FLV slideshow, click Settings button and specify various options, like encoder, resolution, frame rate, bit rate and audio settings.
-
- To play FLV slideshow on Nokia mobile phone, you should set encode type to Nokia FLV series (\*.flv). Once created, upload flv to Nokia phone or online and view FLV slideshow using FLV player or web browser plugin.
-
- You could also **upload FLV slideshow to YouTube** to share with more people. FLV videos are perfectly supported by YouTube.
-
-#### More: Convert All Popular Formats to FLV
-
-[Wondershare DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) supports all popular video formats. Therefore, you can import videos that need to change format, and save it in another format. It's not only a DVD slideshow maker, but only powerful FLV converter. For detailed supported input formats, check video format references.
-
-#### More: Convert FLV to MP4, AVI, MOV, MPEG or Burn FLV to DVD
-
- You could also import FLV to DVD Slideshow Builder Deluxe and save it as MP4, AVI, MOV and 3GP, or even burn FLV video to DVD with beautiful DVD menus. For detailed supported output formats, check video format references. Here, I recommended to **save FLV to MP4** for its comprehensive support on various devices, such as iPhone, iPod, Apple TV, Gphone, Nokia phone, LG phone, PSP, Palm, Zune, etc.
-
-[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
-
-#### About FLV Video (Flash Video)
-
- Flash Video (\*.FLV) is a container file format used to deliver video over the internet using Adobe Flash Player versions 6-10 (developed by Macromedia). Flash Video content may also be embedded within SWF files. FLV videos are widely used by international companies, including YouTube, Google Video, Yahoo! Video, metacafe, Reuters.com, and many other news providers. Flash Video could be watched on most operating systems, via the Adobe Flash Player and web browser plugin, or desired third-party FLV Players.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### FLV Slideshow Tips
+
+ For more detailed settings of FLV slideshow, click Settings button and specify various options, like encoder, resolution, frame rate, bit rate and audio settings.
+
+ To play FLV slideshow on Nokia mobile phone, you should set encode type to Nokia FLV series (\*.flv). Once created, upload flv to Nokia phone or online and view FLV slideshow using FLV player or web browser plugin.
+
+ You could also **upload FLV slideshow to YouTube** to share with more people. FLV videos are perfectly supported by YouTube.
+
+#### More: Convert All Popular Formats to FLV
+
+[Wondershare DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) supports all popular video formats. Therefore, you can import videos that need to change format, and save it in another format. It's not only a DVD slideshow maker, but only powerful FLV converter. For detailed supported input formats, check video format references.
+
+#### More: Convert FLV to MP4, AVI, MOV, MPEG or Burn FLV to DVD
+
+ You could also import FLV to DVD Slideshow Builder Deluxe and save it as MP4, AVI, MOV and 3GP, or even burn FLV video to DVD with beautiful DVD menus. For detailed supported output formats, check video format references. Here, I recommended to **save FLV to MP4** for its comprehensive support on various devices, such as iPhone, iPod, Apple TV, Gphone, Nokia phone, LG phone, PSP, Palm, Zune, etc.
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+#### About FLV Video (Flash Video)
+
+ Flash Video (\*.FLV) is a container file format used to deliver video over the internet using Adobe Flash Player versions 6-10 (developed by Macromedia). Flash Video content may also be embedded within SWF files. FLV videos are widely used by international companies, including YouTube, Google Video, Yahoo! Video, metacafe, Reuters.com, and many other news providers. Flash Video could be watched on most operating systems, via the Adobe Flash Player and web browser plugin, or desired third-party FLV Players.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ FLV slideshow is a suitable way to share photos and videos online due to its small size and reasonable quality. [Wondershare DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) brings more convenience to instantly [make a slideshow with music](https://tools.techidaily.com/wondershare/filmora/download/), photos and lets you create FLV videos, as well as other video formats. You can create a **FLV slideshow** in easy steps as below.
+
+## Easy Guide to Make FLV Slideshow with Music
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+#### 1 Import Photos & Video and Music for FLV Slideshow
+
+ Install and launch the slideshow maker, go to **Organize** tab and import your photos, videos and music files. Transitions between adjacent slides will be used. But you can change them by following step 2.
+
+#### 2 Apply Transition and Motion Effect
+
+ This [slideshow maker](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) includes more than 100 transition effects for slides switch. Before applying, double-click transition thumbnail to preview in player on the right. You could also randomize transitions or apply one transition to all slides in FLV slideshow.
+
+![transition effects](https://images.wondershare.com/topic/photo-editing/transition-effects.jpg)
+
+#### 3 Save Photo Slideshow to FLV Video
+
+ Select Flash Video format as the output and make advanced settings by clicking Settings button. Finally, click Burn and wail a while, you get your FLV video to sharing on YouTube, Facebook, MySpace, Mobile Phone. Alternatively, play FLV video on computer via stand-alone FLV player.
+
+![create flv slideshow](https://images.wondershare.com/topic/photo-editing/create-flv-slideshow.jpg)
+
+### FLV Slideshow Tips
+
+ For more detailed settings of FLV slideshow, click Settings button and specify various options, like encoder, resolution, frame rate, bit rate and audio settings.
+
+ To play FLV slideshow on Nokia mobile phone, you should set encode type to Nokia FLV series (\*.flv). Once created, upload flv to Nokia phone or online and view FLV slideshow using FLV player or web browser plugin.
+
+ You could also **upload FLV slideshow to YouTube** to share with more people. FLV videos are perfectly supported by YouTube.
+
+#### More: Convert All Popular Formats to FLV
+
+[Wondershare DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) supports all popular video formats. Therefore, you can import videos that need to change format, and save it in another format. It's not only a DVD slideshow maker, but only powerful FLV converter. For detailed supported input formats, check video format references.
+
+#### More: Convert FLV to MP4, AVI, MOV, MPEG or Burn FLV to DVD
+
+ You could also import FLV to DVD Slideshow Builder Deluxe and save it as MP4, AVI, MOV and 3GP, or even burn FLV video to DVD with beautiful DVD menus. For detailed supported output formats, check video format references. Here, I recommended to **save FLV to MP4** for its comprehensive support on various devices, such as iPhone, iPod, Apple TV, Gphone, Nokia phone, LG phone, PSP, Palm, Zune, etc.
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+#### About FLV Video (Flash Video)
+
+ Flash Video (\*.FLV) is a container file format used to deliver video over the internet using Adobe Flash Player versions 6-10 (developed by Macromedia). Flash Video content may also be embedded within SWF files. FLV videos are widely used by international companies, including YouTube, Google Video, Yahoo! Video, metacafe, Reuters.com, and many other news providers. Flash Video could be watched on most operating systems, via the Adobe Flash Player and web browser plugin, or desired third-party FLV Players.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+ FLV slideshow is a suitable way to share photos and videos online due to its small size and reasonable quality. [Wondershare DVD Slideshow Builder](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) brings more convenience to instantly [make a slideshow with music](https://tools.techidaily.com/wondershare/filmora/download/), photos and lets you create FLV videos, as well as other video formats. You can create a **FLV slideshow** in easy steps as below.
+
+## Easy Guide to Make FLV Slideshow with Music
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+#### 1 Import Photos & Video and Music for FLV Slideshow
+
+ Install and launch the slideshow maker, go to **Organize** tab and import your photos, videos and music files. Transitions between adjacent slides will be used. But you can change them by following step 2.
+
+#### 2 Apply Transition and Motion Effect
+
+ This [slideshow maker](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) includes more than 100 transition effects for slides switch. Before applying, double-click transition thumbnail to preview in player on the right. You could also randomize transitions or apply one transition to all slides in FLV slideshow.
+
+![transition effects](https://images.wondershare.com/topic/photo-editing/transition-effects.jpg)
+
+#### 3 Save Photo Slideshow to FLV Video
+
+ Select Flash Video format as the output and make advanced settings by clicking Settings button. Finally, click Burn and wail a while, you get your FLV video to sharing on YouTube, Facebook, MySpace, Mobile Phone. Alternatively, play FLV video on computer via stand-alone FLV player.
+
+![create flv slideshow](https://images.wondershare.com/topic/photo-editing/create-flv-slideshow.jpg)
+
+### FLV Slideshow Tips
+
+ For more detailed settings of FLV slideshow, click Settings button and specify various options, like encoder, resolution, frame rate, bit rate and audio settings.
+
+ To play FLV slideshow on Nokia mobile phone, you should set encode type to Nokia FLV series (\*.flv). Once created, upload flv to Nokia phone or online and view FLV slideshow using FLV player or web browser plugin.
+
+ You could also **upload FLV slideshow to YouTube** to share with more people. FLV videos are perfectly supported by YouTube.
+
+#### More: Convert All Popular Formats to FLV
+
+[Wondershare DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/) supports all popular video formats. Therefore, you can import videos that need to change format, and save it in another format. It's not only a DVD slideshow maker, but only powerful FLV converter. For detailed supported input formats, check video format references.
+
+#### More: Convert FLV to MP4, AVI, MOV, MPEG or Burn FLV to DVD
+
+ You could also import FLV to DVD Slideshow Builder Deluxe and save it as MP4, AVI, MOV and 3GP, or even burn FLV video to DVD with beautiful DVD menus. For detailed supported output formats, check video format references. Here, I recommended to **save FLV to MP4** for its comprehensive support on various devices, such as iPhone, iPod, Apple TV, Gphone, Nokia phone, LG phone, PSP, Palm, Zune, etc.
+
+[![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+#### About FLV Video (Flash Video)
+
+ Flash Video (\*.FLV) is a container file format used to deliver video over the internet using Adobe Flash Player versions 6-10 (developed by Macromedia). Flash Video content may also be embedded within SWF files. FLV videos are widely used by international companies, including YouTube, Google Video, Yahoo! Video, metacafe, Reuters.com, and many other news providers. Flash Video could be watched on most operating systems, via the Adobe Flash Player and web browser plugin, or desired third-party FLV Players.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -3158,18 +3158,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/updated-configure-youtube-pip-on-iphone-quickly/"><u>[Updated] Configure YouTube PIP on iPhone Quickly</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-top-tier-visual-data-keepers/"><u>[Updated] Top Tier Visual Data Keepers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/7-free-apps-to-get-emojis-on-android-and-iphone/"><u>7 Free Apps to Get Emojis on Android and iPhone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/expert-analysis-of-the-lenovo-thinkbook-13-gen-4-the-essential-choice-for-modern-workspaces/"><u>Expert Analysis of the Lenovo ThinkBook 13 Gen 4: The Essential Choice for Modern Workspaces</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-iphone-13-mini-drfone-by-drfone-ios/"><u>How To Change Your Apple ID Password On your iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-deskjet-inkjet-all-in-one-printer-driver-update-for-seamless-printing-on-windows-10/"><u>HP Deskjet Inkjet All-in-One Printer Driver Update for Seamless Printing on Windows 10</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-14-plus-with-itunes-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone 14 Plus with iTunes</u></a></li>
-<li><a href="https://windows11.techidaily.com/mastering-memory-management-in-new-os/"><u>Mastering Memory Management in New OS</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/navigating-data-protection-in-ai-personalization-landscape/"><u>Navigating Data Protection in AI-Personalization Landscape</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-meme-step-by-step/"><u>New How to Make a Meme (Step by Step)</u></a></li>
-<li><a href="https://win-able.techidaily.com/solving-the-star-wars-battlefront-2-bug-resolve-error-code-aturated-with-technical-details-and-solutions-for-gamers-facing-this-issue/"><u>Solving the Star Wars Battlefront 2 Bug – Resolve Error Code Aturated with Technical Details and Solutions for Gamers Facing This Issue</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-the-essential-guide-to-emoji-memoji-animoji-and-bitmoji/"><u>Updated 2024 Approved The Essential Guide to Emoji, Memoji, Animoji, and Bitmoji</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-memes-on-iphone-and-android/"><u>Updated How to Make Memes on iPhone and Android</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-channels-on-the-fly-tubebuddy-essentials/"><u>[Updated] 2024 Approved Mastering Channels on the Fly - TubeBuddy Essentials</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-phantom-replay-masterclass/"><u>[Updated] 2024 Approved Phantom Replay Masterclass</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-closer-look-techniques-for-minecraft-exploration-for-2024/"><u>[Updated] Closer Look Techniques for Minecraft Exploration for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-innovative-ways-to-archive-voice-transcripts-from-whatsapp/"><u>[Updated] In 2024, Innovative Ways to Archive Voice Transcripts From WhatsApp</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-from-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free/"><u>2024 Approved From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free.</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/advanced-system-analysis-with-toms-hardware-experts/"><u>Advanced System Analysis with Tom's Hardware Experts</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-y02t-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-add-emojis-to-videos-the-ultimate-guide-for-2024/"><u>How to Add Emojis to Videos The Ultimate Guide for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-slideshow-with-music/"><u>In 2024, How to Make a Slideshow with Music</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop My Spouse from Spying on My Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-add-emojis-to-videos-on-youtubefacebooksnapchat-step-by-step-guide/"><u>New In 2024, Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-expert-guide-to-swift-fb-profiling-for-2024/"><u>The Expert Guide to Swift FB Profiling for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-add-bitmoji-to-keyboard/"><u>Updated 2024 Approved How to Add Bitmoji to Keyboard?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-your-own-emoji-in-2-ways-step-by-step-guide/"><u>Updated 2024 Approved How to Make Your Own Emoji in 2 Ways Step-By Step Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-add-emojisstickers-to-videos-on-pcmacmobileonline-for-2024/"><u>Updated How Add Emojis/Stickers to Videos on PC/Mac/Mobile/Online for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-record-your-memorable-honeymoon-video/"><u>Updated How to Record Your Memorable Honeymoon Video</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-memoji-talk-make-memoji-video-on-your-own/"><u>Updated In 2024, How to Make Memoji Talk-Make Memoji Video On Your Own</u></a></li>
 </ul></div>
 

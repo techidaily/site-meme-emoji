@@ -1,7 +1,7 @@
 ---
 title: New In 2024, 10 Best Work Memes to Have Fun in Work Days
-date: 2025-01-09T04:26:39.762Z
-updated: 2025-01-14T21:44:24.003Z
+date: 2025-01-18T16:52:52.017Z
+updated: 2025-01-21T16:38:57.056Z
 tags: 
   - ai
   - animation videos
@@ -67,10 +67,6 @@ thumbnail: https://thmb.techidaily.com/ef69c6cfc05813b51fd415fbeca882846dc473b99
 
 ![Dress for the job you want](https://images.wondershare.com/filmora/article-images/dress-for-the-job-you-want-meme.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. When you just got paid
 
  Pay day is happiness and shock! After getting your salary has been credited text, next you receive the upcoming bills, rents etc. so, it’s not you who actually got paid, but your bills!
@@ -88,10 +84,6 @@ thumbnail: https://thmb.techidaily.com/ef69c6cfc05813b51fd415fbeca882846dc473b99
  There are moments at work, you are really tempted to blurt out something, but you keep quiet, to avoid the repercussions. The dog’s expression in the picture is worth a laugh.
 
 ![But you have to stop yourself](https://images.wondershare.com/filmora/article-images/stop-yourself-meme.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10\. I am sending a follow up email
 
@@ -213,6 +205,10 @@ Follow @Ollie Mattison
 
 ![When you think you been working for 4 hours](https://images.wondershare.com/filmora/article-images/working-4-hours-meme.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Me five minutes after getting to work
 
  This work meme literally made us laugh. Every minute seems longer at work and it’s funny that the meme says a cupcake is badly needed to lift the work mood.
@@ -230,6 +226,10 @@ Follow @Ollie Mattison
  This meme describes, you giving a damn to whatever problem is happening at work. Because even after repeated reminders to fix the issue, nobody paid attention. So, now is your turn to just chillax!
 
 ![When you have been telling management](https://images.wondershare.com/filmora/article-images/telling-management-meme.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. It’s Wednesday
 
@@ -422,10 +422,6 @@ Incorporated with 12 titles, 60 elements, 4 overlays, and 6 transitions, 3D Soci
 
 The Cartoon Emoji Pack is an amalgamation of a wide range of cartoon emojis to express yourself as best as you can. With the right choice of emoji, one can communicate themselves whilst using a total of 25 elements.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6. Reactions Stickers Pack
 
 With a speech and thought bubble, Reaction Sticker Pack presents all sorts of reaction emojis and smileys. In addition to this, the template offers 11 titles, 4 overlays, 40 elements, and 2 transitions. Get ready to express your reactions in the funniest way.
@@ -436,13 +432,13 @@ The use of free animated emoji to make videos funny has become a thing now. Furt
 
 ![animated emoticons](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. Face Swap with Animated Emoji
 
 The first idea is sure to make the audience burst into laughter. For starters, one can swap their faces with animated emojis like an animated dancing emoji or a crying emoji. You can tell your audience what you are feeling right at the moment as you use those emojis and then show your real face.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. Sharing a Story
 
@@ -893,10 +889,6 @@ Now, tap on the "Import Media Files Here" menu option, which is located on the l
 Import the media files to the video track so that they can be manipulated. Now, process the video as you wish to. You can edit, trim, split, rotate, resize, crop, and combine videos.
 
 ![edit your video](https://images.wondershare.com/filmora/article-images/2021/popular-animated-emoji-video-effects-10.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 4: Adding the Emoji
 
@@ -1371,6 +1363,10 @@ Let's surprise our friends with our unique creation!
 5\. Click on the emoji image in the timeline to change the values in Image, Color, and Motion. You can rotate the emoji or alter its color. You can even choose the motion of how the emoji comes in the video. This animated introduction of the emoji will give your video a dramatic look.
 
 Finally, click Export, choose the destination folder, and the output format.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -1999,6 +1995,10 @@ There is a website called MangaKakalot that offers a clearer and more sophistica
 
 ![manga-kakalot-poster](https://images.wondershare.com/filmora/article-images/manga-kakalot-poster.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Features:**
 
 * Manga's homepage has links to its latest version.
@@ -2163,6 +2163,10 @@ There is a website called MangaKakalot that offers a clearer and more sophistica
 
 ![manga-kakalot-poster](https://images.wondershare.com/filmora/article-images/manga-kakalot-poster.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Features:**
 
 * Manga's homepage has links to its latest version.
@@ -2177,6 +2181,10 @@ There is a website called MangaKakalot that offers a clearer and more sophistica
 Because of the easy navigation interface and the extensive collection of Manga collections on this site, we have included it in our list of best manga sites. You can browse Top 100 Action Adventure Manga, Top 50 Sports Manga, Top 50 Romantic Manga, and more on this website.
 
 ![otakusmash-poster](https://images.wondershare.com/filmora/article-images/otakusmash-poster.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Features:**
 
@@ -2232,10 +2240,6 @@ So, in this article, we shared a detailed list of the best free manga sites wher
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -2249,7 +2253,7 @@ Follow @Ollie Mattison
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 a
@@ -2334,10 +2338,6 @@ A bit more fancy and appealing than Manga Reader, BATO features a different inte
 There is a website called MangaKakalot that offers a clearer and more sophisticated user experience. To access the most entertaining manga comic collection online, visitors must first create a free account on the website. With high-quality images and an updated collection that is constantly updated, you'll always find the most recent issues. Visitors will find it very easy to search the series on this website because it is well laid out.
 
 ![manga-kakalot-poster](https://images.wondershare.com/filmora/article-images/manga-kakalot-poster.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Features:**
 
@@ -2584,6 +2584,10 @@ Childhood is a book with different chapters filled with joy, fun, school, chocol
 
 Get ready for something mesmerizing today!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: 10 Popular Cartoon Characters of All Time
 
 Everyone has a role model in their life and this is is a no brainer as we always have a superhero from the cartoon world whom we follow and wanna be like them. Let’s talk about some famous cartoon characters that everyone in this world is aware of.
@@ -2658,10 +2662,6 @@ Follow @Shanoon Cox
 Childhood is a book with different chapters filled with joy, fun, school, chocolates, and our favorite cartoon characters. The most fantasizing thing for a child is the **popular cartoon characters** which they see as a tutor who teaches them to become honest, humble and most importantly they show us how to overcome problems in our life. All the **famous cartoon characters** are still famous among millennials who used to watch them in their childhood. In this article, we are going to dive back into childhood again and you will be amazed to see those characters again in front of your eyes.
 
 Get ready for something mesmerizing today!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: 10 Popular Cartoon Characters of All Time
 
@@ -2756,159 +2756,159 @@ Follow @Shanoon Cox
 
 ![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-2.png)
 
+Copy the image
+
+ The facial expression of the girl in the photo makes it perfect meme material because she looks as if she’s just about to risk it all and do what she wants. Both Boyfriend and Girlfriend versions of this meme contain text over each of the characters in the picture. If you have a similar dilemma you can make your own version effortlessly. Here’s how.
+
+## How to Make a Distracted Boyfriend Meme?
+
+ Online meme generators often watermark the content you create or require you to sign in before you can make a meme, which is why we recommend using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/). The platform lets you generate memes for free, and it offers all the tools you’ll need to quickly make a watermark-free Distracted Boyfriend meme.
+
+#### 1\. Uploading the Image
+
+ You can click the “Copy the image” link below and the image link will be copied automatically.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-meme.png)
+
+Copy the image
+
+ Enter the URL into the box. Click on the Upload button and wait for the new page to load, so you can start making adjustments to the picture.
+
+ If you saved the photo to your computer, you can click on the +icon once you arrive at the meme maker’s homepage and navigate to its destination on your hard drive.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-3.jpg)
+
+#### 2\. Adding Text to Memes
+
+ The textual part of the Distracted Boyfriend meme is always incorporated into the photo, so make sure that the Text Inside option is selected and proceed to insert the text into the text boxes. Click on the Add Text Box button to add a third text box to the meme, and drag the text boxes displayed on the screen to their best positions.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-4.JPG)
+
+ The Text Options menu lets you pick a font or change the color and the size of the text. It also offers the standard text alignment features, so you can easily rearrange the text.
+
+#### 3\. Downloading the Meme
+
+ Click on the Create button once you finish customizing the text and wait for the new page to load.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-5.jpg)
+
+#### Conclusion
+
+ Click on the download button to save the meme you created or use some of the file sharing options to post the meme on social media platforms if you are accessing the Online Meme Maker from a mobile device.
+
+ The Distracted Boyfriend is one of the most popular memes in the last couple of years that has made us all laugh because we all understand how it feels to be tempted by the things we don’t have. Do you like generating the Distracted Boyfriend or Distracted Girlfriend memes? Leave a comment below and share your experiences with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ The Distracted Boyfriend meme is the embodiment of the awkward situation we find ourselves in when we want something other than what we already have. The original image was taken by Antonio Guillem and posted on iStock with a caption "Disloyal man with his girlfriend looking at another girl". By early 2017, a few years after it was posted on iStock, the picture surfaced on social media, and it became a viral meme in a few short months. One of the first Distracted Boyfriend memes that featured a joke about staring at the sun during a solar eclipse was posted on Reddit and within 24 hours it gained 31.200 points.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-1.jpg)
+
+ The meme has since become synonymous with being unfaithful to girlfriends, ideologies, scientific evidence, photo cameras or virtually anything else. Despite its popularity, it is still difficult to make a good Distracted Boyfriend meme, so let's have a look at some of the best versions of the meme that emerged on social networks.
+
+ The Distracted Girlfriend meme became popular soon after the Distracted Boyfriend meme went viral. The photo belongs to the same series of images posted to iStock by Antonio Guillem.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-2.png)
+
+Copy the image
+
+ The facial expression of the girl in the photo makes it perfect meme material because she looks as if she’s just about to risk it all and do what she wants. Both Boyfriend and Girlfriend versions of this meme contain text over each of the characters in the picture. If you have a similar dilemma you can make your own version effortlessly. Here’s how.
+
+## How to Make a Distracted Boyfriend Meme?
+
+ Online meme generators often watermark the content you create or require you to sign in before you can make a meme, which is why we recommend using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/). The platform lets you generate memes for free, and it offers all the tools you’ll need to quickly make a watermark-free Distracted Boyfriend meme.
+
+#### 1\. Uploading the Image
+
+ You can click the “Copy the image” link below and the image link will be copied automatically.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-meme.png)
+
+Copy the image
+
+ Enter the URL into the box. Click on the Upload button and wait for the new page to load, so you can start making adjustments to the picture.
+
+ If you saved the photo to your computer, you can click on the +icon once you arrive at the meme maker’s homepage and navigate to its destination on your hard drive.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-3.jpg)
+
+#### 2\. Adding Text to Memes
+
+ The textual part of the Distracted Boyfriend meme is always incorporated into the photo, so make sure that the Text Inside option is selected and proceed to insert the text into the text boxes. Click on the Add Text Box button to add a third text box to the meme, and drag the text boxes displayed on the screen to their best positions.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-4.JPG)
+
+ The Text Options menu lets you pick a font or change the color and the size of the text. It also offers the standard text alignment features, so you can easily rearrange the text.
+
+#### 3\. Downloading the Meme
+
+ Click on the Create button once you finish customizing the text and wait for the new page to load.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-5.jpg)
+
+#### Conclusion
+
+ Click on the download button to save the meme you created or use some of the file sharing options to post the meme on social media platforms if you are accessing the Online Meme Maker from a mobile device.
+
+ The Distracted Boyfriend is one of the most popular memes in the last couple of years that has made us all laugh because we all understand how it feels to be tempted by the things we don’t have. Do you like generating the Distracted Boyfriend or Distracted Girlfriend memes? Leave a comment below and share your experiences with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ The Distracted Boyfriend meme is the embodiment of the awkward situation we find ourselves in when we want something other than what we already have. The original image was taken by Antonio Guillem and posted on iStock with a caption "Disloyal man with his girlfriend looking at another girl". By early 2017, a few years after it was posted on iStock, the picture surfaced on social media, and it became a viral meme in a few short months. One of the first Distracted Boyfriend memes that featured a joke about staring at the sun during a solar eclipse was posted on Reddit and within 24 hours it gained 31.200 points.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-1.jpg)
+
+ The meme has since become synonymous with being unfaithful to girlfriends, ideologies, scientific evidence, photo cameras or virtually anything else. Despite its popularity, it is still difficult to make a good Distracted Boyfriend meme, so let's have a look at some of the best versions of the meme that emerged on social networks.
+
+ The Distracted Girlfriend meme became popular soon after the Distracted Boyfriend meme went viral. The photo belongs to the same series of images posted to iStock by Antonio Guillem.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-2.png)
+
+Copy the image
+
+ The facial expression of the girl in the photo makes it perfect meme material because she looks as if she’s just about to risk it all and do what she wants. Both Boyfriend and Girlfriend versions of this meme contain text over each of the characters in the picture. If you have a similar dilemma you can make your own version effortlessly. Here’s how.
+
+## How to Make a Distracted Boyfriend Meme?
+
+ Online meme generators often watermark the content you create or require you to sign in before you can make a meme, which is why we recommend using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/). The platform lets you generate memes for free, and it offers all the tools you’ll need to quickly make a watermark-free Distracted Boyfriend meme.
+
+#### 1\. Uploading the Image
+
+ You can click the “Copy the image” link below and the image link will be copied automatically.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-meme.png)
+
+Copy the image
+
+ Enter the URL into the box. Click on the Upload button and wait for the new page to load, so you can start making adjustments to the picture.
+
+ If you saved the photo to your computer, you can click on the +icon once you arrive at the meme maker’s homepage and navigate to its destination on your hard drive.
+
+![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-3.jpg)
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-Copy the image
-
- The facial expression of the girl in the photo makes it perfect meme material because she looks as if she’s just about to risk it all and do what she wants. Both Boyfriend and Girlfriend versions of this meme contain text over each of the characters in the picture. If you have a similar dilemma you can make your own version effortlessly. Here’s how.
-
-## How to Make a Distracted Boyfriend Meme?
-
- Online meme generators often watermark the content you create or require you to sign in before you can make a meme, which is why we recommend using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/). The platform lets you generate memes for free, and it offers all the tools you’ll need to quickly make a watermark-free Distracted Boyfriend meme.
-
-#### 1\. Uploading the Image
-
- You can click the “Copy the image” link below and the image link will be copied automatically.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-meme.png)
-
-Copy the image
-
- Enter the URL into the box. Click on the Upload button and wait for the new page to load, so you can start making adjustments to the picture.
-
- If you saved the photo to your computer, you can click on the +icon once you arrive at the meme maker’s homepage and navigate to its destination on your hard drive.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-3.jpg)
-
-#### 2\. Adding Text to Memes
-
- The textual part of the Distracted Boyfriend meme is always incorporated into the photo, so make sure that the Text Inside option is selected and proceed to insert the text into the text boxes. Click on the Add Text Box button to add a third text box to the meme, and drag the text boxes displayed on the screen to their best positions.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-4.JPG)
-
- The Text Options menu lets you pick a font or change the color and the size of the text. It also offers the standard text alignment features, so you can easily rearrange the text.
-
-#### 3\. Downloading the Meme
-
- Click on the Create button once you finish customizing the text and wait for the new page to load.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-5.jpg)
-
-#### Conclusion
-
- Click on the download button to save the meme you created or use some of the file sharing options to post the meme on social media platforms if you are accessing the Online Meme Maker from a mobile device.
-
- The Distracted Boyfriend is one of the most popular memes in the last couple of years that has made us all laugh because we all understand how it feels to be tempted by the things we don’t have. Do you like generating the Distracted Boyfriend or Distracted Girlfriend memes? Leave a comment below and share your experiences with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- The Distracted Boyfriend meme is the embodiment of the awkward situation we find ourselves in when we want something other than what we already have. The original image was taken by Antonio Guillem and posted on iStock with a caption "Disloyal man with his girlfriend looking at another girl". By early 2017, a few years after it was posted on iStock, the picture surfaced on social media, and it became a viral meme in a few short months. One of the first Distracted Boyfriend memes that featured a joke about staring at the sun during a solar eclipse was posted on Reddit and within 24 hours it gained 31.200 points.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-1.jpg)
-
- The meme has since become synonymous with being unfaithful to girlfriends, ideologies, scientific evidence, photo cameras or virtually anything else. Despite its popularity, it is still difficult to make a good Distracted Boyfriend meme, so let's have a look at some of the best versions of the meme that emerged on social networks.
-
- The Distracted Girlfriend meme became popular soon after the Distracted Boyfriend meme went viral. The photo belongs to the same series of images posted to iStock by Antonio Guillem.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-2.png)
-
-Copy the image
-
- The facial expression of the girl in the photo makes it perfect meme material because she looks as if she’s just about to risk it all and do what she wants. Both Boyfriend and Girlfriend versions of this meme contain text over each of the characters in the picture. If you have a similar dilemma you can make your own version effortlessly. Here’s how.
-
-## How to Make a Distracted Boyfriend Meme?
-
- Online meme generators often watermark the content you create or require you to sign in before you can make a meme, which is why we recommend using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/). The platform lets you generate memes for free, and it offers all the tools you’ll need to quickly make a watermark-free Distracted Boyfriend meme.
-
-#### 1\. Uploading the Image
-
- You can click the “Copy the image” link below and the image link will be copied automatically.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-meme.png)
-
-Copy the image
-
- Enter the URL into the box. Click on the Upload button and wait for the new page to load, so you can start making adjustments to the picture.
-
- If you saved the photo to your computer, you can click on the +icon once you arrive at the meme maker’s homepage and navigate to its destination on your hard drive.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-3.jpg)
-
-#### 2\. Adding Text to Memes
-
- The textual part of the Distracted Boyfriend meme is always incorporated into the photo, so make sure that the Text Inside option is selected and proceed to insert the text into the text boxes. Click on the Add Text Box button to add a third text box to the meme, and drag the text boxes displayed on the screen to their best positions.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-4.JPG)
-
- The Text Options menu lets you pick a font or change the color and the size of the text. It also offers the standard text alignment features, so you can easily rearrange the text.
-
-#### 3\. Downloading the Meme
-
- Click on the Create button once you finish customizing the text and wait for the new page to load.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-5.jpg)
-
-#### Conclusion
-
- Click on the download button to save the meme you created or use some of the file sharing options to post the meme on social media platforms if you are accessing the Online Meme Maker from a mobile device.
-
- The Distracted Boyfriend is one of the most popular memes in the last couple of years that has made us all laugh because we all understand how it feels to be tempted by the things we don’t have. Do you like generating the Distracted Boyfriend or Distracted Girlfriend memes? Leave a comment below and share your experiences with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- The Distracted Boyfriend meme is the embodiment of the awkward situation we find ourselves in when we want something other than what we already have. The original image was taken by Antonio Guillem and posted on iStock with a caption "Disloyal man with his girlfriend looking at another girl". By early 2017, a few years after it was posted on iStock, the picture surfaced on social media, and it became a viral meme in a few short months. One of the first Distracted Boyfriend memes that featured a joke about staring at the sun during a solar eclipse was posted on Reddit and within 24 hours it gained 31.200 points.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-1.jpg)
-
- The meme has since become synonymous with being unfaithful to girlfriends, ideologies, scientific evidence, photo cameras or virtually anything else. Despite its popularity, it is still difficult to make a good Distracted Boyfriend meme, so let's have a look at some of the best versions of the meme that emerged on social networks.
-
- The Distracted Girlfriend meme became popular soon after the Distracted Boyfriend meme went viral. The photo belongs to the same series of images posted to iStock by Antonio Guillem.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-2.png)
-
-Copy the image
-
- The facial expression of the girl in the photo makes it perfect meme material because she looks as if she’s just about to risk it all and do what she wants. Both Boyfriend and Girlfriend versions of this meme contain text over each of the characters in the picture. If you have a similar dilemma you can make your own version effortlessly. Here’s how.
-
-## How to Make a Distracted Boyfriend Meme?
-
- Online meme generators often watermark the content you create or require you to sign in before you can make a meme, which is why we recommend using [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/). The platform lets you generate memes for free, and it offers all the tools you’ll need to quickly make a watermark-free Distracted Boyfriend meme.
-
-#### 1\. Uploading the Image
-
- You can click the “Copy the image” link below and the image link will be copied automatically.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-meme.png)
-
-Copy the image
-
- Enter the URL into the box. Click on the Upload button and wait for the new page to load, so you can start making adjustments to the picture.
-
- If you saved the photo to your computer, you can click on the +icon once you arrive at the meme maker’s homepage and navigate to its destination on your hard drive.
-
-![](https://images.wondershare.com/filmora/article-images/distracted-boyfriend-3.jpg)
 
 #### 2\. Adding Text to Memes
 
@@ -3018,24 +3018,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-maximizing-your-videos-impact-with-expertly-recorded-voices-for-2024/"><u>[New] Maximizing Your Video's Impact with Expertly Recorded Voices for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-pic-perfect-ranking-the-best-photo-stickering-apps-for-iphonesandroids/"><u>[New] Pic Perfect Ranking the Best Photo Stickering Apps for iPhones/Androids</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-boost-your-creativity-on-instagram-with-free-filters/"><u>[Updated] Boost Your Creativity on Instagram with Free Filters</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-top-10-budget-friendly-apps-revolutionizing-smartphone-imagery/"><u>[Updated] Top 10 Budget-Friendly Apps Revolutionizing Smartphone Imagery</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>2024 Approved 10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/choose-folder-for-stored-mac-screenshots-for-2024/"><u>Choose Folder for Stored Mac Screenshots for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Vivo Y17s | Dr.fone</u></a></li>
-<li><a href="https://fox-zaraz.techidaily.com/lost-your-iphone-password-learn-how-to-bypass-the-lock-screen-and-regain-access/"><u>Lost Your iPhone Password? Learn How to Bypass the Lock Screen and Regain Access!</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/mvp-mastery-unveiled-detailed-ms-sql-tips/"><u>MVP Mastery Unveiled - Detailed MS SQL Tips</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/navigating-chatgpt-for-kids-five-child-friendly-practices/"><u>Navigating ChatGPT for Kids: Five Child-Friendly Practices</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-10-best-memes-right-now-include-image-gifvideo/"><u>New 2024 Approved 10 Best Memes Right Now (Include Image/ GIF/Video)</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-all-about-kapwing-video-translation/"><u>New 2024 Approved All About Kapwing Video Translation</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-memoji-talk-make-memoji-video-on-your-own/"><u>New 2024 Approved How to Make Memoji Talk-Make Memoji Video On Your Own</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-cessation-chronicle-how-to-erase-your-account-for-ever/"><u>The Cessation Chronicle: How to Erase Your Account for Ever</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/top-6-animated-emoji-video-effects-for-2024/"><u>Top 6 Animated Emoji Video Effects for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-top-12-best-meme-makers-online-for-free/"><u>Updated 2024 Approved Top 12 Best Meme Makers Online for FREE</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-add-and-custom-slack-emoji-wondershare-filmora/"><u>Updated How to Add and Custom Slack Emoji-Wondershare Filmora</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-record-and-edit-an-animoji-or-memoji-karaoke-music-video-for-2024/"><u>Updated How to Record and Edit an Animoji or Memoji Karaoke Music Video for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-top-10-free-emoji-websites-to-download-emojis-online/"><u>Updated Top 10 Free Emoji Websites to Download Emojis Online</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-expert-roundup-best-free-vs-premium-windows-graphics-apps/"><u>[Updated] 2024 Approved Expert Roundup Best Free vs Premium Windows Graphics Apps</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-role-of-non-verbal-communication-in-interviewing/"><u>2024 Approved The Role of Non-Verbal Communication in Interviewing</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-top-10-best-free-manga-sites-to-read-online/"><u>2024 Approved Top 10 Best Free Manga Sites to Read Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/best-photo-slideshow-maker-how-to-make-a-photo-slideshow-2023-update/"><u>Best Photo Slideshow Maker How to Make a Photo Slideshow 2023 Update</u></a></li>
+<li><a href="https://win-blog.techidaily.com/comprehensive-solutions-correcting-unable-to-connect-to-configuration-servers-online/"><u>Comprehensive Solutions: Correcting 'Unable to Connect to Configuration Servers Online'</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/epichloe-festucae-endophytic-fungus-in-association-with-the-grasses-of-the-genus-festuca-such-as-fescue-festuca-arundinacea/"><u>Epichloë Festucae (Endophytic Fungus) in Association with the Grasses of the Genus Festuca, Such as Fescue (Festuca Arundinacea</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/essential-android-photography-tools/"><u>Essential Android Photography Tools</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-memorable-honeymoon-video/"><u>How to Make a Memorable Honeymoon Video</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-tweak-the-mouse-pointer-accessibility-settings-on-windows-11/"><u>How to Tweak the Mouse Pointer Accessibility Settings on Windows 11</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-20-wonderful-stop-motion-ideas-for-beginners-and-kids-filmora/"><u>New 2024 Approved 20 Wonderful Stop Motion Ideas for Beginners and Kids - Filmora</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-triggered-meme-in-2024/"><u>New How to Make a Triggered Meme, In 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transform-your-visual-storytelling-with-clear-backdrops-in-figma-for-2024/"><u>Transform Your Visual Storytelling with Clear Backdrops in Figma for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-tune-master-app-for-android-for-2024/"><u>Ultimate Tune Master App for Android for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-your-brother-scanner-latest-drivers-compatible-with-windows-released/"><u>Update Your Brother Scanner: Latest Drivers Compatible with Windows Released</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-10-emoji-makers-to-create-your-own-emojis-pconlineandroidiphone/"><u>Updated 2024 Approved Best 10 Emoji Makers to Create Your Own Emojis PC/Online/Android/iPhone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-ios-and-android-apps-you-can-use-to-create-animoji-and-memoji-videos/"><u>Updated 2024 Approved Best iOS and Android Apps You Can Use to Create Animoji and Memoji Videos</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-photo-collage-using-iphoto/"><u>Updated How to Make a Photo Collage Using iPhoto?</u></a></li>
 </ul></div>
 

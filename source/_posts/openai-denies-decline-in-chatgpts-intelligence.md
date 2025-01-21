@@ -1,7 +1,7 @@
 ---
 title: OpenAI Denies Decline in ChatGPT's Intelligence
-date: 2025-01-13T02:23:28.661Z
-updated: 2025-01-15T00:32:26.603Z
+date: 2025-01-14T16:12:20.314Z
+updated: 2025-01-21T17:05:31.819Z
 tags:
   - chatgpt
   - open-ai
@@ -15,12 +15,20 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
 ## ChatGPT or Gemini? Assessing the Strengths of Google's Newest Artificial Intelligence
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Quick Links
 
 * [What Is Google's Gemini AI Model?](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#what-is-google-39-s-gemini-ai-model)
 * [How to Use Google Gemini AI](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#how-to-use-google-gemini-ai)
 * [How Gemini Compares to GPT-3.5 and GPT-4](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#how-gemini-compares-to-gpt-3-5-and-gpt-4)
 * [Is Gemini Better than ChatGPT?](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#is-gemini-better-than-chatgpt)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Key Takeaways
 
@@ -33,10 +41,6 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
  When Google launched Bard in March 2023, there were many reasons to be excited. Finally, OpenAI's ChatGPT monopoly would be broken, and we'd get worthy competition.
 
  But Bard was never the AI titan people hoped for, and GPT-4 remains the dominant generative AI chat bot platform. Now, Google's Gemini is here—but is the long-awaited AI model better than ChatGPT?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What Is Google's Gemini AI Model?
 
@@ -72,13 +76,13 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
 ![Bard answers Math question](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/bard-answers-math-question.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 We tried ChatGPT running on GPT-3.5\. The first trial got it right.
 
 ![ChatGPT answers math question](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/chatgpt-answers-math-question.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  To test Gemini's image interpretation abilities, we tasked it with interpreting some popular memes. It declined, saying it can't interpret images with people in it. ChatGPT, running GPT-4V, was willing and able to do so flawlessly.
 
@@ -93,16 +97,12 @@ Here's the source screenshot.
 ![results of screenshot replication by Bard](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/results-of-screenshot-replication-by-bard.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  And here's GPT-4's attempt at replicating the screenshot. The result is not surprising, considering GPT-4 has historically been strong at coding. We've previously demonstrated[using GPT-4 to build a web app from scratch](https://www.makeuseof.com/chatgpt-how-build-web-app/) .
 
 ![results of screenshot replication by ChatGPT](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/results-of-screenshot-replication-by-chatgpt.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  We asked Gemini Pro to create a poem about Tesla (the electric vehicle car brand). It showed marginal improvements from previous tests we've done in the past. Here's the result:
 
@@ -112,11 +112,11 @@ Here's the source screenshot.
 
 ![ChatGPT writes poem](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/chatgpt-writes-poem.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  It may be a personal choice, but Gemini Pro's take on this seems better. But we'll let you be the judge.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is Gemini Better than ChatGPT?
 
@@ -139,19 +139,20 @@ Here's the source screenshot.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-a-step-by-step-approach-to-infusing-conversations-with-gifs-on-snapchat/"><u>2024 Approved A Step-by-Step Approach to Infusing Conversations with GIFs on Snapchat</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-revolutionize-your-social-media-top-downloader-plugins-and-addons-for-fb-on-firefox/"><u>2024 Approved Revolutionize Your Social Media Top Downloader Plugins and Addons for FB on Firefox</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehensive-tutorial-on-turning-on-browser-cookies/"><u>Comprehensive Tutorial on Turning On Browser Cookies</u></a></li>
-<li><a href="https://win-blog.techidaily.com/hearthstone-stability-issues-resolved-for-desktop-users-guide-and-tips/"><u>Hearthstone Stability Issues Resolved for Desktop Users - Guide & Tips</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://app-tips.techidaily.com/inside-look-how-lastpass-leadership-addresses-safety-concerns-amidst-alarming-security-notifications-explored-by-zdnet/"><u>Inside Look: How LastPass Leadership Addresses Safety Concerns Amidst Alarming Security Notifications | Explored by ZDNET</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-slow-motion-instagram-a-reel-guide/"><u>Mastering Slow-Motion Instagram A Reel Guide</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-10-popular-cartoon-characters-that-should-top-your-list-for-2024/"><u>New 10 Popular Cartoon Characters That Should Top Your List for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-add-bitmoji-to-keyboard/"><u>New 2024 Approved How to Add Bitmoji to Keyboard?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-a-photo-collage-using-iphoto/"><u>New 2024 Approved How to Make a Photo Collage Using iPhoto?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-iosandandroid-best-apps-to-create-animoji-and-memoji-videos/"><u>New IOS&Android Best Apps to Create Animoji and Memoji Videos</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-record-your-memorable-honeymoon-video/"><u>Updated 2024 Approved How to Record Your Memorable Honeymoon Video</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-imovie-photo-slideshow-with-music-for-2024/"><u>Updated How to Make a iMovie Photo Slideshow with Music for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/watching-the-how-to-train-your-dragon-series-a-sequential-guide/"><u>Watching the 'How to Train Your Dragon' Series: A Sequential Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-perfecting-audio-capture-on-skype-with-obs-tools/"><u>[New] 2024 Approved Perfecting Audio Capture on Skype With OBS Tools</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-social-sharing-simplified-photos-from-your-device-now/"><u>[Updated] 2024 Approved Social Sharing Simplified Photos From Your Device Now</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-blueprint-for-virtual-business-growth-for-2024/"><u>[Updated] The Blueprint for Virtual Business Growth for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-popular-cartoon-characters-that-should-top-your-list-2023-updated/"><u>10 Popular Cartoon Characters That Should Top Your List 2023 Updated</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/10-trending-memes-right-now-include-image-gifvideo/"><u>10 Trending Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-best-photo-slideshow-maker-how-to-make-a-photo-slideshow-2023-update/"><u>2024 Approved Best Photo Slideshow Maker How to Make a Photo Slideshow 2023 Update</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhanced-video-experience-mozilla-firefox-1/"><u>Enhanced Video Experience: Mozilla Firefox 1</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Samsung Galaxy S24+? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-german-a-difficult-target-for-learners/"><u>Is German a Difficult Target for Learners?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/learn-quick-image-text-alteration-online-resources-for-2024/"><u>Learn Quick Image Text Alteration Online Resources for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-add-emojisstickers-to-videos-on-pcmacmobileonline/"><u>New 2024 Approved How Add Emojis/Stickers to Videos on PC/Mac/Mobile/Online</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/resolving-the-inaccessible-boot-device-error-on-windows-11-ssd-drives/"><u>Resolving the 'Inaccessible Boot Device' Error on Windows 11 SSD Drives</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solution-for-windows-network-failure-issue-0x80cu04cf/"><u>Step-by-Step Solution for Windows Network Failure Issue [0X80cu04cf]</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-an-emoji-of-yourself-on-android-and-iphone-emoji-yourself/"><u>Updated In 2024, How to Make an Emoji of Yourself on Android and iPhone Emoji Yourself</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-top-5-best-websites-to-add-emojis-to-photo-online/"><u>Updated Top 5 Best Websites to Add Emojis to Photo Online</u></a></li>
 </ul></div>
 
