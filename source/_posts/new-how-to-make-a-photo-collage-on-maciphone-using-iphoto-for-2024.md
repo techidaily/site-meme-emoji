@@ -1,7 +1,7 @@
 ---
 title: New How to Make a Photo Collage on Mac/iPhone Using iPhoto for 2024
-date: 2025-01-19T17:31:29.403Z
-updated: 2025-01-21T16:40:05.287Z
+date: 2025-01-23T21:19:13.343Z
+updated: 2025-01-27T19:26:30.479Z
 tags: 
   - ai
   - animation videos
@@ -347,6 +347,10 @@ Below are the basic steps about how to add emojis to YouTube videos anywhere usi
 
 **Step 4:** You can now play around with editing options in Kapwing to adjust accordingly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Use Emojis on YouTube?
 
 YouTube provides you an option to insert emoji on your YouTube account description, tag and titles with great ease with the use of YouTube certified plugin, Tube Buddy.
@@ -371,10 +375,6 @@ YouTube provides you an option to insert emoji on your YouTube account descripti
 
 Image from iMore
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Add Emojis to Facebook?
 
 If you are wondering about how to add emojis to Facebook videos then, unfortunately, Facebook only offers “go live” option on Facebook where an emoji cannot be inserted. But you can insert emoji to Facebook status, comment or in your messenger conversation easily by following the step below for status:
@@ -394,6 +394,10 @@ If you are wondering about how to add emojis to Facebook videos then, unfortunat
 **Step 3:** Click on that emoji. This overlays that emoji onto that video clip. You can scale the emoji up and down and drag it anywhere on the video.
 
 ![how to add emojis to videos on imovie](https://images.wondershare.com/filmora/article-images/add-emojis-to-video-by-imovie.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Image from YouSubtitles
 
@@ -613,6 +617,10 @@ YouTube provides you an option to insert emoji on your YouTube account descripti
 
 ![how to add emojis in snapchat videos](https://images.wondershare.com/filmora/article-images/add-emojis-to-video-on-snapchat.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Image from iMore
 
 ## How to Add Emojis to Facebook?
@@ -654,10 +662,6 @@ Image from YouSubtitles
 ![add emojis to videos online](https://images.wondershare.com/filmora/article-images/add-emojis-to-video-by-blurbiz.jpg)
 
 **Step 6:** Tap on “complete” at the top right corner when you are done. You can download an mp4 format video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Add Emojis to Videos Android?
 
@@ -758,10 +762,6 @@ If you are wondering about how to add emojis to Facebook videos then, unfortunat
 **Step 3:** Click on that emoji. This overlays that emoji onto that video clip. You can scale the emoji up and down and drag it anywhere on the video.
 
 ![how to add emojis to videos on imovie](https://images.wondershare.com/filmora/article-images/add-emojis-to-video-by-imovie.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Image from YouSubtitles
 
@@ -877,10 +877,6 @@ Follow @Liza Brown
 
  Learn more: [User Guide of DVD Slideshow Builder Deluxe](https://tools.techidaily.com/wondershare/dvd-slideshow-builder-deluxe/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Part 2: More Photo to DVD Tips
 
 #### More about NTSC/PAL TV Standard
@@ -900,6 +896,10 @@ Follow @Liza Brown
  Scanning printed photos to computer is not an easy job. It needs patience and some tips and tricks. As you may know, some companies provide photo scanning service. For the Step 4, you can also adjust digital photos in your selected **photo DVD maker**. Anyway, you need to get your digital photos ready before you **burn photos to DVD** with transitions and music.
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -1225,11 +1225,19 @@ The /r/memes/ is the funniest subreddits that use phrases to show the user's emo
 
 ![memes](https://images.wondershare.com/filmora/article-images/memes.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5. /r/dankmemes
 
 The funniest subreddits /r/dankmemes/ are the sarcastic expressions describing the viral media jokes that have lost their comedic value or the intentionally inexplicable cliché. For example, a 7 year old boy asks, "what's virgin?" and a 9yrs old boy reverts, "allow us to introduce ourselves."
 
 ![dankmemes](https://images.wondershare.com/filmora/article-images/dankmemes.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6. /r/PrequelMemes
 
@@ -1244,10 +1252,6 @@ For instance, when the star war movie is about to start at 7.45 and at 7.40 you 
 /r/terriblefacebookmemes is one of the funniest subreddits as it is a mixture of terribly shitty memes with various suggestions of granny-types. With around 216k subscribers, /r/terriblefacebookmemes is funny yet, relates to some old-fashioned ideas. For instance, a man thinking if the sun is said to be in space, why space doesn't have light and the earth instead has it?
 
 ![terriblefacebookmemes](https://images.wondershare.com/filmora/article-images/terriblefacebookmemes.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 8. /r/PewdiepieSubmissions
 
@@ -1296,10 +1300,6 @@ On 7th December 2010, the /r/AdviceAnimals subreddit was created. It is simple a
 The funniest subreddits on /r/AdviceAnimals showed a Penguin with head and half body with the red background looking left, but the other half of the body and the feet turn right with a blue background. The memes read "Started going to the gym - Only at midnight, so there's nobody else there."/r/AdviceAnimals subreddit showed it as "there's someone else in the gym, so I left and made memes instead."
 
 ![celaction2d](https://images.wondershare.com/filmora/article-images/AdviceAnimals.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. /r/MemeEconomy
 
@@ -1380,10 +1380,6 @@ Follow @Ollie Mattison
 Are you a memes lover? Reddit is the best hub for funny memes. However, all of the hilarious memes are deep under several subreddits. As these subreddits cover various topics, it can be difficult to find the most hysterical memes out of all.
 
 So, in this article, we have come up with 10 funniest subreddits to make you laugh. You need not worry further that you are unable to find the memes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10 Funniest Subreddits to Find Memes
 
@@ -1562,10 +1558,6 @@ Follow @Ollie Mattison
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Make a Video for Your Baby's First Year
 
@@ -1763,6 +1755,10 @@ Follow @Ollie Mattison
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10 Trending Memes  Right Now (Include Image/ GIF/Video)
 
 # 10 Trending Memes In 2024 Right Now (Include Image/ GIF/Video)
@@ -1937,9 +1933,112 @@ The reaction from James became the best memes of this year. As soon as the game 
 
 ![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
 
+### 8\. Tired Spongebob
+
+Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
+
+![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
+
+### 9\. Tide Pods
+
+Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
+
+Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
+
+![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
+
+### 10\. Green M&M Bambi Copypasta
+
+While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
+
+The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
+
+![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
+
+Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Part 2: Recommended Tool to Make Memes
+
+The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
+
+From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
+
+When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
+
+* [**Part1: 10 Best Memes In 2024**](#part1)
+* [**Part2: Recommended Tool to Make Memes**](#part2)
+
+## Part 1: 10 Best Memes In 2024
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### 1\. Steven Crowder's "Change My Mind" Campus Sign
+
+The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
+
+The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
+
+![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
+
+### 2\. Gru's Plan
+
+When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
+
+The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
+
+![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
+
+### 3\. American Chopper Argument
+
+In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
+
+In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
+
+![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
+
+### 4\. Who Killed Hannibal?
+
+It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
+
+It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
+
+![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
+
+### 5\. Walmart Yodel Boy
+
+The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
+
+![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
+
+### 6\. Is this a pigeon?
+
+A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
+
+![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
+
+### 7\. LeBron James's NBA Finals Reaction
+
+This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
+
+The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
+
+![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
 
 ### 8\. Tired Spongebob
 
@@ -2058,112 +2157,9 @@ Unfortunately, the attractive packaging of these laundry detergent capsules led 
 
 ![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
 
-### 10\. Green M&M Bambi Copypasta
-
-While a Tumblr post comment and response the Green M&M Bambi Copypasta was used and went on to be amongst the top 10 best memes of the year so far. Here the person role-plays the character of the Green M&M and demands a game named Bambi from the Gamestop on Play Station 2.
-
-The aggressive character and dominating tone of the post have stirred several variations. The Green M&M role plays in the similar demanding tone of the character started doing the rounds on the online platform since then.
-
-![Green M&M Bambi Copypasta](https://images.wondershare.com/filmora/article-images/Green-m-Bambi-Copypasta-meme.JPG)
-
-Or you may want to make a trending meme, like red glowing eye, please read this article: [How to create a red glowing eyes effect in videos?](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Part 2: Recommended Tool to Make Memes
-
-The newest addition in the Filmora family is the Filmora Online Meme Maker that lets you create funny and best memes completely free. It is being widely used by all the meme lovers and is packed with some of the best features. GIF, image and video memes are all supported to make.
-
-From adding texts with the use of both internal and external sources to adjusting size and color, the Filmora Online Meme Maker comes with an intuitive interface, several video effects, and a range of editing tools. It is easy to use and an amazing tool for creating the best meme. It also lets you import video from YouTube and Vimeo and there are no watermarks even when used free. Try it now!
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-With several popular memes doing rounds on the Internet this year, 2019 can be said the “best memes year”. The memes are the latest things that speak louder than any other words. You get just 140 characters on Twitter which might not be enough for what you wish to post but, a powerful meme with a strong caption can do what any simple words cannot do. This is what each of the people is doing today.
-
-When the meme is just released and hot like fire, each one of you wishes to use it. Below are by far the 10 best memes that you would definitely like to check out. Let’s laugh and have fun, forgetting all the stress of life.
-
-* [**Part1: 10 Best Memes In 2024**](#part1)
-* [**Part2: Recommended Tool to Make Memes**](#part2)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-## Part 1: 10 Best Memes In 2024
-
-### 1\. Steven Crowder's "Change My Mind" Campus Sign
-
-The conservative podcaster Steven Crowder tweeted an image on 16th February 2018 which went on to become one of the funniest memes of 2018\. It had Crowder’s photograph behind a table poster that read "Male Privilege is a myth / Change My Mind". The image had a backdrop of the Texas Christian University and he tweeted it with a caption, "Hello @TCU. Come one come all. #ChangeMyMind."
-
-The image was tweeted as part of Crowder’s YouTube and podcast promotions where various viewpoints of Crowder are opposed by the people and they convince him of these issues. This post garnered around 6400 likes and 900 retweets in just 4 days.
-
-![Change my mind](https://images.wondershare.com/filmora/article-images/Change-My-Mind-meme.JPG)
-
-### 2\. Gru's Plan
-
-When Despicable Me was released on July 9, 2010, Gru, the protagonist in the film shows a presentation of stealing a moon and notice a drawing of himself where he is sitting on the toilet in between the pages of the presentation.
-
-The memes of this comic show a startling presentation with a 3rd page, where the panel of Gru looks back at the board in complete bewilderment. FieldMarshalSixDans, a Redditor used screencaps from the film and posted a four-panel version meme which was re-posted. It reaped about 250 comments and above 18000 votes in 1 day.
-
-![Gru's Plan](https://images.wondershare.com/filmora/article-images/Gru's-Plan-meme.JPG)
-
-### 3\. American Chopper Argument
-
-In the year 2009, the YouTube channel Shemrock Nursery Rhymes created a meme of the nursery rhymes Johny Johny Yes Papa. This rhyme is a popular one featured under animated amateur music video. It shows a small boy who tries to steal sugar and confronted by his father for not taking permission.
-
-In July 2009, Shemrock YouTube channel created best memes for this video by using the clips of Johny Johny and used the audio of another nursery rhymes Twinkle Twinkle which collected over 2.9 million views in the first 6 years of its posting.
-
-![American Chopper Argument](https://images.wondershare.com/filmora/article-images/American-Chopper-Argument-meme.JPG)
-
-### 4\. Who Killed Hannibal?
-
-It is a skit from the Eric Andre Show, also known as Eric Andre Shooting Hannibal Buress where Eric Andre, the host of the show can be seen shooting a gun multiple times and asking on camera Who Killed Hannibal?
-
-It was actually a joke during the Season 2, episode 6 of The Eric Andre Show. It turned out to be the best memes of this year when the famous dialogue “Who Killed Hannibal” was replaced by "Why would X do this?" in a variety of expressive template.
-
-![Who Killed Hannibal](https://images.wondershare.com/filmora/article-images/Who-Killed-Hannibal-meme.JPG)
-
-### 5\. Walmart Yodel Boy
-
-The Walmart Yodel Boy is a video that was filmed in a Walmart on 24th March 2018\. It was the video of the 12-year-old child artist, Mason Ramsay singing “Lovesick Blues". He is better known for Hank Williams impressions. This video from the concert was uploaded from a YouTube account named ViralHog. This song started being remixed with several other captions and went viral in no time and is considered one of the best memes of this year.
-
-![Walmart Yodel Boy](https://images.wondershare.com/filmora/article-images/Walmart-Yodel-Boy-meme.JPG)
-
-### 6\. Is this a pigeon?
-
-A shot from the anime series “The Brave Fighter of Sun Fighbird” had a scene in episode 3 of season 1 where professor Hiroshi Amano creates a human android, Yutaro Katori. While explaining mother Nature, Yutaro Katori thinks a butterfly to be a pigeon. One of the best memes is created when the reaction of this scene with the quote is used widely to show a confused expression on Tumblr.
-
-![Is this a pigeon](https://images.wondershare.com/filmora/article-images/Is-this-pigeon-meme.JPG)
-
-### 7\. LeBron James's NBA Finals Reaction
-
-This is a video during the NBA finals when J.R.Smith, a player from Cleveland Cavaliers kept dribbling in the last 5 important seconds of the game against the Golden State Warriors and the time ran out. This is when Smith’s teammate Lebron James showed his utter disappointment and pointed out his mistake by stretching out his arms.
-
-The reaction from James became the best memes of this year. As soon as the game was over, Lebron James’ reaction with caption started doing rounds on the Twitter that emoted disappointment and frustration. It garnered 29000 likes and 8800 retweets.
-
-![LeBron James's NBA Finals Reaction](https://images.wondershare.com/filmora/article-images/LeBron-James's-NBA-Finals-Reaction-meme.JPG)
-
-### 8\. Tired Spongebob
-
-Tired Spongebob is the lead character of the Spongebob Squarepants which used to air in the year 1999 and was from Episode 1\. It is a still image of Spongebob where it appears to be out of breath and naked. Twitter has made this image popular by using it for showing exhaustion.
-
-![Tired Spongebob](https://images.wondershare.com/filmora/article-images/Tired-Spongebob-meme.JPG)
-
-### 9\. Tide Pods
-
-Tide Pods is one of the best memes that shows how tide pods are compared to bleach drinking in the memes. When Procter Gamble launched its new product tide pods laundary detergent in 2012 it appeared like some flavored fruit snack due to its packaging.
-
-Unfortunately, the attractive packaging of these laundry detergent capsules led to children consuming it and increasing calls to the poison control center. So, the Tide Pod eating memes are used to mock and compare it with the poisonous food and drinks in the online circuit.
-
-![Tide Pods](https://images.wondershare.com/filmora/article-images/Tide-Pods-meme.JPG)
 
 ### 10\. Green M&M Bambi Copypasta
 
@@ -2300,6 +2296,10 @@ Follow @Shanoon Cox
  You could also import FLV to DVD Slideshow Builder Deluxe and save it as MP4, AVI, MOV and 3GP, or even burn FLV video to DVD with beautiful DVD menus. For detailed supported output formats, check video format references. Here, I recommended to **save FLV to MP4** for its comprehensive support on various devices, such as iPhone, iPod, Apple TV, Gphone, Nokia phone, LG phone, PSP, Palm, Zune, etc.
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png)](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### About FLV Video (Flash Video)
 
@@ -2441,18 +2441,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-growth-excellence-in-valheim-optimal-seeds-unveiled/"><u>[New] 2024 Approved Growth Excellence in Valheim Optimal Seeds Unveiled</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-captivating-imagery-a-podcasters-guide-to-logos/"><u>[New] Captivating Imagery A Podcaster's Guide to Logos</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-amplifying-tv-screens-through-fb-live-integration-for-2024/"><u>[Updated] Amplifying TV Screens Through FB Live Integration for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2020s-windows-updates-a-quick-overview/"><u>2020'S Windows Updates A Quick Overview</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Oppo Reno 8T | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/evaluating-advantages-and-disadvantages-of-using-webex-for-remote-meetings/"><u>Evaluating Advantages and Disadvantages of Using WebEx for Remote Meetings</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Nubia Z50 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-top-10-storyboarding-software-freeandpaid/"><u>In 2024, Top 10 Storyboarding Software Free&Paid</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-7-free-apps-to-get-emojis-on-android-and-iphone/"><u>New 2024 Approved 7 Free Apps to Get Emojis on Android and iPhone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself-for-2024/"><u>Updated How to Make an Emoji of Yourself on Mobile ? Emoji Yourself for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-8-best-meme-maker-app-to-create-memes-with-your-own-picture/"><u>Updated In 2024, 8 Best Meme Maker App to Create Memes with Your Own Picture</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-top-10-storyboarding-software-for-2024/"><u>Updated Top 10 Storyboarding Software for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/vision-and-craft-best-cinematography-practices/"><u>Vision and Craft Best Cinematography Practices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-top-ranked-techniques-for-polished-obs-productions-for-2024/"><u>[New] Top-Ranked Techniques for Polished OBS Productions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-evasion-techniques-for-youtube-bans-for-2024/"><u>[Updated] Evasion Techniques for YouTube Bans for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-insta-magic-rotation-elevate-your-video-game/"><u>[Updated] Insta-Magic Rotation Elevate Your Video Game</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-10-free-online-sticker-makers-to-make-your-own-stickers/"><u>2024 Approved 10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/3iso/"><u>最高の3つのフリーISO圧縮ソフトウェア推薦チョイス</u></a></li>
+<li><a href="https://win11.techidaily.com/dive-deep-into-fcs-world-with-zero-cost-ocm/"><u>Dive Deep Into FC's World with Zero-Cost OCM</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-add-emojisstickers-to-videos-on-pcmacmobileonline/"><u>How Add Emojis/Stickers to Videos on PC/Mac/Mobile/Online</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/macdvdipad-dvdmacipad-air4pro3mini2/"><u>Mac用DVDiPad変換ソフトウェア - すべてのDVDをMac環境でiPadに最適化: Air4/Pro3/Mini2へ</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-generating-the-roll-safe-think-about-it-meme-for-2024/"><u>New Generating the Roll Safe-Think About It Meme for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-your-own-emoji-in-2-ways-step-by-step-guide/"><u>New In 2024, How to Make Your Own Emoji in 2 Ways Step-By Step Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-top-10-free-emoji-websites-to-download-emojis-online/"><u>New In 2024, Top 10 Free Emoji Websites to Download Emojis Online</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-helldivers-2-issue-eliminate-black-screen-when-beginning-play/"><u>Solving Helldivers 2 Issue - Eliminate Black Screen When Beginning Play</u></a></li>
+<li><a href="https://techtrends.techidaily.com/streaming-made-easy-share-screen-from-android-to-amazon-firestick/"><u>Streaming Made Easy: Share Screen From Android to Amazon Firestick</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-10-best-meme-makers-online-free-to-use-for-2024/"><u>Updated 10 Best Meme Makers Online (Free to Use) for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-add-and-custom-slack-emoji-wondershare-filmora/"><u>Updated 2024 Approved How to Add and Custom Slack Emoji-Wondershare Filmora</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-a-flv-photo-slideshow-with-music/"><u>Updated 2024 Approved How to Make a FLV Photo Slideshow with Music</u></a></li>
 </ul></div>
 

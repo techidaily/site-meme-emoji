@@ -1,7 +1,7 @@
 ---
 title: Updated In 2024, How to Make a Photo Collage Using iPhoto?
-date: 2025-01-17T17:09:53.227Z
-updated: 2025-01-21T16:15:04.963Z
+date: 2025-01-25T16:21:34.142Z
+updated: 2025-01-27T21:25:44.790Z
 tags: 
   - ai
   - animation videos
@@ -308,10 +308,6 @@ Follow @Shanoon Cox
      data-ad-slot="1223367746"></ins>
 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Generating the Nut Button Meme
 
 # Generating the Nut Button Meme
@@ -382,88 +378,6 @@ The Nut Button meme can be used in a wide array of different contexts, and it is
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-**Generating the Nut Button Meme**
-
-The Nut Button meme started out as an immature joke, with a word 'Nut' written across a blue button, and for a number of years, this meme was used mostly for bad sex jokes. However, the meme has evolved through the years and meme makers from around the world use it to make social media, gaming and countless other types of jokes.
-
-Commonly, the Nut Button meme suggests that a person, in many cases the creator of the meme, likes doing something in certain types of situations, like listening to crappy music when they feel down or taking revenge on their enemies when they have the opportunity. Generating this type of meme doesn't require too much effort as it often contains one word. Some versions of this meme include the motive that prompts the hand in the meme to push the button, but using this element of the meme is optional.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## A Few Good Examples of the Nut Button Meme
-
-Taking the first concept that comes to your mind won't necessarily make this meme as effective as you'd like it to be, so you have to think carefully which button the hand is going to hit.
-
-Hitting the Divorce button can be a painful process in real life, but it can also be an endless source of fun if the reason why the hand hits it is so ridiculous that it could never be an actual reason for a divorce.
-
-This meme can also be used to make fun of world leaders and their bad decisions or pop-culture figures that often do ill-advised things.
-
-![](https://images.wondershare.com/filmora/article-images/nut-button-sample-1.jpg)
-
-The elements of the Nut meme are always the same, although their topics can vary because the hand and the blue button are irreplaceable parts of this meme.
-
-## Generating the Nut Button Meme
-
-We suggest using Filmora Online Meme Maker to generate your meme because this online tool lets you create memes without watermarks for free. What's more, you don't even have to sign up in order to make a meme from images, GIFs or videos.
-
-#### Step 1 – Uploading the Meme Template
-
-You can click the “Copy the image” link below and the image link will be copied automatically.
-
-![](https://images.wondershare.com/filmora/article-images/blank-nut-button.png)
-
-Copy the image
-
-After arriving at [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/)'s home page, you'll be asked to upload the image. Paste the image's URL into the Enter a URL box. After uploading a picture from your computer, you'll be asked if you would like to crop, flip or rotate it. Click on the OK button to confirm the changes you've made and proceed to the next step of the process.
-
-![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
-
-#### Step 2 – Adding Text to the Image
-
-When a new page loads you will get access to all tools Filmora Online Meme Maker offers. Make sure that the Text Inside option is selected, since on nearly all examples of this meme the text is positioned within the image.
-
-![](https://images.wondershare.com/filmora/article-images/nut-button-text.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Insert the text into the text boxes, and reposition it on the picture so it is placed between the blue button and hand. You can add as many text boxes as you want to the picture, but Nut Button memes commonly include just one or two lines of text.
-
-![](https://images.wondershare.com/filmora/article-images/nut-button-edit.JPG)
-
-The color of the text, size, and font can all be changed in the Text Options menu, so before hitting the Create button you can experiment with these tools in order to generate a better meme.
-
-#### Step 3 – Saving the Meme
-
-Finally, click on the download button, and when a new page loads and you're ready to share your new Nut Button meme on social media.
-
-![](https://images.wondershare.com/filmora/article-images/nut-button-export.JPG)
-
-The Filmora Online Meme Maker is mobile friendly, which means that you can use this platform to make memes from your Smartphone.
-
-### Conclusion
-
-The Nut Button meme can be used in a wide array of different contexts, and it is up to you which one you're going to use. You can mock stereotypical answers to questions, world leaders or make a joke at your own expense. Whichever topic you choose, the Filmora Online Meme Maker will help you express your creativity fully. What is your favorite Nut Button meme? Leave a comment below and let us know.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -492,6 +406,10 @@ This meme can also be used to make fun of world leaders and their bad decisions 
 
 The elements of the Nut meme are always the same, although their topics can vary because the hand and the blue button are irreplaceable parts of this meme.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Generating the Nut Button Meme
 
 We suggest using Filmora Online Meme Maker to generate your meme because this online tool lets you create memes without watermarks for free. What's more, you don't even have to sign up in order to make a meme from images, GIFs or videos.
@@ -517,10 +435,6 @@ When a new page loads you will get access to all tools Filmora Online Meme Maker
 Insert the text into the text boxes, and reposition it on the picture so it is placed between the blue button and hand. You can add as many text boxes as you want to the picture, but Nut Button memes commonly include just one or two lines of text.
 
 ![](https://images.wondershare.com/filmora/article-images/nut-button-edit.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The color of the text, size, and font can all be changed in the Text Options menu, so before hitting the Create button you can experiment with these tools in order to generate a better meme.
 
@@ -607,6 +521,84 @@ The Filmora Online Meme Maker is mobile friendly, which means that you can use t
 The Nut Button meme can be used in a wide array of different contexts, and it is up to you which one you're going to use. You can mock stereotypical answers to questions, world leaders or make a joke at your own expense. Whichever topic you choose, the Filmora Online Meme Maker will help you express your creativity fully. What is your favorite Nut Button meme? Leave a comment below and let us know.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+**Generating the Nut Button Meme**
+
+The Nut Button meme started out as an immature joke, with a word 'Nut' written across a blue button, and for a number of years, this meme was used mostly for bad sex jokes. However, the meme has evolved through the years and meme makers from around the world use it to make social media, gaming and countless other types of jokes.
+
+Commonly, the Nut Button meme suggests that a person, in many cases the creator of the meme, likes doing something in certain types of situations, like listening to crappy music when they feel down or taking revenge on their enemies when they have the opportunity. Generating this type of meme doesn't require too much effort as it often contains one word. Some versions of this meme include the motive that prompts the hand in the meme to push the button, but using this element of the meme is optional.
+
+## A Few Good Examples of the Nut Button Meme
+
+Taking the first concept that comes to your mind won't necessarily make this meme as effective as you'd like it to be, so you have to think carefully which button the hand is going to hit.
+
+Hitting the Divorce button can be a painful process in real life, but it can also be an endless source of fun if the reason why the hand hits it is so ridiculous that it could never be an actual reason for a divorce.
+
+This meme can also be used to make fun of world leaders and their bad decisions or pop-culture figures that often do ill-advised things.
+
+![](https://images.wondershare.com/filmora/article-images/nut-button-sample-1.jpg)
+
+The elements of the Nut meme are always the same, although their topics can vary because the hand and the blue button are irreplaceable parts of this meme.
+
+## Generating the Nut Button Meme
+
+We suggest using Filmora Online Meme Maker to generate your meme because this online tool lets you create memes without watermarks for free. What's more, you don't even have to sign up in order to make a meme from images, GIFs or videos.
+
+#### Step 1 – Uploading the Meme Template
+
+You can click the “Copy the image” link below and the image link will be copied automatically.
+
+![](https://images.wondershare.com/filmora/article-images/blank-nut-button.png)
+
+Copy the image
+
+After arriving at [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/)'s home page, you'll be asked to upload the image. Paste the image's URL into the Enter a URL box. After uploading a picture from your computer, you'll be asked if you would like to crop, flip or rotate it. Click on the OK button to confirm the changes you've made and proceed to the next step of the process.
+
+![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+#### Step 2 – Adding Text to the Image
+
+When a new page loads you will get access to all tools Filmora Online Meme Maker offers. Make sure that the Text Inside option is selected, since on nearly all examples of this meme the text is positioned within the image.
+
+![](https://images.wondershare.com/filmora/article-images/nut-button-text.JPG)
+
+Insert the text into the text boxes, and reposition it on the picture so it is placed between the blue button and hand. You can add as many text boxes as you want to the picture, but Nut Button memes commonly include just one or two lines of text.
+
+![](https://images.wondershare.com/filmora/article-images/nut-button-edit.JPG)
+
+The color of the text, size, and font can all be changed in the Text Options menu, so before hitting the Create button you can experiment with these tools in order to generate a better meme.
+
+#### Step 3 – Saving the Meme
+
+Finally, click on the download button, and when a new page loads and you're ready to share your new Nut Button meme on social media.
+
+![](https://images.wondershare.com/filmora/article-images/nut-button-export.JPG)
+
+The Filmora Online Meme Maker is mobile friendly, which means that you can use this platform to make memes from your Smartphone.
+
+### Conclusion
+
+The Nut Button meme can be used in a wide array of different contexts, and it is up to you which one you're going to use. You can mock stereotypical answers to questions, world leaders or make a joke at your own expense. Whichever topic you choose, the Filmora Online Meme Maker will help you express your creativity fully. What is your favorite Nut Button meme? Leave a comment below and let us know.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -666,6 +658,10 @@ Follow @Ollie Mattison
 
 ![upload image Memedroid](https://images.wondershare.com/filmora/article-images/upload-image-Memedroid.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2**： After selecting the background image, add captions at the top and bottom of the image. The ‘SAVE’ button can be found on the top-right, tap that to save. Likewise, for sharing the meme, hit the ‘SHARE’ button located at the bottom of the screen.
 
 **Step 3**： Add tags and accept the ‘Terms of Service’ followed by ‘Send’ button. Wait a while, to get you meme ready for your audience.
@@ -791,10 +787,6 @@ Follow @Ollie Mattison
 * [**Part1: How to make memes on iPhone with Meme Generator**](#part1)
 * [**Part2: How to make memes on Android with Memedroid**](#part2)
 * [**Part3: Recommended - Making memes with Filmora meme maker online**](#part3)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: How to make memes on iPhone with Meme Generator
 
@@ -1006,6 +998,10 @@ Follow @Ollie Mattison
 
  Your baby grows up very fast and being able to see him grow is maybe one of the most interesting and exciting moments in your life. Documenting the first year is amazing and it will surely offer you an extraordinary value so try to do that the best way you can. Imagine how touched your child would be when he/she, at the age of 18, watch something like this:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make the baby’s first year video
 
 **Filming tips**
@@ -1207,8 +1203,105 @@ If you have Microsoft Surface or any other device that has Windows 10 or Windows
 
 ![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
 
+* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
+
+![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
+
+* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
+
+![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
+
+## Part 4: What’s New in Emojis in Windows 11
+
+In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
+
+In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
+
+* **Emojis** – Contains various emojis and smileys
+* **GIF** – Gives you access to various animated GIFs from Tenor
+* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
+* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
+
+In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
+
+## Part 5: How to Get More Emojis in Windows 11
+
+If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
+
+* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
+* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
+
+![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
+
+* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
+
+![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
+
+![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
+
+**Conclusion**
+
+While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
+
+Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
+
+02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
+
+03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
+
+04 [Part 4: What’s New in Emojis in Windows 11](#part4)
+
+05 [Part 5: How to Get More Emojis in Windows 11](#part5)
+
+## Part 1: The History of Emojis in Windows
+
+Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
+
+With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
+
+## Part 2: How to Use Emojis with Keyboard Shortcuts
+
+A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
+
+While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
+
+Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
+
+* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
+* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
+
+![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
+
+Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
+
+As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
+
+**:** (colon) + **)** (right brace) will create a smiley face
+
+**:** (colon) + **(** (left brace) will create a sad face
+
+**:** (colon) + **;** (semicolon) will create a wink face
+
+…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
+
+**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
+
+## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
+
+If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
+
+* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
+
+![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
+
+* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
+
+![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
@@ -1244,6 +1337,10 @@ If the built-in emoji library doesn’t contain your favorite expressions, you c
 * Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
 
 ![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
 
@@ -1366,106 +1463,9 @@ Although emojis are present in some form or the other since the mid-‘90s, they
 
 With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
 
-## Part 2: How to Use Emojis with Keyboard Shortcuts
-
-A keyboard shortcut is a combination of two or more keys that are pressed simultaneously to trigger a pre-assigned event or action. A good example of a keyboard shortcut is ‘Ctrl + S’ which, when pressed, saves the document you’re working on.
-
-While learning the process of **how to use emoji in Windows 10**, it is equally imperative to memorize the shortcut keys to insert those icons without taking your hands off the keyboard. This not only saves your time, but it also prevents you from going through the lengthy process of opening the emojis keyboard, navigating through all the available icons to choose the one you’re looking for, and then clicking it to insert in the document or conversation.
-
-Nevertheless, it would be a good idea to learn how to launch the emojis keyboard, and the process is simple. All you need to do is:
-
-* Make sure that your keyboard cursor is in an app that can accept text inputs. A text editor like MS Word or WordPad could be a good example
-* Press the **Windows** \+ **;** (semicolon) or **Windows** \+ **.** (period) keys together to open the emojis keyboard
-
-![use emojis on windows shortcuts](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-shortcuts.jpg)
-
-Once the keyboard is open, you can click any of the available emojis to insert it in your conversion or text content.
-
-As for the shortcuts, depending on the type of expression you want to convey, there could be thousands of them. Some of the commonly used emojis and their universal shortcut keys for both Windows 10 and Windows 11 include:
-
-**:** (colon) + **)** (right brace) will create a smiley face
-
-**:** (colon) + **(** (left brace) will create a sad face
-
-**:** (colon) + **;** (semicolon) will create a wink face
-
-…and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
-
-**Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
-
-If you have Microsoft Surface or any other device that has Windows 10 or Windows 11 installed on it, and can accept inputs via touch keyboard, you can enable the feature in the operating system, and then use the touch keyboard to add emojis to your conversion or content. You can follow the instructions given below to enable touch keyboard, and then learn **how to use emojis on Windows** 11 or Windows 10 via touch:
-
-* Right-click anywhere on the taskbar (Windows 11 is used here for demonstration), and then click **Taskbar settings**
-
-![windows taskbar settings option](https://images.wondershare.com/filmora/article-images/windows-taskbar-settings-option.jpg)
-
-* From the right area of the **Settings** window that opens next, scroll down to the **Taskbar corner icons** section, and then turn on the **Touch keyboard** switch
-
-![turn on touch keyboard windows](https://images.wondershare.com/filmora/article-images/turn-on-touch-keyboard-windows.jpg)
-
-* Launch an app that can accept text inputs, e.g., a text editor, chatting app, etc. Click or tap the **Touch keyboard** icon from the notification area that is present at the bottom-right corner of the screen.
-
-![use emojis on windows with touch keyboard](https://images.wondershare.com/filmora/article-images/use-emojis-on-windows-with-touch-keyboard.jpg)
-
-* Click or tap the **Emojis** icon from the upper-left corner of the touch keyboard that opens up, and then touch your preferred emoji to add it to your text or conversation.
-
-![choose emojis from touch keyboard](https://images.wondershare.com/filmora/article-images/choose-emojis-from-touch-keyboard.jpg)
-
-## Part 4: What’s New in Emojis in Windows 11
-
-In addition to learning **how to use emojis on Windows 10**, it is also important to know what’s new with them or the emojis panel in Windows 11, the latest operating system released by Microsoft this year, i.e., 2021.
-
-In Windows 11, although you can launch the emojis keyboard using the same shortcuts, i.e., ‘Windows + .’ or ‘Windows + ;’ keys as mentioned earlier, the emojis keyboard itself has four sections, namely:
-
-* **Emojis** – Contains various emojis and smileys
-* **GIF** – Gives you access to various animated GIFs from Tenor
-* **Kamojis** – Lets you add the ASCII characters for emojis, e.g., :-) or :-(
-* **Symbols** – To add important symbols to your text, e.g., ©, ®, etc.
-
-In addition to this, the 2D Clippy emoji has also been introduced with Windows 11, and can be located by launching the emojis keyboard, and typing ‘Clippy’.
-
-## Part 5: How to Get More Emojis in Windows 11
-
-If the built-in emoji library doesn’t contain your favorite expressions, you can always get several more by following the instructions given below:
-
-* Launch your favorite web browser on Windows 11, and then go to <http://www.iemoji.com/>
-* Click an emoji from the available options or copy one from your favorite portal, and paste it in the **Paste Emoji here** field
-
-![select emoji from iemoji windows](https://images.wondershare.com/filmora/article-images/select-emoji-from-iemoji-windows.jpg)
-
-* Review the emoji in the **MESSAGE PREVIEW** field, and click **Create** from the **Options** section to generate the emoji that can be sent as a message or image
-
-![create emojis on windows iemoji](https://images.wondershare.com/filmora/article-images/create-emojis-on-windows-iemoji.jpg)
-
-* Alternatively, click **Copy** from the **Options** section itself, and then go to the text editor or any other portal you want to use the emoji in, and press Ctrl + V to paste and insert the emoji in your conversation or text without any hassle.
-
-![copy emojis on iemoji](https://images.wondershare.com/filmora/article-images/copy-emojis-on-iemoji.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-**Conclusion**
-
-While the emojis were introduced to Windows as late as 2012, Windows 11 has a wide range of these virtual objects or faces for various occasions and to convey different expressions respectively. Furthermore, Windows 11 also gives you access to Tenor’s GIFs, and ASCII characters with particular combinations to represent the emojis, as it was done back in the days of button-operated cellphones.
-
-Also, if the built-in emoji keyboard doesn’t have your favorite expressions and smileys, you can always generate your custom ones by going to <http://www.iemoji.com/>, and using the options that the website offers. All in all, it’s easy to learn **how to use emojis on Windows** as long as you have access to the correct tutorial that explains the process in an easy manner.
-
-02 [Part 2: How to Use Emojis with Keyboard Shortcuts](#part2)
-
-03 [Part 3: How to Use Emojis on Windows PC with Touch Keyboard](#part3)
-
-04 [Part 4: What’s New in Emojis in Windows 11](#part4)
-
-05 [Part 5: How to Get More Emojis in Windows 11](#part5)
-
-## Part 1: The History of Emojis in Windows
-
-Although emojis are present in some form or the other since the mid-‘90s, they were not quite popular back then. With the evolution of smartphones, these iconic characters got attention from the then-teenagers. Seeing this, in 2012, Microsoft introduced the first-ever set of black-and-white emojis with the release of Windows 8, and after some time, the company also added the same to Windows 7 that was rolled out along with the updates for the OS.
-
-With the release of Windows 10 in 2015, a wide range of full-fledged colored emojis was introduced and received a large number of positive reactions from the users. As of today, emojis have become an integral part of everyone’s day-to-day text conversation, be it on Skype, WhatsApp, Facebook, or any other such platform.
 
 ## Part 2: How to Use Emojis with Keyboard Shortcuts
 
@@ -1493,10 +1493,6 @@ As for the shortcuts, depending on the type of expression you want to convey, th
 …and so on. You can conduct a quick online search to get the entire list of keyboard shortcuts and the emojis that they will create. For your convenience, a link from the Microsoft official website is given below:
 
 **Link:** <https://support.microsoft.com/en-us/office/emoticon-keyboard-shortcuts-5dbe678c-cef7-4a63-aa62-f07c2f38b267>
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Use Emojis on Windows PC with Touch Keyboard
 
@@ -1634,6 +1630,10 @@ Donald Duck is a cartoon character created by Walt Disney in 1934 with yellow le
 In this article, you learned about the popular cartoon characters that made your childhood awesome. Also, the brief given in this guide about the famous cartoon characters is amazing and you can get all the information about the cartoon characters without checking different information about them. Given that cartoons are fun to watch but we have also introduced to Filmora where you can create your cartoon video by using the features and tools on the timeline. If you find this guide helpful then don’t forget to tell us about your favorite cartoon character and why do you like them.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -1888,6 +1888,10 @@ Follow @Shanoon Cox
 
 [![Download Win Version](https://images.wondershare.com/style/images/download-btn-win.png) ](https://download.wondershare.com/dsb%5Fdeluxe%5Ffull18.exe)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ways for Photo Slidehow making
 
 #### Step 1. Add photo or video files to the photo slideshow maker
@@ -1959,10 +1963,6 @@ Follow @Shanoon Cox
  Go to the "Create" tab and click the "Preview" button to make sure the photo slideshow is good enough. Go back to Personalize tab to change if necessary. When you are happy with the result, choose the options on the left to export photo slideshow to DVD, PC, portable devices, etc. You can also directly upload slideshow to Youtube and send message to Facebook and Twitter friends.
 
 ![photo slideshow making software](https://images.wondershare.com/guide/images/dvd-slideshow-builder-deluxe-ug3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Now sit back and relax, it'll only take a while to get your photo slideshow for sharing anywhere.
 
@@ -2082,21 +2082,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-best-10-tiktok-layer-filters-amplifying-impact/"><u>[Updated] In 2024, Best 10 TikTok Layer Filters Amplifying Impact</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-datadeliverers-professional-view/"><u>2024 Approved DataDeliverers Professional View</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-top-windows-and-mac-best-image-to-animation-converter/"><u>2024 Approved Top Windows & Mac Best Image-to-Animation Converter</u></a></li>
-<li><a href="https://extra-information.techidaily.com/best-of-the-best-trivia-channels/"><u>Best of the Best Trivia Channels</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-make-memes-on-iphone-and-android/"><u>How to Make Memes on iPhone and Android</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-reactivate-in-game-sounds-in-eas-anthem-for-pc-users/"><u>How to Reactivate In-Game Sounds in EA's Anthem for PC Users</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-20-wonderful-stop-motion-ideas-for-beginners-and-kids/"><u>New 20 Wonderful Stop Motion Ideas for Beginners and Kids</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-10-free-online-sticker-makers-to-make-your-own-stickers/"><u>New 2024 Approved 10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-in-2024-25-cute-memes-to-make-you-feel-better/"><u>New In 2024, 25 Cute Memes to Make You Feel Better</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/passfab-iphone-11-pro-max-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>PassFab iPhone 11 Pro Max Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/real-truth-in-ppc-games-keyboard-tech/"><u>Real Truth in PPC Games, Keyboard Tech</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/troubleshooting-0xc00000f-windows-problems/"><u>Troubleshooting 0xC00000F Windows Problems</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-10-free-manga-sites-to-read-online/"><u>Updated 2024 Approved Best 10 Free Manga Sites to Read Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-25-cute-memes-to-make-you-feel-better/"><u>Updated In 2024, 25 Cute Memes to Make You Feel Better</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-mocking-sponge-bob-meme-generator/"><u>Updated Mocking Sponge Bob Meme Generator</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-ideal-selection-7-best-mac-video-apps/"><u>[New] Ideal Selection 7 Best Mac Video Apps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximizing-youtube-shorts-income-strategies/"><u>[Updated] Maximizing YouTube Shorts Income Strategies</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-10-best-offline-android-games-to-pass-time-filmora/"><u>2024 Approved 10 Best Offline Android Games to Pass Time - Filmora</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-10-popular-cartoon-characters-that-should-top-your-list/"><u>2024 Approved 10 Popular Cartoon Characters That Should Top Your List</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-beats-and-bites-mastering-music-in-instagram-stories/"><u>2024 Approved Beats & Bites Mastering Music in Instagram Stories</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/apple-integrates-openais-chatgpt-into-ios-ipados-and-macos-a-new-era-of-conversational-interfaces/"><u>Apple Integrates OpenAI's ChatGPT Into iOS, iPadOS & MacOS: A New Era of Conversational Interfaces</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/best-10-free-manga-sites-to-read-online-for-2024/"><u>Best 10 Free Manga Sites to Read Online for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/is-this-a-pigeon-meme-generator/"><u>Is This a Pigeon Meme Generator</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-social-media-metrics-the-igtv-hashtag-connection/"><u>Mastering Social Media Metrics The IGTV Hashtag Connection</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210404357-9780799356953-my-pad-met-engele/"><u>My pad met engele | Free Book</u></a></li>
+<li><a href="https://driver-error.techidaily.com/navigating-ndis-roadblocks-in-windows-easily/"><u>Navigating NDIS Roadblocks in Windows Easily</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-a-imovie-photo-slideshow-with-music/"><u>New 2024 Approved How to Make a iMovie Photo Slideshow with Music?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-a-photo-collage-on-maciphone-using-iphoto/"><u>New 2024 Approved How to Make a Photo Collage on Mac/iPhone Using iPhoto?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-best-10-emoji-makers-to-create-your-own-emojis-pconlineandroidiphone/"><u>New Best 10 Emoji Makers to Create Your Own Emojis PC/Online/Android/iPhone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-distracted-boyfriend-meme-generator/"><u>New Distracted Boyfriend Meme Generator</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-memes-with-white-background-step-by-step/"><u>New How to Make Memes with White Background Step by Step</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-mocking-sponge-bob-meme-generator-for-2024/"><u>New Mocking Sponge Bob Meme Generator for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-motorola-moto-g13-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unfolding-the-spectacular-storylines-a-comprehensive-review-of-yokus-island-adventure-game/"><u>Unfolding the Spectacular Storylines: A Comprehensive Review of Yoku's Island Adventure Game</u></a></li>
 </ul></div>
 

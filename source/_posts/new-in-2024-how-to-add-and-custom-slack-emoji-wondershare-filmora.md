@@ -1,7 +1,7 @@
 ---
 title: New In 2024, How to Add and Custom Slack Emoji-Wondershare Filmora
-date: 2025-01-14T17:57:41.652Z
-updated: 2025-01-21T17:54:17.648Z
+date: 2025-01-20T21:37:20.474Z
+updated: 2025-01-27T20:52:32.700Z
 tags: 
   - ai
   - animation videos
@@ -73,6 +73,10 @@ Here's how to create an awesome custom Slack emoji-
 
 ![Add Custom Slack Emoji](https://images.wondershare.com/filmora/article-images/add-custom-slack-emoji.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3.Here you can upload any image to make your custom Slack emoji. Click on **Upload** **Image** to select a file.
 
 ![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
@@ -94,10 +98,6 @@ Wondershare Filmora is a powerful video editor with a highly intuitive interface
 If you wish to edit or add custom Slack emoji to your video, you can import the image to Filmora and then drag it to the track above the video in the timeline. You can then add animations or motion tracking to adjust the custom Slack emoji. Cool transitions and color adjustments can also be made to make the video more appealing and unique. Special effects or catchy captions are just a tap away to help you create stunning videos
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -261,10 +261,6 @@ Here's how to create an awesome custom Slack emoji-
 
 ![Add Custom Slack Emoji](https://images.wondershare.com/filmora/article-images/add-custom-slack-emoji.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3.Here you can upload any image to make your custom Slack emoji. Click on **Upload** **Image** to select a file.
 
 ![Upload Slack Emoji](https://images.wondershare.com/filmora/article-images/upload-slack-emoji.jpg)
@@ -352,10 +348,6 @@ Here's how to create an awesome custom Slack emoji-
 1.On your workspace, click on your company name or icon to open the settings drop-down menu. Tap on **Settings&Administration<Customize.**
 
 ![Slack Custom Settings](https://images.wondershare.com/filmora/article-images/slack-custom-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 2.A new window will pop open. In the **Emoji** tab, click on **Add Custom Emoji.**
 
@@ -557,10 +549,6 @@ In this article, we will show you how to amaze your friends by teaching you to m
 * [Part 1: Make an Emoji of Yourself on iPhone](#part1)
 * [Part 2: Make an Emoji of Yourself on Android](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Make an Emoji of Yourself on iPhone
 
 iPhone has now introduced a fun feature that lets you make an emoji of yourself, the exact mirror image of you, just smaller and animated.
@@ -588,6 +576,10 @@ For the lucky lot of you, let me walk you through how to make an emoji of yourse
 4.Head Shape-Select the age group from kids, adults, old, and your face cut by choosing the chin that best fits you.
 
 ![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 5.Nose & Lips- After selecting your eye color, shape, and brows, choose a nose shape and a lipstick color and intensity.
 
@@ -899,10 +891,6 @@ Now you can make an emoji of yourself even on an Android phone with the Mirror e
 
 ![Share Emoji To Whatsapp](https://images.wondershare.com/filmora/article-images/share-emoji-to-whatsapp.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Conclusion-Ready to Emoji Yourself?
 
 With texts being taken over by stickers and emojis, it’s high time for you to enter the league. Make an emoji of yourself in different moods and add funny backgrounds to express yourself fully and hilariously.
@@ -920,7 +908,7 @@ Good luck!
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -1092,6 +1080,10 @@ Here's a guide on how to make memoji talk in 5 easy steps:
 5.The recorded talking memoji will be automatically sent to the opened chat and will also be saved to your gallery for easy sharing to other contacts or other platforms.
 
 ![Save Talking Memoji](https://images.wondershare.com/filmora/article-images/save-talking-memoji.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Make Memoji Talk on Android
 
@@ -1649,10 +1641,6 @@ But before you make a photo collage using iPhoto, here are some important things
 2. The templates iPhoto offers are quite limited and ordinary that you might feel a little disappointed.
 3. iPhoto offers no share options to save photo collages to desktop or to post on Facebook, which is a basic feature of picture collage editor.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Replaces iPhoto on Mac/iPhone?
 
 Since iPhoto's functions are not sufficient, we will introduce some alternative collage makers that you may be interested in.
@@ -1727,6 +1715,10 @@ Here is the guide for creating [best video meme](https://tools.techidaily.com/wo
 **Step 1**: Browse the official website to access Filmora online meme maker. Drag and drop or click to import video. Filmora meme maker can decode the video from the uploaded link itself.
 
 ![drag meme](https://images.wondershare.com/filmora/article-images/drag-memes-filmora-meme-maker.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2**: Navigate to the meme editor page once you have selected the video (GIF/image as well). From the left panel, customize your video meme. You can use [Filmora video trimmer](https://tools.techidaily.com/wondershare/filmora/download/) for cutting the video to fit your needs. Add text, alter fonts and preview the changes.
 
@@ -2321,10 +2313,6 @@ Features:
 
 ![Livememe](https://images.wondershare.com/filmora/article-images/Livememe.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 9. Canva
 
 Unlike other sites, Canva goes a step further and gives you professionally created templates that you can use for your memes. There are over a million stock photos available to you. It is a much larger selection than other sites.
@@ -2408,6 +2396,10 @@ Memes have become a central part of many online conversations. They pop up a lot
 With memes taking over popular culture, you may want to make a meme for yourself. By using a meme maker, you can do just that! Here is a look at the top 10+ best meme maker online options that you can use for free.
 
 ## 10+ Best Meme Makers Online
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. Filmora Free Meme Generator
 
@@ -2821,103 +2813,9 @@ For instance, when the star war movie is about to start at 7.45 and at 7.40 you 
 
 ![terriblefacebookmemes](https://images.wondershare.com/filmora/article-images/terriblefacebookmemes.JPG)
 
-### 8. /r/PewdiepieSubmissions
-
-/r/PewdiepieSubmissions let the users submit votes related to the competitions and submissions in pewdiepie. There are content policy violation rules where you must not post porn content or hate speech.
-
-For instance, a long-haired dead man was found standing behind a man working on the computer and his camera captured the image. It is thought to be a cursed image and if not liked and shared, it can bring ill-fate to you, or the dead person will be in your room at night.
-
-![pewdiepiesubmissions](https://images.wondershare.com/filmora/article-images/PewdiepieSubmissions.JPG)
-
-### 9. /r/funny
-
-It is the largest humor stock collection with about a 20.8million subscribers. For example, a badge with the Apple logo says, "Does more. Cost less. It's that simple. Apple." According to the meme, Apple has changed direction as APPLE product costs a bomb in recent times.
-
-![funny](https://images.wondershare.com/filmora/article-images/funny.JPG)
-
-### 10. /r/teenagers/
-
-With 767k subscribers, /r/teenagers/ is a teenager's community created only by teenagers. It is the funniest subreddit for discussing memes that teenagers enjoy thoroughly.
-
-Although there's no particular age specification to join, the target users are teenagers between 13-19\. One of the funniest subreddit memes shows how the teens are singing and playing instruments when they ask for $5 from Mom and get $10 in return. The joy is something out of the world.
-
-![teenagers](https://images.wondershare.com/filmora/article-images/teenagers.JPG)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
-Are you a memes lover? Reddit is the best hub for funny memes. However, all of the hilarious memes are deep under several subreddits. As these subreddits cover various topics, it can be difficult to find the most hysterical memes out of all.
-
-So, in this article, we have come up with 10 funniest subreddits to make you laugh. You need not worry further that you are unable to find the memes.
-
-## 10 Funniest Subreddits to Find Memes
-
-### 1. /r/AdviceAnimals
-
-On 7th December 2010, the /r/AdviceAnimals subreddit was created. It is simple and straight to understand. Advice Animals was firstly a memes category that showed memes like a business cat wearing a coat and tie or socially awkward penguin lacking confidence with some message or awful advice placed over the image.
-
-The funniest subreddits on /r/AdviceAnimals showed a Penguin with head and half body with the red background looking left, but the other half of the body and the feet turn right with a blue background. The memes read "Started going to the gym - Only at midnight, so there's nobody else there."/r/AdviceAnimals subreddit showed it as "there's someone else in the gym, so I left and made memes instead."
-
-![celaction2d](https://images.wondershare.com/filmora/article-images/AdviceAnimals.JPG)
-
-### 2. /r/MemeEconomy
-
-r/MemeEconomy is a quirky and funniest subreddit where real-world commodities are discussed through memes. There's no real money involved, but when a meme starts becoming popular, people opt to buy, and when emaciated, you sell.
-
-For instance, the frustration of a father is making him invest. The memes show a man sitting on the wall looking down and making his face, thinking when your son starts Fortnite dancing in public. You should have made sandwiches instead of making him.
-
-![memeeconomy](https://images.wondershare.com/filmora/article-images/MemeEconomy.JPG)
-
-### 3. /r/ComedyCemetery
-
-/r/ComedyCemetery is one of the funniest subreddit where the memes are shared by people and mocked them to try out their humor. To start with, users usually share internet culture pieces.
-
-You won't find any macro images or animal advice memes, ironical jokes allowed, poor titles and reposts, no harassment, or meta-posts. So, the simple yet funniest memes show a poem with various minion expressions, "Roses are red, violets are blue. The face like yours belongs to the zoo. Don't be said. I'll be there too. Not in the cage but laughing at you." Dedicating this song to a friend can create a laugh riot.
-
-![comedycemetery](https://images.wondershare.com/filmora/article-images/ComedyCemetery-meme.JPG)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-### 4. /r/memes
-
-The /r/memes/ is the funniest subreddits that use phrases to show the user's emotion, physical and mental state through the linked video or image. It has 1.7million subscribers. The statements used are often ironical on the image or videos. For instance, a meme shows Keanu Reeves running with a camera and a man trying to catch him. The caption says he stole the camera from the paparazzi and ran away.
-
-![memes](https://images.wondershare.com/filmora/article-images/memes.JPG)
-
-### 5. /r/dankmemes
-
-The funniest subreddits /r/dankmemes/ are the sarcastic expressions describing the viral media jokes that have lost their comedic value or the intentionally inexplicable cliché. For example, a 7 year old boy asks, "what's virgin?" and a 9yrs old boy reverts, "allow us to introduce ourselves."
-
-![dankmemes](https://images.wondershare.com/filmora/article-images/dankmemes.JPG)
-
-### 6. /r/PrequelMemes
-
-With 715k subscribers, /r/PrequelMemes deals usually with the star war memes. The photoshop memes or image macros series related to Star War films content is all about r/PrequelMemes. It helps to change the audience's opinion about the movie.
-
-For instance, when the star war movie is about to start at 7.45 and at 7.40 you reach and your dad is still left to carry your baby brother from his car seat. You see a character from the movie asking you to leave him or else you cannot make it in time for the movie.
-
-![prequeimemes](https://images.wondershare.com/filmora/article-images/PrequelMemes.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-### 7. /r/terriblefacebookmemes
-
-/r/terriblefacebookmemes is one of the funniest subreddits as it is a mixture of terribly shitty memes with various suggestions of granny-types. With around 216k subscribers, /r/terriblefacebookmemes is funny yet, relates to some old-fashioned ideas. For instance, a man thinking if the sun is said to be in space, why space doesn't have light and the earth instead has it?
-
-![terriblefacebookmemes](https://images.wondershare.com/filmora/article-images/terriblefacebookmemes.JPG)
 
 ### 8. /r/PewdiepieSubmissions
 
@@ -3065,6 +2963,10 @@ For instance, the frustration of a father is making him invest. The memes show a
 
 ![memeeconomy](https://images.wondershare.com/filmora/article-images/MemeEconomy.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. /r/ComedyCemetery
 
 /r/ComedyCemetery is one of the funniest subreddit where the memes are shared by people and mocked them to try out their humor. To start with, users usually share internet culture pieces.
@@ -3092,6 +2994,104 @@ With 715k subscribers, /r/PrequelMemes deals usually with the star war memes. Th
 For instance, when the star war movie is about to start at 7.45 and at 7.40 you reach and your dad is still left to carry your baby brother from his car seat. You see a character from the movie asking you to leave him or else you cannot make it in time for the movie.
 
 ![prequeimemes](https://images.wondershare.com/filmora/article-images/PrequelMemes.JPG)
+
+### 7. /r/terriblefacebookmemes
+
+/r/terriblefacebookmemes is one of the funniest subreddits as it is a mixture of terribly shitty memes with various suggestions of granny-types. With around 216k subscribers, /r/terriblefacebookmemes is funny yet, relates to some old-fashioned ideas. For instance, a man thinking if the sun is said to be in space, why space doesn't have light and the earth instead has it?
+
+![terriblefacebookmemes](https://images.wondershare.com/filmora/article-images/terriblefacebookmemes.JPG)
+
+### 8. /r/PewdiepieSubmissions
+
+/r/PewdiepieSubmissions let the users submit votes related to the competitions and submissions in pewdiepie. There are content policy violation rules where you must not post porn content or hate speech.
+
+For instance, a long-haired dead man was found standing behind a man working on the computer and his camera captured the image. It is thought to be a cursed image and if not liked and shared, it can bring ill-fate to you, or the dead person will be in your room at night.
+
+![pewdiepiesubmissions](https://images.wondershare.com/filmora/article-images/PewdiepieSubmissions.JPG)
+
+### 9. /r/funny
+
+It is the largest humor stock collection with about a 20.8million subscribers. For example, a badge with the Apple logo says, "Does more. Cost less. It's that simple. Apple." According to the meme, Apple has changed direction as APPLE product costs a bomb in recent times.
+
+![funny](https://images.wondershare.com/filmora/article-images/funny.JPG)
+
+### 10. /r/teenagers/
+
+With 767k subscribers, /r/teenagers/ is a teenager's community created only by teenagers. It is the funniest subreddit for discussing memes that teenagers enjoy thoroughly.
+
+Although there's no particular age specification to join, the target users are teenagers between 13-19\. One of the funniest subreddit memes shows how the teens are singing and playing instruments when they ask for $5 from Mom and get $10 in return. The joy is something out of the world.
+
+![teenagers](https://images.wondershare.com/filmora/article-images/teenagers.JPG)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+Are you a memes lover? Reddit is the best hub for funny memes. However, all of the hilarious memes are deep under several subreddits. As these subreddits cover various topics, it can be difficult to find the most hysterical memes out of all.
+
+So, in this article, we have come up with 10 funniest subreddits to make you laugh. You need not worry further that you are unable to find the memes.
+
+## 10 Funniest Subreddits to Find Memes
+
+### 1. /r/AdviceAnimals
+
+On 7th December 2010, the /r/AdviceAnimals subreddit was created. It is simple and straight to understand. Advice Animals was firstly a memes category that showed memes like a business cat wearing a coat and tie or socially awkward penguin lacking confidence with some message or awful advice placed over the image.
+
+The funniest subreddits on /r/AdviceAnimals showed a Penguin with head and half body with the red background looking left, but the other half of the body and the feet turn right with a blue background. The memes read "Started going to the gym - Only at midnight, so there's nobody else there."/r/AdviceAnimals subreddit showed it as "there's someone else in the gym, so I left and made memes instead."
+
+![celaction2d](https://images.wondershare.com/filmora/article-images/AdviceAnimals.JPG)
+
+### 2. /r/MemeEconomy
+
+r/MemeEconomy is a quirky and funniest subreddit where real-world commodities are discussed through memes. There's no real money involved, but when a meme starts becoming popular, people opt to buy, and when emaciated, you sell.
+
+For instance, the frustration of a father is making him invest. The memes show a man sitting on the wall looking down and making his face, thinking when your son starts Fortnite dancing in public. You should have made sandwiches instead of making him.
+
+![memeeconomy](https://images.wondershare.com/filmora/article-images/MemeEconomy.JPG)
+
+### 3. /r/ComedyCemetery
+
+/r/ComedyCemetery is one of the funniest subreddit where the memes are shared by people and mocked them to try out their humor. To start with, users usually share internet culture pieces.
+
+You won't find any macro images or animal advice memes, ironical jokes allowed, poor titles and reposts, no harassment, or meta-posts. So, the simple yet funniest memes show a poem with various minion expressions, "Roses are red, violets are blue. The face like yours belongs to the zoo. Don't be said. I'll be there too. Not in the cage but laughing at you." Dedicating this song to a friend can create a laugh riot.
+
+![comedycemetery](https://images.wondershare.com/filmora/article-images/ComedyCemetery-meme.JPG)
+
+### 4. /r/memes
+
+The /r/memes/ is the funniest subreddits that use phrases to show the user's emotion, physical and mental state through the linked video or image. It has 1.7million subscribers. The statements used are often ironical on the image or videos. For instance, a meme shows Keanu Reeves running with a camera and a man trying to catch him. The caption says he stole the camera from the paparazzi and ran away.
+
+![memes](https://images.wondershare.com/filmora/article-images/memes.JPG)
+
+### 5. /r/dankmemes
+
+The funniest subreddits /r/dankmemes/ are the sarcastic expressions describing the viral media jokes that have lost their comedic value or the intentionally inexplicable cliché. For example, a 7 year old boy asks, "what's virgin?" and a 9yrs old boy reverts, "allow us to introduce ourselves."
+
+![dankmemes](https://images.wondershare.com/filmora/article-images/dankmemes.JPG)
+
+### 6. /r/PrequelMemes
+
+With 715k subscribers, /r/PrequelMemes deals usually with the star war memes. The photoshop memes or image macros series related to Star War films content is all about r/PrequelMemes. It helps to change the audience's opinion about the movie.
+
+For instance, when the star war movie is about to start at 7.45 and at 7.40 you reach and your dad is still left to carry your baby brother from his car seat. You see a character from the movie asking you to leave him or else you cannot make it in time for the movie.
+
+![prequeimemes](https://images.wondershare.com/filmora/article-images/PrequelMemes.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7. /r/terriblefacebookmemes
 
@@ -3145,18 +3145,19 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-ultimate-guide-to-cinematography-on-youtube/"><u>[Updated] In 2024, The Ultimate Guide to Cinematography on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-universal-templates-galore-for-youtube-crafting/"><u>[Updated] In 2024, Universal Templates Galore – For YouTube Crafting</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-premium-templates-for-panzoid-introduction/"><u>[Updated] Premium Templates for Panzoid Introduction</u></a></li>
-<li><a href="https://win11.techidaily.com/harnessing-visual-upgrades-with-themes-from-microsoft-store/"><u>Harnessing Visual Upgrades with Themes From Microsoft Store</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/how-to-make-an-adorable-video-for-your-babys-first-year/"><u>How to Make an Adorable Video for Your Babys First Year</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-apple-iphone-14-plus-drfone-by-drfone-ios/"><u>How to Remove and Reset Face ID on Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-10-most-popular-minion-memes-that-moms-are-crazy-about/"><u>In 2024, 10 Most Popular Minion Memes that Moms Are Crazy About</u></a></li>
-<li><a href="https://windows11.techidaily.com/proactive-protection-with-powertoys-locksmith-toolkit/"><u>Proactive Protection with PowerToys' Locksmith Toolkit</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/top-10-storyboarding-software-freeandpaid/"><u>Top 10 Storyboarding Software Free&Paid</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/top-free-sites-to-stream-and-download-mix-tapes-online/"><u>Top Free Sites to Stream & Download Mix Tapes Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-what-is-emoji-and-what-does-it-mean/"><u>Updated 2024 Approved What Is Emoji and What Does It Mean?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-best-ios-and-android-apps-you-can-use-to-create-animoji-and-memoji-videos/"><u>Updated In 2024, Best iOS and Android Apps You Can Use to Create Animoji and Memoji Videos</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-mocking-sponge-bob-meme-generator/"><u>Updated In 2024, Mocking Sponge Bob Meme Generator</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-editors-dream-machine-top-portable-video-edits-tools/"><u>[New] 2024 Approved Editor's Dream Machine Top Portable Video Edits Tools</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-top-strategies-for-zoom-use-with-a-chrome-os-device/"><u>[New] 2024 Approved Top Strategies for Zoom Use with a Chrome OS Device</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-ideal-sites-convert-your-favorite-youtube-moments-into-ringtones/"><u>[Updated] Ideal Sites Convert Your Favorite YouTube Moments Into Ringtones</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/20-wonderful-stop-motion-ideas-for-beginners-and-kids/"><u>20 Wonderful Stop Motion Ideas for Beginners and Kids</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/best-websites-to-add-emojis-to-photos-online/"><u>Best Websites to Add Emojis to Photos Online</u></a></li>
+<li><a href="https://win11.techidaily.com/detailed-guide-to-applying-and-installing-from-the-ms-store/"><u>Detailed Guide to Applying and Installing From the MS Store</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/effortless-guide-transferring-images-from-your-iphone-to-mac-in-just-10-steps/"><u>Effortless Guide: Transferring Images From Your iPhone to Mac in Just 10 Steps</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-oppo-find-x7-ultra-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Oppo Find X7 Ultra Face Lock?</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-elite-selection-top-ranked-free-ae-templates/"><u>In 2024, Elite Selection Top-Ranked FREE AE Templates</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-exploring-youtubes-regular-income-mechanism/"><u>In 2024, Exploring YouTube's Regular Income Mechanism</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-flv-photo-slideshow/"><u>New In 2024, How to Make a FLV Photo Slideshow</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-a-triggered-meme/"><u>Updated 2024 Approved How to Make a Triggered Meme?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-an-adorable-video-for-your-babys-first-year-for-2024/"><u>Updated How to Make an Adorable Video for Your Babys First Year for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-a-meme-step-by-step/"><u>Updated In 2024, How to Make a Meme (Step by Step)</u></a></li>
 </ul></div>
 
