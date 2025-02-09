@@ -1,7 +1,7 @@
 ---
 title: Updated 2024 Approved What Is Emoji and What Does It Mean?
-date: 2025-01-20T18:15:21.731Z
-updated: 2025-01-27T22:11:19.341Z
+date: 2025-02-08T17:41:12.813Z
+updated: 2025-02-09T16:25:12.376Z
 tags: 
   - ai
   - animation videos
@@ -130,141 +130,10 @@ Some of the most commonly used categories that you must know after understanding
 * **Symbols** – This one consists of different types of symbols such as an equal to sign, stop sign, delta symbol, and many more
 * **Flags** – This category contains flags of almost all the countries of the world. These emojis are mostly used to illustrate your current or destination location for reference
 
-## Part 6: Tips of Using Emojis
-
-It is always a good idea to use emojis every now and then. However, using too many of them in your conversation might make the entire text look overly populated, and your communication partner may lose interest in you. Therefore, understanding when and how to use emojis is as important as it is to know **what the emoji means.**
-
-## Add Emojis to Video with Filmora
-
-![Add emojis to video with Filmora9](https://images.wondershare.com/filmora/article-images/emoji-effects-for-filmora.jpg)
-
-If you want to add animated emojis to video and share on social media, then Filmora is a good choice. Besides the built-in free animated emojis under Effects tab, you will also find some free or paid animated emojis or stickers on the effects store Filmstock. Download the free trial version of Filmora and create videos with fun.
-
-[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-If you ever wondered **what is emoji**, and how the term relates (or unrelates) to its elder sibling emoticon, you are at the right place. In the following sections, you will learn some quite interesting facts about the two, what different types of emojis are available, and what do they mean.
-
-Because understanding the meaning of emojis is more important as compared to knowing **what is an emoji** itself, here you will get all the related details, relevant answers, and some best practice tips.
-
-## Part 1: What Is an Emoji?
-
-![what is Emoji](https://images.wondershare.com/filmora/article-images/emojis.jpg)
-
-In a nutshell, an emoji is a graphical image that reflects a certain facial expression. Emojis are created using a drawing tool, and are incorporated into a unique 16-bit Unicode in order to make them compatible with operating systems of the most common devices and platforms like iOS, Android, macOS, and Windows.
-
-In addition to being merely a picture, emojis are also **animated** to exaggerate the message senders' emotions. You can find a couple of decent examples of such animations while using Skype messenger.
-
-The reason behind emojis being more popular than the emoticons used earlier is the close resemblance of the former to the real-like expressions that they reflect when sent to a recipient. Therefore, it would be safe to say that a single emoji could be worth several sentences while texting if used correctly.
-
-## Part 2: What are the Differences Between Emojis and Emoticons?
-
-As explained earlier, the emojis are graphical and sometimes animated Unicode illustrations that can be included in the text messages as objects.
-
-On the other hand, the emoticons are formed using the ASCII characters, and no specific coding is required at the users’ side to create them. Simply put, an emoticon can be easily added to a text message or even to an email merely by using a combination of letters on the keyboard.
-
-For instance, to create an emoticon of a smiley face, all you need to do is, type a colon sign along with a closing brace. (E.g. Typing a **:** and **)** without space will become a smiling face, a **:** and **(** will form a sad face, and so on).
-
-To be clearer, emojis can be considered an advanced, better, and evolved version of emoticons. While the latter can be formed using simple characters like letters and symbols, the former is inserted as an object in the text messages.
-
-## Part 3: Where to Find the Meaning of Emojis?
-
-Once you have understood **what emoji is**, it is now time to learn what the emojis mean. This part is imperative to ensure you don’t send a wrong emotional expression to your friends or family members, and get into some awkward situation after that.
-
-Below is a list of some useful online websites and dictionaries that can help you find correct emojis along with their meanings to make your text conversation more meaningful and interesting:
-
-### 1. Emojipedia
-
-<https://emojipedia.org/>
-
-![emojipedia](https://images.wondershare.com/filmora/article-images/emojipedia.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-Emojipedia is an online library that holds several emojis. All the emojis that the portal has are placed in their corresponding categories.
-
-Another section on the landing page of the website contains some of the most popular emojis, i.e. those that are mostly used by the texters during their conversions. Furthermore, the name of the emoji is present right next to it, and the entire part is hyperlinked which when clicked, takes you to a new page that has all the details about the object including its meaning, alternate names, and a button to copy the emoji to the clip board. The copied element can then be pasted in the text input field of a compatible messenger such as Facebook.
-
-### 2. EMOJI DICTIONARY
-
-<https://www.dictionary.com/e/emoji/>
-
-![Emoji dictionary](https://images.wondershare.com/filmora/article-images/emojis-dictionary.jpg)
-
-**EMOJI DICTIONARY** is another online portal that contains almost all the commonly used emojis. The upper section of the page is dedicated to ‘Featured Terms’ with a slider that has all the featured emojis. The next segment lists all the categories other than emojis.
-
-The bottom area of the landing page has all the emojis along with their names and/or the supported devices. All the names in the section are hyperlinked that open a new page when clicked, and show all the details such as examples, usage, and origin related to that particular emoji.
-
-### 3. Emoji Dictionary
-
-<https://emojidictionary.emojifoundation.com/>
-
-![Emoji dictionary emojifoundation](https://images.wondershare.com/filmora/article-images/emojis-dictionary-emojifoundation.jpg)
-
-This one is unique in its own way as in along with listing the most popular emojis and their names and definitions, it also allows you to include your own information in case you know something other than what is already present.
-
-In addition to displaying the top emojis right on the landing page, the portal also has a category list where each segment holds its corresponding objects. This helps in locating your favorite elements easily and quickly. Furthermore, when you click an emoji, a new page opens up with all its definition from different aspects such as nouns, verbs, etc., along with a ‘Copy’ button that lets you copy the image to the clipboard, and use it on a compatible messaging app.
-
-### 4. EmojiMeanings
-
-<https://www.emojimeanings.net/>
-
-![emojimeanings](https://images.wondershare.com/filmora/article-images/emojimeanings.jpg)
-
-The landing page of EmojiMeanings is populated with all the categories where each holds several relevant emojis, thus making it easier for the users to find and learn their meaning. The home page also has complete information about what emojis are, how they are different from emoticons, and what does the term ‘smiley’ actually mean.
-
-When you click a category, a new page opens up with three major columns titled as ‘Emoji’, ‘Meaning’, and ‘Unicode’ that show an emoji itself, explain what it means, and what Unicode is used to form it respectively. All the emojis on EmojiMeanings are usually compatible with WhatsApp and Facebook.
-
-### 5. HotEmoji
-
-<https://hotemoji.com/emoji-meanings.html>
-
-![hotemoji Emoji  meaning](https://images.wondershare.com/filmora/article-images/hotemoji-emoji-meanings.jpg)
-
-HotEmoji is yet another online portal that lists almost all the emojis along with their meanings. Each entry is hyperlinked which when clicked opens a new web page dedicated to that particular emoji where all the details about it are mentioned.
-
-The new page also has a ‘Copy’ button that can be used to copy the object to the clipboard, and then the element can be pasted onto any compatible messenger during a text conversation.
-
-## Part 4: How to Find Emoji on Any Device?
-
-While locating and inserting emojis on any messaging app on your smartphone is fairly simple as the messenger already has an icon that opens the entire emoji library when tapped, things are a bit tricky while using a Mac or Windows PC. Therefore, the following points explain how to find and use emojis on the computer running any of these operating systems:
-
-#### How to Find Emojis on Windows 8 and Windows 10
-
-On Windows 8 or Windows 10 computers, click the ‘Keyboard’ icon that is present in the ‘Notification area’ at the bottom-right corner of the screen, i.e. right side of the taskbar. When the list of emojis appears, you can click your favorite one and use it in the messenger.
-
-#### How to Find Emojis on macOS
-
-While using a Mac computer, you can open the app you want to add an emoji to, and then press the **ctrl** \+ **cmd** \+ **spacebar** keys on the keyboard.
-
-## Part 5: Most Common Emoji Categories
-
-![Emoji type: Smiley people](https://images.wondershare.com/filmora/article-images/smileys-people-emojis.jpg)
-
-Some of the most commonly used categories that you must know after understanding **what is an emoji** include:
-
-* **Smileys & People** – Holds the images of faces reflecting facial expressions and the vector images/animations of some popular people
-* **Animals & Nature** – Contains the images/animations of animals and other natural elements such as trees, rocks, mountains, etc.
-* **Food & Drink** – This category has vector images of beautifully decorated and well-aligned wine glasses, soft drink cans, pizza slices, etc.
-* **Activity** – Has the emojis that reflect certain actions such as dance stances, walking, running, etc.
-* **Travel & Places** – Is equipped with vectors of transportation mediums and locations such as trains, buses, buildings, banks, etc.
-* **Objects** – Is populated with miscellaneous objects like a pair of shoes, suits, clocks, socks, etc.
-* **Symbols** – This one consists of different types of symbols such as an equal to sign, stop sign, delta symbol, and many more
-* **Flags** – This category contains flags of almost all the countries of the world. These emojis are mostly used to illustrate your current or destination location for reference
-
 ## Part 6: Tips of Using Emojis
 
 It is always a good idea to use emojis every now and then. However, using too many of them in your conversation might make the entire text look overly populated, and your communication partner may lose interest in you. Therefore, understanding when and how to use emojis is as important as it is to know **what the emoji means.**
@@ -527,9 +396,136 @@ Some of the most commonly used categories that you must know after understanding
 * **Symbols** – This one consists of different types of symbols such as an equal to sign, stop sign, delta symbol, and many more
 * **Flags** – This category contains flags of almost all the countries of the world. These emojis are mostly used to illustrate your current or destination location for reference
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
+## Part 6: Tips of Using Emojis
+
+It is always a good idea to use emojis every now and then. However, using too many of them in your conversation might make the entire text look overly populated, and your communication partner may lose interest in you. Therefore, understanding when and how to use emojis is as important as it is to know **what the emoji means.**
+
+## Add Emojis to Video with Filmora
+
+![Add emojis to video with Filmora9](https://images.wondershare.com/filmora/article-images/emoji-effects-for-filmora.jpg)
+
+If you want to add animated emojis to video and share on social media, then Filmora is a good choice. Besides the built-in free animated emojis under Effects tab, you will also find some free or paid animated emojis or stickers on the effects store Filmstock. Download the free trial version of Filmora and create videos with fun.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+If you ever wondered **what is emoji**, and how the term relates (or unrelates) to its elder sibling emoticon, you are at the right place. In the following sections, you will learn some quite interesting facts about the two, what different types of emojis are available, and what do they mean.
+
+Because understanding the meaning of emojis is more important as compared to knowing **what is an emoji** itself, here you will get all the related details, relevant answers, and some best practice tips.
+
+## Part 1: What Is an Emoji?
+
+![what is Emoji](https://images.wondershare.com/filmora/article-images/emojis.jpg)
+
+In a nutshell, an emoji is a graphical image that reflects a certain facial expression. Emojis are created using a drawing tool, and are incorporated into a unique 16-bit Unicode in order to make them compatible with operating systems of the most common devices and platforms like iOS, Android, macOS, and Windows.
+
+In addition to being merely a picture, emojis are also **animated** to exaggerate the message senders' emotions. You can find a couple of decent examples of such animations while using Skype messenger.
+
+The reason behind emojis being more popular than the emoticons used earlier is the close resemblance of the former to the real-like expressions that they reflect when sent to a recipient. Therefore, it would be safe to say that a single emoji could be worth several sentences while texting if used correctly.
+
+## Part 2: What are the Differences Between Emojis and Emoticons?
+
+As explained earlier, the emojis are graphical and sometimes animated Unicode illustrations that can be included in the text messages as objects.
+
+On the other hand, the emoticons are formed using the ASCII characters, and no specific coding is required at the users’ side to create them. Simply put, an emoticon can be easily added to a text message or even to an email merely by using a combination of letters on the keyboard.
+
+For instance, to create an emoticon of a smiley face, all you need to do is, type a colon sign along with a closing brace. (E.g. Typing a **:** and **)** without space will become a smiling face, a **:** and **(** will form a sad face, and so on).
+
+To be clearer, emojis can be considered an advanced, better, and evolved version of emoticons. While the latter can be formed using simple characters like letters and symbols, the former is inserted as an object in the text messages.
+
+## Part 3: Where to Find the Meaning of Emojis?
+
+Once you have understood **what emoji is**, it is now time to learn what the emojis mean. This part is imperative to ensure you don’t send a wrong emotional expression to your friends or family members, and get into some awkward situation after that.
+
+Below is a list of some useful online websites and dictionaries that can help you find correct emojis along with their meanings to make your text conversation more meaningful and interesting:
+
+### 1. Emojipedia
+
+<https://emojipedia.org/>
+
+![emojipedia](https://images.wondershare.com/filmora/article-images/emojipedia.jpg)
+
+Emojipedia is an online library that holds several emojis. All the emojis that the portal has are placed in their corresponding categories.
+
+Another section on the landing page of the website contains some of the most popular emojis, i.e. those that are mostly used by the texters during their conversions. Furthermore, the name of the emoji is present right next to it, and the entire part is hyperlinked which when clicked, takes you to a new page that has all the details about the object including its meaning, alternate names, and a button to copy the emoji to the clip board. The copied element can then be pasted in the text input field of a compatible messenger such as Facebook.
+
+### 2. EMOJI DICTIONARY
+
+<https://www.dictionary.com/e/emoji/>
+
+![Emoji dictionary](https://images.wondershare.com/filmora/article-images/emojis-dictionary.jpg)
+
+**EMOJI DICTIONARY** is another online portal that contains almost all the commonly used emojis. The upper section of the page is dedicated to ‘Featured Terms’ with a slider that has all the featured emojis. The next segment lists all the categories other than emojis.
+
+The bottom area of the landing page has all the emojis along with their names and/or the supported devices. All the names in the section are hyperlinked that open a new page when clicked, and show all the details such as examples, usage, and origin related to that particular emoji.
+
+### 3. Emoji Dictionary
+
+<https://emojidictionary.emojifoundation.com/>
+
+![Emoji dictionary emojifoundation](https://images.wondershare.com/filmora/article-images/emojis-dictionary-emojifoundation.jpg)
+
+This one is unique in its own way as in along with listing the most popular emojis and their names and definitions, it also allows you to include your own information in case you know something other than what is already present.
+
+In addition to displaying the top emojis right on the landing page, the portal also has a category list where each segment holds its corresponding objects. This helps in locating your favorite elements easily and quickly. Furthermore, when you click an emoji, a new page opens up with all its definition from different aspects such as nouns, verbs, etc., along with a ‘Copy’ button that lets you copy the image to the clipboard, and use it on a compatible messaging app.
+
+### 4. EmojiMeanings
+
+<https://www.emojimeanings.net/>
+
+![emojimeanings](https://images.wondershare.com/filmora/article-images/emojimeanings.jpg)
+
+The landing page of EmojiMeanings is populated with all the categories where each holds several relevant emojis, thus making it easier for the users to find and learn their meaning. The home page also has complete information about what emojis are, how they are different from emoticons, and what does the term ‘smiley’ actually mean.
+
+When you click a category, a new page opens up with three major columns titled as ‘Emoji’, ‘Meaning’, and ‘Unicode’ that show an emoji itself, explain what it means, and what Unicode is used to form it respectively. All the emojis on EmojiMeanings are usually compatible with WhatsApp and Facebook.
+
+### 5. HotEmoji
+
+<https://hotemoji.com/emoji-meanings.html>
+
+![hotemoji Emoji  meaning](https://images.wondershare.com/filmora/article-images/hotemoji-emoji-meanings.jpg)
+
+HotEmoji is yet another online portal that lists almost all the emojis along with their meanings. Each entry is hyperlinked which when clicked opens a new web page dedicated to that particular emoji where all the details about it are mentioned.
+
+The new page also has a ‘Copy’ button that can be used to copy the object to the clipboard, and then the element can be pasted onto any compatible messenger during a text conversation.
+
+## Part 4: How to Find Emoji on Any Device?
+
+While locating and inserting emojis on any messaging app on your smartphone is fairly simple as the messenger already has an icon that opens the entire emoji library when tapped, things are a bit tricky while using a Mac or Windows PC. Therefore, the following points explain how to find and use emojis on the computer running any of these operating systems:
+
+#### How to Find Emojis on Windows 8 and Windows 10
+
+On Windows 8 or Windows 10 computers, click the ‘Keyboard’ icon that is present in the ‘Notification area’ at the bottom-right corner of the screen, i.e. right side of the taskbar. When the list of emojis appears, you can click your favorite one and use it in the messenger.
+
+#### How to Find Emojis on macOS
+
+While using a Mac computer, you can open the app you want to add an emoji to, and then press the **ctrl** \+ **cmd** \+ **spacebar** keys on the keyboard.
+
+## Part 5: Most Common Emoji Categories
+
+![Emoji type: Smiley people](https://images.wondershare.com/filmora/article-images/smileys-people-emojis.jpg)
+
+Some of the most commonly used categories that you must know after understanding **what is an emoji** include:
+
+* **Smileys & People** – Holds the images of faces reflecting facial expressions and the vector images/animations of some popular people
+* **Animals & Nature** – Contains the images/animations of animals and other natural elements such as trees, rocks, mountains, etc.
+* **Food & Drink** – This category has vector images of beautifully decorated and well-aligned wine glasses, soft drink cans, pizza slices, etc.
+* **Activity** – Has the emojis that reflect certain actions such as dance stances, walking, running, etc.
+* **Travel & Places** – Is equipped with vectors of transportation mediums and locations such as trains, buses, buildings, banks, etc.
+* **Objects** – Is populated with miscellaneous objects like a pair of shoes, suits, clocks, socks, etc.
+* **Symbols** – This one consists of different types of symbols such as an equal to sign, stop sign, delta symbol, and many more
+* **Flags** – This category contains flags of almost all the countries of the world. These emojis are mostly used to illustrate your current or destination location for reference
 
 ## Part 6: Tips of Using Emojis
 
@@ -713,6 +709,10 @@ In this article, you learned about the popular cartoon characters that made your
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -856,10 +856,6 @@ Winnie-the-Pooh was a cartoon character featured in 1928 in A.A Milne’s House 
 #### 10. Donald Duck
 
 Donald Duck is a cartoon character created by Walt Disney in 1934 with yellow legs and feet. Donald Duck wears a typical sailor shirt and a cap to look like a gentleman in every way. Donald Duck first appeared in The Wise Little Hen in 1934 and become one of the most popular characters with its style and anger-related issues. Though Donald Duck was very strict it inspired people to be gentle and easy with being tough.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -921,10 +917,6 @@ The Elements Tab contains different categories such as **Shapes, Badges or Pets.
 
 ![Add Emoji to Video in Filmora9](https://images.wondershare.com/filmora/article-images/emoji-animated-effects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###### Export the Project
 
 Preview the results by hitting the space button on your keyboard or clicking on the Play button that is located below the app’s preview window. In case you don’t want to make any more edits to the footage, you should click on the **Export button** and choose if you want to export your project to a hard drive on your computer or to your YouTube or Vimeo channel. Select the output file format, click on the Export and wait for the rendering process to be completed.
@@ -950,6 +942,10 @@ You should then place the emoji at the exact spot on the timeline where you want
 Waiting to edit the high-resolution videos you recorded with your iPhone on a computer is not always an option, because in certain situations you just want to polish a video you recorded and post it on social media as fast as you can. The Apple’s [Clip](https://itunes.apple.com/al/app/clips/id1212699939?mt=8) app that can be downloaded for free from the AppStore seems to be a perfect solution for all iPhone users who want to add emojis to their videos before sharing them on Facebook, Instagram or any other popular social media networks.
 
 The Clip app offers a rich selection of stickers and emojis that can be accessed by tapping on the icon that looks like a star within a circle. There are more than 30 emojis available, but you can also use the iPhone’s emoji keyboard to add emojis to videos in the Clip app. All of the app’s stickers and emojis are fully customizable, which means that you can change their size, screen position or insert text effortlessly. Once the video editing process is completed you can store a video on Dropbox or share it via AirDrop.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Best App for Adding Stickers and Emojis on Android Devices
 
@@ -996,10 +992,6 @@ The way we communicate has changed so much in the first two decades of the 21st 
 
 ## How to Add Animated Emojis to Videos in Flimora? \[Windows & Mac\][
 ![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Gamers, YouTubers and all other Mac and PC users who’d like to add a smiley or any other emoji to a video should try processing their footage with the Filmora [video editor](https://tools.techidaily.com/wondershare/filmora/download/). Performing basic video editing tasks like cutting or trimming the footage, choosing a soundtrack for a video or adding an emoji to a single shot or an entire sequence can all be completed in just a couple of clicks. Here’s how **you can add an emoji to a video clip in Filmora**.
 
@@ -1267,10 +1259,6 @@ Follow @Liza Brown
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Is This a Pigeon Meme Generator
 
 # Is This a Pigeon Meme Generator
@@ -1325,59 +1313,9 @@ Copy the image
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-Ollie Mattison
-
-Ollie Mattison is a writer and a lover of all things video.
-
-Follow @Ollie Mattison
-
-##### Ollie Mattison
-
- Mar 27, 2024• Proven solutions
-
- Have you ever been so confused that you thought that a butterfly is a pigeon? Apparently, the main protagonist of _The Brave Fighter of Sun Fighbird_ from the Japanese anime TV series has. In an episode that was released in January 1991, Yutaro Katori seriously asked '_is this a pigeon_?' while looking at a butterfly. At first, everyone thought that it was just a poor translation, but it turned out that the translation was correct, which turned this still frame into a meme as early as 2011.
-
- After a while, the Is This a Pigeon meme came out of fashion, but at the beginning of 2018, it went viral again. Today the meme is used to express all sorts of confusing opinions, that range from popular culture references to philosophical questions. If you're utterly confused in certain situations or if you simply like making Is This a Pigeon meme, you're at the right place because in this article we're going to show you how you can generate these memes in a couple of simple steps.
-
-## How to Make Is This a Pigeon Meme?
-
- There are hundreds of meme makers online, but some of them watermark your memes, require you to create an account or want to charge you for the service. That's why we recommend using Filmora Online Meme Maker that is free to use, produces watermark-free memes, and it doesn't require you to sign in. Here's how you can make a meme with this online meme maker:
-
-#### 1\. Importing Images
-
- You can copy the picture's URL by clicking 'Copy the image' link below the image and import the template into the [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) directly from the web.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
-
-Copy the image
-
- If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
-
-![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
-
-#### 2\. Adding the Text to the Meme
-
- Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
-
- You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
-
- In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
-
-#### 3\. Downloading Memes
-
-![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
-
- Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
-
-### Conclusion
-
- Being confused can be hilarious, which is one of the reasons why Is this a Pigeon meme has been so popular over the course of the last year. Generating a meme is easy, so you can focus on finding an appropriate joke for this type of meme. Do you often make Is this a Pigeon memes? Leave a comment and share your favorites with us.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -1456,6 +1394,64 @@ Follow @Ollie Mattison
  You can copy the picture's URL by clicking 'Copy the image' link below the image and import the template into the [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) directly from the web.
 
 ![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
+
+Copy the image
+
+ If you choose to upload a photo from your computer or a Smartphone, you can just drag and drop the file from a folder to the webpage or you can click on the + icon and navigate to the folder on your hard drive where the template is stored. Fimora Online Meme Maker also lets you use GIFs and videos to generate memes.
+
+![](https://images.wondershare.com/filmora/article-images/upload-by-entering-link.jpg)
+
+#### 2\. Adding the Text to the Meme
+
+ Immediately after the image is uploaded, a new page will load, where you can add the text to the meme you're creating. The text in the Is this a pigeon meme is usually inside the picture so you can just select the Text Inside option and proceed to insert the text into the text boxes below.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-text.JPG)
+
+ You can add as many text boxes as you want, and you can drag the text displayed across the picture and place it where ever you want. When creating the Is this a Pigeon meme, the text that refers to the source of the confusion should be next to the butterfly, while the question is most often located near the bottom of the picture. Optionally, you can reveal who is asking the question by adding me, my mom or Darth Vader next to the character in the picture.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeon-meme-edit.JPG)
+
+ In the Text Options menu, you can adjust the size of the text in each text box individually, change its color or choose between standard text alignment options. Hit the Create button when you're done and wait for a new page to load.
+
+#### 3\. Downloading Memes
+
+![](https://images.wondershare.com/filmora/article-images/this-is-pigeo-meme-export.JPG)
+
+ Click on the download button to add a new meme to your collection. Sharing files directly to social media from Filmora Online Meme Maker is not an option if you're making memes from a Mac or PC computer.
+
+### Conclusion
+
+ Being confused can be hilarious, which is one of the reasons why Is this a Pigeon meme has been so popular over the course of the last year. Generating a meme is easy, so you can focus on finding an appropriate joke for this type of meme. Do you often make Is this a Pigeon memes? Leave a comment and share your favorites with us.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+Ollie Mattison
+
+Ollie Mattison is a writer and a lover of all things video.
+
+Follow @Ollie Mattison
+
+##### Ollie Mattison
+
+ Mar 27, 2024• Proven solutions
+
+ Have you ever been so confused that you thought that a butterfly is a pigeon? Apparently, the main protagonist of _The Brave Fighter of Sun Fighbird_ from the Japanese anime TV series has. In an episode that was released in January 1991, Yutaro Katori seriously asked '_is this a pigeon_?' while looking at a butterfly. At first, everyone thought that it was just a poor translation, but it turned out that the translation was correct, which turned this still frame into a meme as early as 2011.
+
+ After a while, the Is This a Pigeon meme came out of fashion, but at the beginning of 2018, it went viral again. Today the meme is used to express all sorts of confusing opinions, that range from popular culture references to philosophical questions. If you're utterly confused in certain situations or if you simply like making Is This a Pigeon meme, you're at the right place because in this article we're going to show you how you can generate these memes in a couple of simple steps.
+
+## How to Make Is This a Pigeon Meme?
+
+ There are hundreds of meme makers online, but some of them watermark your memes, require you to create an account or want to charge you for the service. That's why we recommend using Filmora Online Meme Maker that is free to use, produces watermark-free memes, and it doesn't require you to sign in. Here's how you can make a meme with this online meme maker:
+
+#### 1\. Importing Images
+
+ You can copy the picture's URL by clicking 'Copy the image' link below the image and import the template into the [Filmora Online Meme Maker](https://tools.techidaily.com/wondershare/filmora/download/) directly from the web.
+
+![](https://images.wondershare.com/filmora/article-images/this-is-a-pigeon.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Copy the image
 
@@ -2211,6 +2207,10 @@ As the name indicates, [Disney Emoji Maker](https://lol.disney.com/games/disney-
 
 ![emojily create emoji](https://images.wondershare.com/filmora/article-images/10-emojily-maker.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Price:**
 
 * Free
@@ -2469,10 +2469,6 @@ As the name indicates, [Disney Emoji Maker](https://lol.disney.com/games/disney-
 
 ![emojily create emoji](https://images.wondershare.com/filmora/article-images/10-emojily-maker.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Price:**
 
 * Free
@@ -2508,6 +2504,10 @@ Adding emoji to videos has been a trend for some time. It is fun as well as allo
 3\. Tap on the Elements tab at the top and tap on the Emoji category on the side. A list of emoji elements will be displayed to you.
 
 ![find free emoji](https://images.wondershare.com/filmora/article-images/filmora-built-in-emoji3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 4\. Or you can go to [Wondershare Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) (Filmora's effects store), find the free Animated Emoji Pack and download more emojis.
 
@@ -2596,14 +2596,6 @@ Now that you have created your desired meme, save it on your Mac device. Then sh
 
 ![funny meme](https://images.wondershare.com/filmora/Mac-articles/funny-meme.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Steps of Creating Video or GIF Meme Using FilmoraX
 
 You can also use a video editor to create your Video or make meme in GIF. With FilmoraX, it is easy to do so. In case you want to make meme, but are new to this process, then FilmoraX is just the perfect tool for you. With the help of this meme maker, you can easily create a video, GIF, and image memes.
@@ -2838,10 +2830,6 @@ The first thing that you have to do is download and install FilmoraX on Mac in c
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 2. Drag and Drop the Video
 
 Now that you have the meme maker, drag and drop on the video that you want. This will import the video to the meme maker.
@@ -2885,6 +2873,10 @@ Memes can be of different types but what matters the most is they make the viewe
 Learn More: [10 Best Meme Maker App or Website You Need to Know>>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -2951,6 +2943,10 @@ The first thing that you have to do is download and install FilmoraX on Mac in c
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2. Drag and Drop the Video
 
 Now that you have the meme maker, drag and drop on the video that you want. This will import the video to the meme maker.
@@ -2994,6 +2990,10 @@ Memes can be of different types but what matters the most is they make the viewe
 Learn More: [10 Best Meme Maker App or Website You Need to Know>>>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -3017,20 +3017,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-unveiling-immersion-the-lg-360-virtual-reality-experience/"><u>[New] In 2024, Unveiling Immersion The LG 360 Virtual Reality Experience</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtube-for-filmmakers-revolutionizing-visual-storytelling/"><u>[New] Youtube for Filmmakers Revolutionizing Visual Storytelling</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-craft-a-vibrant-youtube-experience-with-tracks-for-2024/"><u>[Updated] Craft a Vibrant Youtube Experience with Tracks for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-digital-video-conquerors-ultimate-toolkit-list/"><u>[Updated] In 2024, Digital Video Conquerors' Ultimate Toolkit List</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-craft-stunning-designs-learn-to-cleanse-images-background-in-canva/"><u>2024 Approved Craft Stunning Designs Learn to Cleanse Images' Background in Canva</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/artificial-intelligence-in-mental-wellness-unveiling-the-9-potential-pitfalls/"><u>Artificial Intelligence in Mental Wellness: Unveiling the 9 Potential Pitfalls</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-tips-for-reactivating-night-light-functionality-in-windows-1011-devices/"><u>Expert Tips for Reactivating Night Light Functionality in Windows 10/11 Devices</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-samsung-galaxy-f14-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Samsung Galaxy F14 5G to Protect Your Individual Information</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-10-free-online-sticker-makers-to-make-your-own-stickers/"><u>New 10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-how-to-make-a-slideshow-with-music/"><u>New 2024 Approved How to Make a Slideshow with Music</u></a></li>
-<li><a href="https://win11.techidaily.com/step-by-step-guide-recording-your-tango-calls-across-all-platforms/"><u>Step-by-Step Guide: Recording Your Tango Calls Across All Platforms</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-how-to-make-a-photo-collage-using-iphoto/"><u>Updated 2024 Approved How to Make a Photo Collage Using iPhoto?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-best-10-free-manga-sites-to-read-online/"><u>Updated Best 10 Free Manga Sites to Read Online</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-best-photo-slideshow-maker-how-to-make-a-photo-slideshow-2023-update/"><u>Updated Best Photo Slideshow Maker How to Make a Photo Slideshow 2023 Update</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-burn-photos-to-dvd-how-to-burn-photos-to-dvd-with-transitions-and-music-for-2024/"><u>Updated Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-capturing-crystal-clear-photos-without-spending/"><u>[New] Capturing Crystal Clear Photos Without Spending</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rafting-the-perfect-gaming-channel-header/"><u>[New] Crafting the Perfect Gaming Channel Header</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-stepwise-journey-to-excellence-in-voice-memos-for-2024/"><u>[New] Stepwise Journey to Excellence in Voice Memos for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-a-triggered-meme/"><u>2024 Approved How to Make a Triggered Meme?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/p-dive-into-youtubes-latest-monetization-policy/"><u>A Deep Dive Into YouTube's Latest Monetization Policy</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-redmi-k70-pro-has-native-mkv-support-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Redmi K70 Pro has native MKV support?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/effortless-conversion-techniques-for-changing-mkv-to-mpeg-crafted-videos/"><u>Effortless Conversion Techniques for Changing MKV to MPEG-Crafted Videos</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/guia-facil-para-restaurar-todos-tus-archivos-con-diskpart-limpiador/"><u>Guía Fácil Para Restaurar Todos Tus Archivos Con Diskpart Limpiador</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-flv-photo-slideshow-with-music-for-2024/"><u>How to Make a FLV Photo Slideshow with Music for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streamline-caption-insertion-photos-app-tutorials-for-win-11/"><u>Streamline Caption Insertion Photos App Tutorials for WIN 11</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-10-popular-cartoon-characters-that-should-top-your-list/"><u>Updated 10 Popular Cartoon Characters That Should Top Your List</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-solarmovie-alternatives-watch-movies-online/"><u>Updated 2024 Approved Best SolarMovie Alternatives-Watch Movies Online</u></a></li>
 </ul></div>
 
