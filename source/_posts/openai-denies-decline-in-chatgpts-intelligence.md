@@ -1,7 +1,7 @@
 ---
 title: OpenAI Denies Decline in ChatGPT's Intelligence
-date: 2025-02-04T16:24:10.941Z
-updated: 2025-02-09T16:38:18.692Z
+date: 2025-02-13T18:30:08.596Z
+updated: 2025-02-19T17:38:31.306Z
 tags:
   - chatgpt
   - open-ai
@@ -15,10 +15,6 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
 ## ChatGPT or Gemini? Assessing the Strengths of Google's Newest Artificial Intelligence
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Quick Links
 
 * [What Is Google's Gemini AI Model?](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#what-is-google-39-s-gemini-ai-model)
@@ -27,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 * [Is Gemini Better than ChatGPT?](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#is-gemini-better-than-chatgpt)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Key Takeaways
@@ -41,6 +37,10 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
  When Google launched Bard in March 2023, there were many reasons to be excited. Finally, OpenAI's ChatGPT monopoly would be broken, and we'd get worthy competition.
 
  But Bard was never the AI titan people hoped for, and GPT-4 remains the dominant generative AI chat bot platform. Now, Google's Gemini is here—but is the long-awaited AI model better than ChatGPT?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What Is Google's Gemini AI Model?
 
@@ -60,10 +60,6 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
  Gemini Ultra can also understand, explain, and generate high-quality code in some of the world's most popular programming languages, including Go, JavaScript, Python, Java, and C++. On paper, these are all great results. But these are all benchmarks, and benchmarks do not always tell the whole story. So, how well does Gemini perform in real-world tasks?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Use Google Gemini AI
 
  Of the three variants of the Gemini AI model, you can start using Gemini Pro right now. Gemini Pro is currently available on Google's Bard chatbot. To use Gemini Pro with Bard, head to[bard.google.com](http://bard.google.com/chat) and sign in with your Google account.
@@ -80,9 +76,17 @@ thumbnail: https://thmb.techidaily.com/38249dc1564a485522fb48e31e168d5147b5976c3
 
 ![Bard answers Math question](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/bard-answers-math-question.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 We tried ChatGPT running on GPT-3.5\. The first trial got it right.
 
 ![ChatGPT answers math question](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/chatgpt-answers-math-question.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To test Gemini's image interpretation abilities, we tasked it with interpreting some popular memes. It declined, saying it can't interpret images with people in it. ChatGPT, running GPT-4V, was willing and able to do so flawlessly.
 
@@ -91,6 +95,10 @@ We tried ChatGPT running on GPT-3.5\. The first trial got it right.
 Here's the source screenshot.
 
 ![screenshot of Chatbase chatbot creator](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/screenshot-to-replicate.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Below is Gemini Pro's attempt to interpret and replicate the screenshot using HTML and CSS.
 
@@ -104,19 +112,11 @@ Here's the source screenshot.
 
 ![Bard running Gemini Pro writes a poem](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/bard-writes-peom.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  At this point, we thought comparing the results against GPT-3.5 rather than the supercharged GPT-4 would be more appropriate. So, we asked ChatGPT running GPT-3.5 to create a similar poem.
 
 ![ChatGPT writes poem](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/chatgpt-writes-poem.jpg)
 
  It may be a personal choice, but Gemini Pro's take on this seems better. But we'll let you be the judge.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Is Gemini Better than ChatGPT?
 
@@ -139,20 +139,16 @@ Here's the source screenshot.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-noworrycapture-quick-and-easy-win11-recordings/"><u>[New] 2024 Approved NoWorryCapture - Quick and Easy Win11 Recordings</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-top-6-best-capture-cards-for-nintendo-switch-you-can-find/"><u>[New] 2024 Approved Top 6 Best Capture Cards for Nintendo Switch You Can Find</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-free-best-youtube-video-editor-apps-for-android/"><u>[Updated] 2024 Approved FREE Best YouTube Video Editor Apps for Android</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-understanding-sudden-pause-in-photobooth-videos/"><u>[Updated] Understanding Sudden Pause in Photobooth Videos</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-add-stickers-to-whatsapp-the-ultimate-guide/"><u>2024 Approved How to Add Stickers to WhatsApp-The Ultimate Guide</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-a-video-for-your-babys-first-year/"><u>2024 Approved How to Make a Video for Your Babys First Year</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-memes-with-white-background-step-by-step/"><u>In 2024, How to Make Memes with White Background Step by Step</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-burn-photos-to-dvd-how-to-burn-photos-to-dvd-with-transitions-and-music/"><u>New Burn Photos to DVD | How to Burn Photos to DVD with Transitions and Music</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-an-emoji-of-yourself-on-mobile-emoji-yourself/"><u>New How to Make an Emoji of Yourself on Mobile ? Emoji Yourself</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolve-turn-back-on-protection-features-for-local-security-management/"><u>Resolve: Turn Back On Protection Features for Local Security Management</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-effective-techniques-for-deep-cleaning-your-mechanical-keyboard/"><u>Step-by-Step Guide: Effective Techniques for Deep Cleaning Your Mechanical Keyboard</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-first-step-understanding-counting-in-the-russian-language/"><u>The First Step: Understanding Counting in the Russian Language</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-infinix-hot-30-5g-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Infinix Hot 30 5G</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-a-video-meme-with-4-best-meme-video-makers/"><u>Updated In 2024, How to Make a Video Meme with 4 Best Meme Video Makers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-top-5-best-websites-to-add-emojis-to-photo-online/"><u>Updated In 2024, Top 5 Best Websites to Add Emojis to Photo Online</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-revolutionize-your-instagram-content-with-these-4-loopy-techniques/"><u>[New] 2024 Approved Revolutionize Your Instagram Content with These 4 Loopy Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-beyond-viral-tactics-uncovering-the-facts-about-reels-on-instagram/"><u>[Updated] 2024 Approved Beyond Viral Tactics Uncovering the Facts About Reels on Instagram</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/7-free-apps-to-get-emojis-on-android-and-iphone/"><u>7 Free Apps to Get Emojis on Android and iPhone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/essential-websites-for-efficiently-locating-an-ideal-studio-or-condo/"><u>Essential Websites for Efficiently Locating an Ideal Studio or Condo</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-add-emojis-to-videos-on-youtubefacebooksnapchat-step-by-step-guide/"><u>In 2024, Add Emojis to Videos on YouTube/Facebook/Snapchat Step by Step Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-building-an-online-empire-through-effective-marketing/"><u>In 2024, Building an Online Empire Through Effective Marketing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-easy-steps-to-screen-record-on-macbook-air/"><u>In 2024, Easy Steps to Screen Record on Macbook Air</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-add-emojis-to-discord/"><u>In 2024, How to Add Emojis To Discord</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-a-meme-step-by-step/"><u>New How to Make a Meme (Step by Step)</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-halo-infinite-resolving-our-data-center-didnt-ping-back-errors/"><u>Troubleshooting Halo Infinite: Resolving ‘Our Data Center Didn’t Ping Back’ Errors</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-memes-on-iphone-and-android/"><u>Updated How to Make Memes on iPhone and Android</u></a></li>
 </ul></div>
 

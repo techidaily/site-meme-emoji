@@ -1,7 +1,7 @@
 ---
 title: New How to Edit Memoji on Android and iPhone for 2024
-date: 2025-02-06T18:17:53.512Z
-updated: 2025-02-09T18:18:29.427Z
+date: 2025-02-18T17:49:50.530Z
+updated: 2025-02-19T17:52:24.377Z
 tags: 
   - ai
   - animation videos
@@ -101,6 +101,10 @@ Let me show the easy ways how to edit memoji using Avatoons powerful tools
 
 ![Decorate Memoji](https://images.wondershare.com/filmora/article-images/decorate-memoji.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Edit Memoji on Android
 
 MojiPop is an amazing free app to make a custom emoji. It is packed with stickers and animated caricatures for every mood or emotion. Just take a selfie and start communicating using your cartoon face. You can even edit your memojis to suit your style. Then send the memoji to your friends to surprise them with a hilarious custom memoji
@@ -122,6 +126,10 @@ If you're wondering how to edit memoji, here's a short guide for you:
 * In the Discovertab, choose a gif template to wish someone or express your feelings.
 
 ![Choose Gif Template](https://images.wondershare.com/filmora/article-images/choose-gif-template.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click on the Share icon and choose the platform for instant sharing
 
@@ -225,6 +233,10 @@ Let me show the easy ways how to edit memoji using Avatoons powerful tools
 
 ![Decorate Memoji](https://images.wondershare.com/filmora/article-images/decorate-memoji.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Edit Memoji on Android
 
 MojiPop is an amazing free app to make a custom emoji. It is packed with stickers and animated caricatures for every mood or emotion. Just take a selfie and start communicating using your cartoon face. You can even edit your memojis to suit your style. Then send the memoji to your friends to surprise them with a hilarious custom memoji
@@ -344,6 +356,10 @@ Let me show the easy ways how to edit memoji using Avatoons powerful tools
 * Click on the Photobooth at the bottom to choose a cool background for your memoji.
 
 ![Find Photo Booth](https://images.wondershare.com/filmora/article-images/find-photo-booth.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Once you have decorated the memoji, tap on Poses, choose the mood you like and instantly share via different sharing platforms
 
@@ -1101,337 +1117,337 @@ After launching iMovie, click the Project button and then click Create New. Sele
 
 ![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
 
-#### 2. Import Photos, Videos, and Audio Files
-
-Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
-
-#### 3. Arrange Media in Timeline and Adjust
-
-Now, it’s time to place all these photos and videos in the timeline in order and do some adjustments. You can use the Magic Wand tool to improve the photo quality automatically, do some color correction, or add a filter to the photo. If you preview the video clip, you will see more options that allow you to do more editing, such as changing speed.
-
-#### 4. Apply Transitions & Effects
-
-Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
-
-#### 5. Add Titles and Text
-
-Using some opener titles and credits at the beginning and ending part of your slideshow will make it cool as well. You can add some famous quotes and words to better demonstrate.
-
-Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
-
-#### 6. Add Music to Slideshow
-
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### 7. Export and Share Your Slideshow video
-
-Play the slideshow and check the result in the preview window. If everything goes well, you can now export and share or save it. You can save the slideshow video in MP4 format, or share it to Vimeo or add the slideshow to Theater to load it on your other Apple devices so you can easily watch it on your iOS devices or Apple TV.
-
-I hope the above tutorial about how to make a slideshow on iMovie will be helpful for your stunning slideshow creation.
-
-If you're running an old macOS version and having iPhoto installed on your Mac, here are the detailed steps about How to make slideshow in iMovie with iPhoto project.
-
-#### Step 1. Import Photos from the iPhoto Library
-
-iMovie works seamlessly with iPhoto. You are suggested to drag and drop photos from iPhoto to the iMovie project. If no library exists in iPhoto, create one and import photos to iPhoto first. To add videos, you could go to either "File/Import" or Event Library, and then drag and drop selected videos to the timeline.
-
-After photos and videos are imported to the iMovie slideshow project, you can preview the raw slideshow simply by pressing Space bar on your keyboard. And then make adjustments to clips and transitions. For example, mouse over one clip or "double arrow" button and click on the settings icon, then you could access clip adjustment, video adjustment, transition adjustment, etc.
-
-![make imovie slideshow](https://images.wondershare.com/topic/video-editing/select-photos-to-imovie.jpg "make imovie slideshow")
-
-#### Step 2. Add Music to Your iMovie Slideshow Project
-
-Music sets the tone of your slideshow. Adding musing to the iMovie slideshow is just as simple as adding photos and videos.
-
-So click the audio icon in the bottom right corner, and drag and drop the desired audio file to the timeline. Multiple songs could be added to iMovie.
-
-However, iMovie doesn't support multiple soundtracks. If necessary, you need to combine multiple song tracks with an external audio editor before importing them to the iMovie slideshow. You can also apply audio effects and filter sound using an equalizer.
-
-![make imovie slideshow](https://images.wondershare.com/topic/video-editing/add-backgound-music-to-imovie.jpg "make imovie slideshow")
-
-#### Step 3. Export Your iMovie Slideshow Video
-
-iMovie makes sharing possibilities endless. For those who upload their videos online, iMovie allows users to directly upload to MobileMe Gallery, YouTube, Facebook, Vimeo, CNN iReport, etc.
-
-If you select to share the iMovie slideshow using Media Browser, you will get a slideshow appeared in other Mac applications like iWeb. It's a good idea to export the iMovie slideshow to iTunes so that you can play back slideshow quickly and easily sync with your mobile devices like iPhone, iPod, and iPad.
-
-![make imovie slideshow](https://images.wondershare.com/topic/photo-editing/imovie-slideshow-share.jpg "make imovie slideshow")
-
-**You may also like:** [How to Add Text with iMovie in Mac and iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Recommendation: Create Slideshow on Mac with More Templates and Transitions with Filmora
-
-If you want to make a slideshow with some templates on Mac, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora can turn photos and videos into attractive slideshow videos with various inbuilt filters, transitions, elements, animations, effects, and overlays. Click the Free Download button and have a try.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Check the ultimate guide about [making a slideshow with music and titles in Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-If you are going to make a slideshow with music on Windows, you may need a slideshow-making tool to do it by yourself. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) will also be a good choice. It helps you instantly make such an impressive slideshow from photos and videos for sharing virtually anywhere.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Makings a slideshow is a great way to share photos and videos with friends and families. The good news is that you can totally make a slideshow on Mac for free with iMovie. iMovie is the pre-installed program coming with every new Mac. It provides a simple yet professional way to make slideshow movies from your photos, videos, and music.
-
-If you haven’t iMovie installed on your Mac yet, just go to iTunes and download it for free. In the following part, I’ll share with you the step-by-step tutorial on how to make a slideshow on Mac using the free video editing software iMovie.
-
-If you are an iOS user, check our picks of [best photo slideshow apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhone or iPad.
-
-## Ways for iMovie Photo Slideshow with Music Making
-
-To make a photo slideshow with music in iMovie, you can follow these steps.
-
-#### 1. Create a New Project
-
-After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
-
-#### 2. Import Photos, Videos, and Audio Files
-
-Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
-
-#### 3. Arrange Media in Timeline and Adjust
-
-Now, it’s time to place all these photos and videos in the timeline in order and do some adjustments. You can use the Magic Wand tool to improve the photo quality automatically, do some color correction, or add a filter to the photo. If you preview the video clip, you will see more options that allow you to do more editing, such as changing speed.
-
-#### 4. Apply Transitions & Effects
-
-Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
-
-#### 5. Add Titles and Text
-
-Using some opener titles and credits at the beginning and ending part of your slideshow will make it cool as well. You can add some famous quotes and words to better demonstrate.
-
-Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
-
-#### 6. Add Music to Slideshow
-
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### 7. Export and Share Your Slideshow video
-
-Play the slideshow and check the result in the preview window. If everything goes well, you can now export and share or save it. You can save the slideshow video in MP4 format, or share it to Vimeo or add the slideshow to Theater to load it on your other Apple devices so you can easily watch it on your iOS devices or Apple TV.
-
-I hope the above tutorial about how to make a slideshow on iMovie will be helpful for your stunning slideshow creation.
-
-If you're running an old macOS version and having iPhoto installed on your Mac, here are the detailed steps about How to make slideshow in iMovie with iPhoto project.
-
-#### Step 1. Import Photos from the iPhoto Library
-
-iMovie works seamlessly with iPhoto. You are suggested to drag and drop photos from iPhoto to the iMovie project. If no library exists in iPhoto, create one and import photos to iPhoto first. To add videos, you could go to either "File/Import" or Event Library, and then drag and drop selected videos to the timeline.
-
-After photos and videos are imported to the iMovie slideshow project, you can preview the raw slideshow simply by pressing Space bar on your keyboard. And then make adjustments to clips and transitions. For example, mouse over one clip or "double arrow" button and click on the settings icon, then you could access clip adjustment, video adjustment, transition adjustment, etc.
-
-![make imovie slideshow](https://images.wondershare.com/topic/video-editing/select-photos-to-imovie.jpg "make imovie slideshow")
-
-#### Step 2. Add Music to Your iMovie Slideshow Project
-
-Music sets the tone of your slideshow. Adding musing to the iMovie slideshow is just as simple as adding photos and videos.
-
-So click the audio icon in the bottom right corner, and drag and drop the desired audio file to the timeline. Multiple songs could be added to iMovie.
-
-However, iMovie doesn't support multiple soundtracks. If necessary, you need to combine multiple song tracks with an external audio editor before importing them to the iMovie slideshow. You can also apply audio effects and filter sound using an equalizer.
-
-![make imovie slideshow](https://images.wondershare.com/topic/video-editing/add-backgound-music-to-imovie.jpg "make imovie slideshow")
-
-#### Step 3. Export Your iMovie Slideshow Video
-
-iMovie makes sharing possibilities endless. For those who upload their videos online, iMovie allows users to directly upload to MobileMe Gallery, YouTube, Facebook, Vimeo, CNN iReport, etc.
-
-If you select to share the iMovie slideshow using Media Browser, you will get a slideshow appeared in other Mac applications like iWeb. It's a good idea to export the iMovie slideshow to iTunes so that you can play back slideshow quickly and easily sync with your mobile devices like iPhone, iPod, and iPad.
-
-![make imovie slideshow](https://images.wondershare.com/topic/photo-editing/imovie-slideshow-share.jpg "make imovie slideshow")
-
-**You may also like:** [How to Add Text with iMovie in Mac and iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Recommendation: Create Slideshow on Mac with More Templates and Transitions with Filmora
-
-If you want to make a slideshow with some templates on Mac, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora can turn photos and videos into attractive slideshow videos with various inbuilt filters, transitions, elements, animations, effects, and overlays. Click the Free Download button and have a try.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Check the ultimate guide about [making a slideshow with music and titles in Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-If you are going to make a slideshow with music on Windows, you may need a slideshow-making tool to do it by yourself. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) will also be a good choice. It helps you instantly make such an impressive slideshow from photos and videos for sharing virtually anywhere.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Makings a slideshow is a great way to share photos and videos with friends and families. The good news is that you can totally make a slideshow on Mac for free with iMovie. iMovie is the pre-installed program coming with every new Mac. It provides a simple yet professional way to make slideshow movies from your photos, videos, and music.
-
-If you haven’t iMovie installed on your Mac yet, just go to iTunes and download it for free. In the following part, I’ll share with you the step-by-step tutorial on how to make a slideshow on Mac using the free video editing software iMovie.
-
-If you are an iOS user, check our picks of [best photo slideshow apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhone or iPad.
-
-## Ways for iMovie Photo Slideshow with Music Making
-
-To make a photo slideshow with music in iMovie, you can follow these steps.
-
-#### 1. Create a New Project
-
-After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
-
-#### 2. Import Photos, Videos, and Audio Files
-
-Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
-
-#### 3. Arrange Media in Timeline and Adjust
-
-Now, it’s time to place all these photos and videos in the timeline in order and do some adjustments. You can use the Magic Wand tool to improve the photo quality automatically, do some color correction, or add a filter to the photo. If you preview the video clip, you will see more options that allow you to do more editing, such as changing speed.
-
-#### 4. Apply Transitions & Effects
-
-Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
-
-#### 5. Add Titles and Text
-
-Using some opener titles and credits at the beginning and ending part of your slideshow will make it cool as well. You can add some famous quotes and words to better demonstrate.
-
-Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
-
-#### 6. Add Music to Slideshow
-
-You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
-
-[Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-#### 7. Export and Share Your Slideshow video
-
-Play the slideshow and check the result in the preview window. If everything goes well, you can now export and share or save it. You can save the slideshow video in MP4 format, or share it to Vimeo or add the slideshow to Theater to load it on your other Apple devices so you can easily watch it on your iOS devices or Apple TV.
-
-I hope the above tutorial about how to make a slideshow on iMovie will be helpful for your stunning slideshow creation.
-
-If you're running an old macOS version and having iPhoto installed on your Mac, here are the detailed steps about How to make slideshow in iMovie with iPhoto project.
-
-#### Step 1. Import Photos from the iPhoto Library
-
-iMovie works seamlessly with iPhoto. You are suggested to drag and drop photos from iPhoto to the iMovie project. If no library exists in iPhoto, create one and import photos to iPhoto first. To add videos, you could go to either "File/Import" or Event Library, and then drag and drop selected videos to the timeline.
-
-After photos and videos are imported to the iMovie slideshow project, you can preview the raw slideshow simply by pressing Space bar on your keyboard. And then make adjustments to clips and transitions. For example, mouse over one clip or "double arrow" button and click on the settings icon, then you could access clip adjustment, video adjustment, transition adjustment, etc.
-
-![make imovie slideshow](https://images.wondershare.com/topic/video-editing/select-photos-to-imovie.jpg "make imovie slideshow")
-
-#### Step 2. Add Music to Your iMovie Slideshow Project
-
-Music sets the tone of your slideshow. Adding musing to the iMovie slideshow is just as simple as adding photos and videos.
-
-So click the audio icon in the bottom right corner, and drag and drop the desired audio file to the timeline. Multiple songs could be added to iMovie.
-
-However, iMovie doesn't support multiple soundtracks. If necessary, you need to combine multiple song tracks with an external audio editor before importing them to the iMovie slideshow. You can also apply audio effects and filter sound using an equalizer.
-
-![make imovie slideshow](https://images.wondershare.com/topic/video-editing/add-backgound-music-to-imovie.jpg "make imovie slideshow")
-
-#### Step 3. Export Your iMovie Slideshow Video
-
-iMovie makes sharing possibilities endless. For those who upload their videos online, iMovie allows users to directly upload to MobileMe Gallery, YouTube, Facebook, Vimeo, CNN iReport, etc.
-
-If you select to share the iMovie slideshow using Media Browser, you will get a slideshow appeared in other Mac applications like iWeb. It's a good idea to export the iMovie slideshow to iTunes so that you can play back slideshow quickly and easily sync with your mobile devices like iPhone, iPod, and iPad.
-
-![make imovie slideshow](https://images.wondershare.com/topic/photo-editing/imovie-slideshow-share.jpg "make imovie slideshow")
-
-**You may also like:** [How to Add Text with iMovie in Mac and iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-## Recommendation: Create Slideshow on Mac with More Templates and Transitions with Filmora
-
-If you want to make a slideshow with some templates on Mac, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora can turn photos and videos into attractive slideshow videos with various inbuilt filters, transitions, elements, animations, effects, and overlays. Click the Free Download button and have a try.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Check the ultimate guide about [making a slideshow with music and titles in Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
-
-If you are going to make a slideshow with music on Windows, you may need a slideshow-making tool to do it by yourself. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) will also be a good choice. It helps you instantly make such an impressive slideshow from photos and videos for sharing virtually anywhere.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-Shanoon Cox
-
-Shanoon Cox is a writer and a lover of all things video.
-
-Follow @Shanoon Cox
-
-##### Shanoon Cox
-
- Mar 27, 2024• Proven solutions
-
-Makings a slideshow is a great way to share photos and videos with friends and families. The good news is that you can totally make a slideshow on Mac for free with iMovie. iMovie is the pre-installed program coming with every new Mac. It provides a simple yet professional way to make slideshow movies from your photos, videos, and music.
-
-If you haven’t iMovie installed on your Mac yet, just go to iTunes and download it for free. In the following part, I’ll share with you the step-by-step tutorial on how to make a slideshow on Mac using the free video editing software iMovie.
-
-If you are an iOS user, check our picks of [best photo slideshow apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhone or iPad.
-
-## Ways for iMovie Photo Slideshow with Music Making
-
-To make a photo slideshow with music in iMovie, you can follow these steps.
-
-#### 1. Create a New Project
-
-After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
-
-#### 2. Import Photos, Videos, and Audio Files
-
-Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
-
-#### 3. Arrange Media in Timeline and Adjust
-
-Now, it’s time to place all these photos and videos in the timeline in order and do some adjustments. You can use the Magic Wand tool to improve the photo quality automatically, do some color correction, or add a filter to the photo. If you preview the video clip, you will see more options that allow you to do more editing, such as changing speed.
-
-#### 4. Apply Transitions & Effects
-
-Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
-
-![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+#### 2. Import Photos, Videos, and Audio Files
+
+Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+
+#### 3. Arrange Media in Timeline and Adjust
+
+Now, it’s time to place all these photos and videos in the timeline in order and do some adjustments. You can use the Magic Wand tool to improve the photo quality automatically, do some color correction, or add a filter to the photo. If you preview the video clip, you will see more options that allow you to do more editing, such as changing speed.
+
+#### 4. Apply Transitions & Effects
+
+Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+
+#### 5. Add Titles and Text
+
+Using some opener titles and credits at the beginning and ending part of your slideshow will make it cool as well. You can add some famous quotes and words to better demonstrate.
+
+Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+
+#### 6. Add Music to Slideshow
+
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### 7. Export and Share Your Slideshow video
+
+Play the slideshow and check the result in the preview window. If everything goes well, you can now export and share or save it. You can save the slideshow video in MP4 format, or share it to Vimeo or add the slideshow to Theater to load it on your other Apple devices so you can easily watch it on your iOS devices or Apple TV.
+
+I hope the above tutorial about how to make a slideshow on iMovie will be helpful for your stunning slideshow creation.
+
+If you're running an old macOS version and having iPhoto installed on your Mac, here are the detailed steps about How to make slideshow in iMovie with iPhoto project.
+
+#### Step 1. Import Photos from the iPhoto Library
+
+iMovie works seamlessly with iPhoto. You are suggested to drag and drop photos from iPhoto to the iMovie project. If no library exists in iPhoto, create one and import photos to iPhoto first. To add videos, you could go to either "File/Import" or Event Library, and then drag and drop selected videos to the timeline.
+
+After photos and videos are imported to the iMovie slideshow project, you can preview the raw slideshow simply by pressing Space bar on your keyboard. And then make adjustments to clips and transitions. For example, mouse over one clip or "double arrow" button and click on the settings icon, then you could access clip adjustment, video adjustment, transition adjustment, etc.
+
+![make imovie slideshow](https://images.wondershare.com/topic/video-editing/select-photos-to-imovie.jpg "make imovie slideshow")
+
+#### Step 2. Add Music to Your iMovie Slideshow Project
+
+Music sets the tone of your slideshow. Adding musing to the iMovie slideshow is just as simple as adding photos and videos.
+
+So click the audio icon in the bottom right corner, and drag and drop the desired audio file to the timeline. Multiple songs could be added to iMovie.
+
+However, iMovie doesn't support multiple soundtracks. If necessary, you need to combine multiple song tracks with an external audio editor before importing them to the iMovie slideshow. You can also apply audio effects and filter sound using an equalizer.
+
+![make imovie slideshow](https://images.wondershare.com/topic/video-editing/add-backgound-music-to-imovie.jpg "make imovie slideshow")
+
+#### Step 3. Export Your iMovie Slideshow Video
+
+iMovie makes sharing possibilities endless. For those who upload their videos online, iMovie allows users to directly upload to MobileMe Gallery, YouTube, Facebook, Vimeo, CNN iReport, etc.
+
+If you select to share the iMovie slideshow using Media Browser, you will get a slideshow appeared in other Mac applications like iWeb. It's a good idea to export the iMovie slideshow to iTunes so that you can play back slideshow quickly and easily sync with your mobile devices like iPhone, iPod, and iPad.
+
+![make imovie slideshow](https://images.wondershare.com/topic/photo-editing/imovie-slideshow-share.jpg "make imovie slideshow")
+
+**You may also like:** [How to Add Text with iMovie in Mac and iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Recommendation: Create Slideshow on Mac with More Templates and Transitions with Filmora
+
+If you want to make a slideshow with some templates on Mac, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora can turn photos and videos into attractive slideshow videos with various inbuilt filters, transitions, elements, animations, effects, and overlays. Click the Free Download button and have a try.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Check the ultimate guide about [making a slideshow with music and titles in Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+If you are going to make a slideshow with music on Windows, you may need a slideshow-making tool to do it by yourself. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) will also be a good choice. It helps you instantly make such an impressive slideshow from photos and videos for sharing virtually anywhere.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Makings a slideshow is a great way to share photos and videos with friends and families. The good news is that you can totally make a slideshow on Mac for free with iMovie. iMovie is the pre-installed program coming with every new Mac. It provides a simple yet professional way to make slideshow movies from your photos, videos, and music.
+
+If you haven’t iMovie installed on your Mac yet, just go to iTunes and download it for free. In the following part, I’ll share with you the step-by-step tutorial on how to make a slideshow on Mac using the free video editing software iMovie.
+
+If you are an iOS user, check our picks of [best photo slideshow apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhone or iPad.
+
+## Ways for iMovie Photo Slideshow with Music Making
+
+To make a photo slideshow with music in iMovie, you can follow these steps.
+
+#### 1. Create a New Project
+
+After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+
+#### 2. Import Photos, Videos, and Audio Files
+
+Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+
+#### 3. Arrange Media in Timeline and Adjust
+
+Now, it’s time to place all these photos and videos in the timeline in order and do some adjustments. You can use the Magic Wand tool to improve the photo quality automatically, do some color correction, or add a filter to the photo. If you preview the video clip, you will see more options that allow you to do more editing, such as changing speed.
+
+#### 4. Apply Transitions & Effects
+
+Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+
+#### 5. Add Titles and Text
+
+Using some opener titles and credits at the beginning and ending part of your slideshow will make it cool as well. You can add some famous quotes and words to better demonstrate.
+
+Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+
+#### 6. Add Music to Slideshow
+
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### 7. Export and Share Your Slideshow video
+
+Play the slideshow and check the result in the preview window. If everything goes well, you can now export and share or save it. You can save the slideshow video in MP4 format, or share it to Vimeo or add the slideshow to Theater to load it on your other Apple devices so you can easily watch it on your iOS devices or Apple TV.
+
+I hope the above tutorial about how to make a slideshow on iMovie will be helpful for your stunning slideshow creation.
+
+If you're running an old macOS version and having iPhoto installed on your Mac, here are the detailed steps about How to make slideshow in iMovie with iPhoto project.
+
+#### Step 1. Import Photos from the iPhoto Library
+
+iMovie works seamlessly with iPhoto. You are suggested to drag and drop photos from iPhoto to the iMovie project. If no library exists in iPhoto, create one and import photos to iPhoto first. To add videos, you could go to either "File/Import" or Event Library, and then drag and drop selected videos to the timeline.
+
+After photos and videos are imported to the iMovie slideshow project, you can preview the raw slideshow simply by pressing Space bar on your keyboard. And then make adjustments to clips and transitions. For example, mouse over one clip or "double arrow" button and click on the settings icon, then you could access clip adjustment, video adjustment, transition adjustment, etc.
+
+![make imovie slideshow](https://images.wondershare.com/topic/video-editing/select-photos-to-imovie.jpg "make imovie slideshow")
+
+#### Step 2. Add Music to Your iMovie Slideshow Project
+
+Music sets the tone of your slideshow. Adding musing to the iMovie slideshow is just as simple as adding photos and videos.
+
+So click the audio icon in the bottom right corner, and drag and drop the desired audio file to the timeline. Multiple songs could be added to iMovie.
+
+However, iMovie doesn't support multiple soundtracks. If necessary, you need to combine multiple song tracks with an external audio editor before importing them to the iMovie slideshow. You can also apply audio effects and filter sound using an equalizer.
+
+![make imovie slideshow](https://images.wondershare.com/topic/video-editing/add-backgound-music-to-imovie.jpg "make imovie slideshow")
+
+#### Step 3. Export Your iMovie Slideshow Video
+
+iMovie makes sharing possibilities endless. For those who upload their videos online, iMovie allows users to directly upload to MobileMe Gallery, YouTube, Facebook, Vimeo, CNN iReport, etc.
+
+If you select to share the iMovie slideshow using Media Browser, you will get a slideshow appeared in other Mac applications like iWeb. It's a good idea to export the iMovie slideshow to iTunes so that you can play back slideshow quickly and easily sync with your mobile devices like iPhone, iPod, and iPad.
+
+![make imovie slideshow](https://images.wondershare.com/topic/photo-editing/imovie-slideshow-share.jpg "make imovie slideshow")
+
+**You may also like:** [How to Add Text with iMovie in Mac and iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Recommendation: Create Slideshow on Mac with More Templates and Transitions with Filmora
+
+If you want to make a slideshow with some templates on Mac, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora can turn photos and videos into attractive slideshow videos with various inbuilt filters, transitions, elements, animations, effects, and overlays. Click the Free Download button and have a try.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Check the ultimate guide about [making a slideshow with music and titles in Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+If you are going to make a slideshow with music on Windows, you may need a slideshow-making tool to do it by yourself. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) will also be a good choice. It helps you instantly make such an impressive slideshow from photos and videos for sharing virtually anywhere.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Makings a slideshow is a great way to share photos and videos with friends and families. The good news is that you can totally make a slideshow on Mac for free with iMovie. iMovie is the pre-installed program coming with every new Mac. It provides a simple yet professional way to make slideshow movies from your photos, videos, and music.
+
+If you haven’t iMovie installed on your Mac yet, just go to iTunes and download it for free. In the following part, I’ll share with you the step-by-step tutorial on how to make a slideshow on Mac using the free video editing software iMovie.
+
+If you are an iOS user, check our picks of [best photo slideshow apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhone or iPad.
+
+## Ways for iMovie Photo Slideshow with Music Making
+
+To make a photo slideshow with music in iMovie, you can follow these steps.
+
+#### 1. Create a New Project
+
+After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+
+#### 2. Import Photos, Videos, and Audio Files
+
+Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+
+#### 3. Arrange Media in Timeline and Adjust
+
+Now, it’s time to place all these photos and videos in the timeline in order and do some adjustments. You can use the Magic Wand tool to improve the photo quality automatically, do some color correction, or add a filter to the photo. If you preview the video clip, you will see more options that allow you to do more editing, such as changing speed.
+
+#### 4. Apply Transitions & Effects
+
+Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
+
+#### 5. Add Titles and Text
+
+Using some opener titles and credits at the beginning and ending part of your slideshow will make it cool as well. You can add some famous quotes and words to better demonstrate.
+
+Just to the Titles tab and select one of the title templates and drop it to the timeline first and then write your own words in the preview window.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-title-templates.jpg)
+
+#### 6. Add Music to Slideshow
+
+You can download some royalty-free music and sound effects from websites such as [Filmstock stock media library](https://tools.techidaily.com/wondershare/filmora/download/) or iTunes or import your own audio as we said before to use it as the slideshow background music. To sync with the slideshow, you may need to trim and edit the audio accordingly. For detailed information about iMovie audio editing, you can check [how to add background music to iMovie.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[Filmstock Stock Media Library](https://images.wondershare.com/filmora/article-images/Filmstock-stock-media-library-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### 7. Export and Share Your Slideshow video
+
+Play the slideshow and check the result in the preview window. If everything goes well, you can now export and share or save it. You can save the slideshow video in MP4 format, or share it to Vimeo or add the slideshow to Theater to load it on your other Apple devices so you can easily watch it on your iOS devices or Apple TV.
+
+I hope the above tutorial about how to make a slideshow on iMovie will be helpful for your stunning slideshow creation.
+
+If you're running an old macOS version and having iPhoto installed on your Mac, here are the detailed steps about How to make slideshow in iMovie with iPhoto project.
+
+#### Step 1. Import Photos from the iPhoto Library
+
+iMovie works seamlessly with iPhoto. You are suggested to drag and drop photos from iPhoto to the iMovie project. If no library exists in iPhoto, create one and import photos to iPhoto first. To add videos, you could go to either "File/Import" or Event Library, and then drag and drop selected videos to the timeline.
+
+After photos and videos are imported to the iMovie slideshow project, you can preview the raw slideshow simply by pressing Space bar on your keyboard. And then make adjustments to clips and transitions. For example, mouse over one clip or "double arrow" button and click on the settings icon, then you could access clip adjustment, video adjustment, transition adjustment, etc.
+
+![make imovie slideshow](https://images.wondershare.com/topic/video-editing/select-photos-to-imovie.jpg "make imovie slideshow")
+
+#### Step 2. Add Music to Your iMovie Slideshow Project
+
+Music sets the tone of your slideshow. Adding musing to the iMovie slideshow is just as simple as adding photos and videos.
+
+So click the audio icon in the bottom right corner, and drag and drop the desired audio file to the timeline. Multiple songs could be added to iMovie.
+
+However, iMovie doesn't support multiple soundtracks. If necessary, you need to combine multiple song tracks with an external audio editor before importing them to the iMovie slideshow. You can also apply audio effects and filter sound using an equalizer.
+
+![make imovie slideshow](https://images.wondershare.com/topic/video-editing/add-backgound-music-to-imovie.jpg "make imovie slideshow")
+
+#### Step 3. Export Your iMovie Slideshow Video
+
+iMovie makes sharing possibilities endless. For those who upload their videos online, iMovie allows users to directly upload to MobileMe Gallery, YouTube, Facebook, Vimeo, CNN iReport, etc.
+
+If you select to share the iMovie slideshow using Media Browser, you will get a slideshow appeared in other Mac applications like iWeb. It's a good idea to export the iMovie slideshow to iTunes so that you can play back slideshow quickly and easily sync with your mobile devices like iPhone, iPod, and iPad.
+
+![make imovie slideshow](https://images.wondershare.com/topic/photo-editing/imovie-slideshow-share.jpg "make imovie slideshow")
+
+**You may also like:** [How to Add Text with iMovie in Mac and iPhone >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Recommendation: Create Slideshow on Mac with More Templates and Transitions with Filmora
+
+If you want to make a slideshow with some templates on Mac, you can try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Filmora can turn photos and videos into attractive slideshow videos with various inbuilt filters, transitions, elements, animations, effects, and overlays. Click the Free Download button and have a try.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Check the ultimate guide about [making a slideshow with music and titles in Filmora](https://tools.techidaily.com/wondershare/filmora/download/).
+
+If you are going to make a slideshow with music on Windows, you may need a slideshow-making tool to do it by yourself. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) will also be a good choice. It helps you instantly make such an impressive slideshow from photos and videos for sharing virtually anywhere.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+Shanoon Cox
+
+Shanoon Cox is a writer and a lover of all things video.
+
+Follow @Shanoon Cox
+
+##### Shanoon Cox
+
+ Mar 27, 2024• Proven solutions
+
+Makings a slideshow is a great way to share photos and videos with friends and families. The good news is that you can totally make a slideshow on Mac for free with iMovie. iMovie is the pre-installed program coming with every new Mac. It provides a simple yet professional way to make slideshow movies from your photos, videos, and music.
+
+If you haven’t iMovie installed on your Mac yet, just go to iTunes and download it for free. In the following part, I’ll share with you the step-by-step tutorial on how to make a slideshow on Mac using the free video editing software iMovie.
+
+If you are an iOS user, check our picks of [best photo slideshow apps](https://tools.techidaily.com/wondershare/filmora/download/) for iPhone or iPad.
+
+## Ways for iMovie Photo Slideshow with Music Making
+
+To make a photo slideshow with music in iMovie, you can follow these steps.
+
+#### 1. Create a New Project
+
+After launching iMovie, click the Project button and then click Create New. Select Movie to combine photos, videos and music to make a slideshow.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-create-new-project.jpg)
+
+#### 2. Import Photos, Videos, and Audio Files
+
+Now go to the My Media tab and click the Import icon to add your photos, videos, and music to iMovie, in this way, you can import any media files from any location on your Mac. But if you have arranged all your videos, photos, and music tracks in the Photos app, you can just switch to Photos under the Libraries tab on the left to import.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-import-slideshow-photos-videos.jpg)
+
+#### 3. Arrange Media in Timeline and Adjust
+
+Now, it’s time to place all these photos and videos in the timeline in order and do some adjustments. You can use the Magic Wand tool to improve the photo quality automatically, do some color correction, or add a filter to the photo. If you preview the video clip, you will see more options that allow you to do more editing, such as changing speed.
+
+#### 4. Apply Transitions & Effects
+
+Transitions and effects will help you to create a slideshow in a more professional way. Some transitions such as cross dissolve, fade and cross blur are very popular in the slideshow, but remember don’t use lots of different transitions in one slideshow since too many transitions will distract the viewer’s attention. To apply a transition in the slideshow, just drag and drop it between two photos in the timeline.
+
+![make slideshow in iMovie](https://images.wondershare.com/filmora/article-images/imovie-transitions-library.jpg)
 
 #### 5. Add Titles and Text
 
@@ -1771,10 +1787,6 @@ Performing basic video editing tasks like cutting or trimming the footage, choos
 
 Filmora is free to download. Import your videos after you launch the software, you then can add any animated emojis into wherever you want. Have a try now! Emojis inside are so Cute ![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Add Emojis to YouTube Videos?
 
 You can now add emojis to any of the YouTube videos using an online free tool called Kapwing.
@@ -1854,10 +1866,6 @@ Image from YouSubtitles
 ![add emojis to videos online](https://images.wondershare.com/filmora/article-images/add-emojis-to-video-by-blurbiz.jpg)
 
 **Step 6:** Tap on “complete” at the top right corner when you are done. You can download an mp4 format video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Add Emojis to Videos Android?
 
@@ -2215,6 +2223,10 @@ Now you can make an emoji of yourself even on an Android phone with the Mirror e
 
 ![Download Mirror Emoji App](https://images.wondershare.com/filmora/article-images/download-mirror-emoji-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2.Click the left one to make an original avatar or the right one if you wish to make an emoji of yourself as an anime. Click Next.
 
 ![Go To Next Step](https://images.wondershare.com/filmora/article-images/go-to-next-step.jpg)
@@ -2298,10 +2310,6 @@ For the lucky lot of you, let me walk you through how to make an emoji of yourse
 
 ![Emoji Hairstyle](https://images.wondershare.com/filmora/article-images/emoji-hairstyle.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 4.Head Shape-Select the age group from kids, adults, old, and your face cut by choosing the chin that best fits you.
 
 ![Select Head Shape](https://images.wondershare.com/filmora/article-images/select-head-shape.jpg)
@@ -2357,6 +2365,10 @@ Now you can make an emoji of yourself even on an Android phone with the Mirror e
 5.Once you make an emoji of yourself, Mirror will display a range of fun stickers for instant sharing.
 
 ![Display Emoji Sticker](https://images.wondershare.com/filmora/article-images/display-emoji-sticker.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 6.Click on any sticker, choose a mood using the emojis displayed and click to share or save to the device.
 
@@ -2785,6 +2797,10 @@ Related: [How to Animate Pictures in Canva](https://tools.techidaily.com/wonders
 
 ![add emoji to photo online pizap](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pizap.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 PiZap is a photo editing tool that lets you add emojis too. To start using, you will have to log in or sign up. You can use your Facebook, Twitter, or Google account to sign up. It provides you with various graphics, fonts, and other photo editing features to make the image look better than before. The basic tool comes for free and has 232 emojis currently.
 
 **Key Features**
@@ -2807,6 +2823,10 @@ PiZap is a photo editing tool that lets you add emojis too. To start using, you 
 ### #5: Pixelied
 
 ![add emoji to photo online pixelied](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-online-pixelied.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The last website that we have is Pixelied. The free tool will let you edit your image and add emojis, which will be enough if you don't want many features. Using the tool is easy, and the emojis Pixelied has are great. They are different than general emojis and look better! Plus, the tool provides 300+ fantastic emojis.
 
@@ -3087,10 +3107,6 @@ Related: [How to make a slo-mo video on Kapwing](https://tools.techidaily.com/wo
 
 ![add emoji to photo emoji image online](https://images.wondershare.com/filmora/article-images/add-emoji-to-photo-emoji-image-online.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The next good online tool that you can try is Image Online.Co. It's a pretty basic tool that lets you upload a photo and add an emoji the right way. It has more than 100 emojis, which is not a lot. But features all the popular emojis that will suit all kinds of images. And it allows you to add your custom emojis, which is why people prefer to use Image Online.Co. Using it is very easy, and the interface of the online tool is easy to understand.
 
 **Key Features**
@@ -3157,10 +3173,6 @@ PiZap is a photo editing tool that lets you add emojis too. To start using, you 
 **Step 3:** From the left-side toolbar, click on the Graphics option. Scroll a bit, and you will see the emoji section.
 
 **Step 4:** Click on any of the emojis you like to add to the photo. You can adjust the emojis as you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### #5: Pixelied
 
@@ -3764,10 +3776,6 @@ Wondershare Filmora is a powerful [video editing tool](https://tools.techidaily.
 5\. Then simply add the emoji to the timeline. You can resize, rotate, color tune the emoji, or even add two or more emojis to the video as you like.
 
 ![add emoji to video](https://images.wondershare.com/filmora/article-images/add-emoji-to-videos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 6\. Once done, click the **Export** button to export the video to your local device, or you can upload it to YouTube directly.
 
@@ -4694,10 +4702,6 @@ Making one’s own stickers have been one of the latest trends of communication 
 * [Part 1: 10 Free Online Stickers to Make Your Own Stickers](#part1)
 * [Part 2: Add Sticker to Your Video with Wondershare Filmora](#part2)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: 10 Free Online Stickers to Make Your Stickers
 
 With the right applications, making your own stickers can be very easy. There are a lot of online sticker makers that allow you to create your own stickers, but the best ones among them will do the job more creatively and easily. So, let’s have a look at the top free online sticker makers we have selected for you in terms of features and easiness to use.
@@ -4858,10 +4862,6 @@ MakeStickers is a custom online sticker maker that offers a lot of features and 
 
 ![Make Stickers Website](https://images.wondershare.com/filmora/article-images/make-stickers-website.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Pricing:**
 
 * Pricing depends on the quantity and dimensions of the stickers
@@ -4923,6 +4923,10 @@ Stickers sometimes speak better than words and it is very important to know how 
 Online sticker makers allow you to customize stickers based on your ideas and depending on any occasion. We have listed the top free online sticker makers available that will allow you to create all the stickers you need. Thank you.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -5469,10 +5473,6 @@ With the right applications, making your own stickers can be very easy. There ar
 StickerYou is a wonderful online sticker maker that helps you to create clear cut stickers easily. You can upload any photo that you wish to convert into a sticker, provided those are in PNG, JPG, JPEG, or GIF formats.
 
 ![Sticker You Website](https://images.wondershare.com/filmora/article-images/sticker-you-website.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Pricing**
 
@@ -5697,20 +5697,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-modify-game-characters-vocal-presence-and-identity-in-free-fire-step-by-step-guide-included-free/"><u>[New] How to Modify Game Characters' Vocal Presence and Identity in Free Fire (Step-by-Step Guide Included, FREE)</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-mapping-instagrams-unfollowers-landscape-for-2024/"><u>[New] Mapping Instagram's Unfollowers Landscape for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-kids-earning-big-the-success-story-of-young-ryan-kaji/"><u>[Updated] Kids Earning Big The Success Story of Young Ryan Kaji</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-25-cute-memes-to-make-you-feel-better/"><u>2024 Approved 25 Cute Memes to Make You Feel Better</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-engaging-youtube-thumbnails-a-step-by-step-guide-for-2024/"><u>Crafting Engaging YouTube Thumbnails A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/funny-faces-for-iphone-users/"><u>Funny Faces for iPhone Users</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/in-2024-best-10-emoji-makers-to-create-your-own-emojispconlineandroidiphone/"><u>In 2024, Best 10 Emoji Makers to Create Your Own EmojisPC/Online/Android/iPhone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-edit-memoji-on-android-and-iphone/"><u>New How to Edit Memoji on Android and iPhone</u></a></li>
-<li><a href="https://common-error.techidaily.com/solving-miracast-connectivity-issues-with-graphics-drivers-now-fixed/"><u>Solving Miracast Connectivity Issues with Graphics Drivers - Now Fixed</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/top-10-storyboarding-software/"><u>Top 10 Storyboarding Software</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-performance-issues-making-your-age-of-empires-4-gameplay-smoother/"><u>Troubleshooting Performance Issues: Making Your Age of Empires 4 Gameplay Smoother</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-leading-triad-of-breakthrough-tech-trends-in-play/"><u>Unveiling the Leading Triad of Breakthrough Tech Trends in Play</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-video-meme-with-4-best-meme-video-makers/"><u>Updated How to Make a Video Meme with 4 Best Meme Video Makers</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-record-and-edit-an-animoji-or-memoji-karaoke-music-video/"><u>Updated In 2024, Record and Edit an Animoji or Memoji Karaoke Music Video</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ssential-sites-for-fetching-video-intro-files-for-2024/"><u>[New] Essential Sites for Fetching Video Intro Files for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-a-critical-look-at-irecorders-screenshot-tech/"><u>[Updated] 2024 Approved A Critical Look at iRecorder's Screenshot Tech</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-time-reverse-footage-on-your-phone/"><u>[Updated] Time-Reverse Footage on Your Phone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-unlocking-the-power-of-google-meet-recordings-two-key-tactics-for-2024/"><u>[Updated] Unlocking the Power of Google Meet Recordings Two Key Tactics for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-10-best-memes-right-now-include-image-gifvideo/"><u>2024 Approved 10 Best Memes Right Now (Include Image/ GIF/Video)</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/abbyy-boosts-asian-pacific-presence-through-strategic-takeover-of-pericom-singapore/"><u>ABBYY Boosts Asian-Pacific Presence Through Strategic Takeover of Pericom Singapore</u></a></li>
+<li><a href="https://android-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-nokia-c12-pro-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Nokia C12 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-friendly-feedback-with-poll-innovation/"><u>Leveraging Friendly Feedback with Poll Innovation</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/quick-fixes-for-obs-recording-error-on-windows-11/"><u>Quick Fixes for OBS Recording Error on Windows 11</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-finding-out-who-distributed-your-facebook-post-to-others/"><u>The Ultimate Guide: Finding Out Who Distributed Your Facebook Post to Others</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/top-10-best-free-manga-sites-to-read-online/"><u>Top 10 Best Free Manga Sites to Read Online</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-best-solarmovie-alternatives-watch-movies-online-for-2024/"><u>Updated Best SolarMovie Alternatives-Watch Movies Online for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-10-free-online-sticker-makers-to-make-your-own-stickers/"><u>Updated In 2024, 10 Free Online Sticker Makers to Make Your Own Stickers</u></a></li>
 </ul></div>
 
